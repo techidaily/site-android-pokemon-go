@@ -1,7 +1,7 @@
 ---
 title: List of Pokémon Go Joysticks On Itel P55 | Dr.fone
-date: 2024-04-01T11:46:42.454Z
-updated: 2024-04-02T11:46:42.454Z
+date: 2024-04-01T12:28:58.092Z
+updated: 2024-04-02T12:28:58.092Z
 tags: 
   - virtual location change
   - pokemon-go

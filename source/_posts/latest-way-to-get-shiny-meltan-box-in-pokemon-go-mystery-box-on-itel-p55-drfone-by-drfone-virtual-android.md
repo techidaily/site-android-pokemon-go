@@ -1,7 +1,7 @@
 ---
 title: Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Itel P55 | Dr.fone
-date: 2024-04-01T11:46:42.492Z
-updated: 2024-04-02T11:46:42.492Z
+date: 2024-04-01T12:28:58.118Z
+updated: 2024-04-02T12:28:58.118Z
 tags: 
   - virtual location change
   - pokemon-go
