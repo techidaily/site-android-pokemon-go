@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Itel P55? | Dr.fone
-date: 2024-04-01T06:28:45.213Z
-updated: 2024-04-02T06:28:45.213Z
+date: 2024-04-01T11:46:42.451Z
+updated: 2024-04-02T11:46:42.451Z
 tags: 
   - virtual location change
   - pokemon-go

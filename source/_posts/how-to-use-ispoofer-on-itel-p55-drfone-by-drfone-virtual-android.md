@@ -1,7 +1,7 @@
 ---
 title: How to use iSpoofer on Itel P55? | Dr.fone
-date: 2024-04-01T06:28:45.170Z
-updated: 2024-04-02T06:28:45.170Z
+date: 2024-04-01T11:46:42.437Z
+updated: 2024-04-02T11:46:42.437Z
 tags: 
   - virtual location change
   - pokemon-go

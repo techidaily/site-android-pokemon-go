@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Itel P55? | Dr.fone
-date: 2024-04-01T06:28:45.258Z
-updated: 2024-04-02T06:28:45.258Z
+date: 2024-04-01T11:46:42.488Z
+updated: 2024-04-02T11:46:42.488Z
 tags: 
   - virtual location change
   - pokemon-go

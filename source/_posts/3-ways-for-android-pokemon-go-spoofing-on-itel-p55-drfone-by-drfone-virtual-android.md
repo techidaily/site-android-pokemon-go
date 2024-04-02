@@ -1,7 +1,7 @@
 ---
 title: 3 Ways for Android Pokemon Go Spoofing On Itel P55 | Dr.fone
-date: 2024-04-01T06:28:45.227Z
-updated: 2024-04-02T06:28:45.227Z
+date: 2024-04-01T11:46:42.486Z
+updated: 2024-04-02T11:46:42.486Z
 tags: 
   - virtual location change
   - pokemon-go

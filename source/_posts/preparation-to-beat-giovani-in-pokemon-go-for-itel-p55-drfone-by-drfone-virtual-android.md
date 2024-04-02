@@ -1,7 +1,7 @@
 ---
 title: Preparation to Beat Giovani in Pokemon Go For Itel P55 | Dr.fone
-date: 2024-04-01T06:28:45.127Z
-updated: 2024-04-02T06:28:45.127Z
+date: 2024-04-01T11:46:42.378Z
+updated: 2024-04-02T11:46:42.378Z
 tags: 
   - virtual location change
   - pokemon-go

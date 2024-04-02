@@ -1,7 +1,7 @@
 ---
 title: How Can I Catch the Regional Pokémon without Traveling On Itel P55 | Dr.fone
-date: 2024-04-01T06:28:45.262Z
-updated: 2024-04-02T06:28:45.262Z
+date: 2024-04-01T11:46:42.491Z
+updated: 2024-04-02T11:46:42.491Z
 tags: 
   - virtual location change
   - pokemon-go
