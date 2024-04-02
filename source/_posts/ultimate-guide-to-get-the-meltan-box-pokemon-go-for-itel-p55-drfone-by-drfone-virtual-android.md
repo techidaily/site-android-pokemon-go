@@ -1,7 +1,7 @@
 ---
 title: Ultimate guide to get the meltan box pokemon go For Itel P55 | Dr.fone
-date: 2024-03-24 13:45:55
-updated: 2024-03-27 17:46:48
+date: 2024-04-01T06:28:45.174Z
+updated: 2024-04-02T06:28:45.174Z
 tags: 
   - virtual location change
   - pokemon-go

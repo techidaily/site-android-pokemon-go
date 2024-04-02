@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Itel P55 | Dr.fone
-date: 2024-03-26 10:52:25
-updated: 2024-03-27 19:38:18
+date: 2024-04-01T06:28:45.204Z
+updated: 2024-04-02T06:28:45.204Z
 tags: 
   - virtual location change
   - pokemon-go

@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Itel P55 | Dr.fone
-date: 2024-03-24 14:40:47
-updated: 2024-03-27 10:59:12
+date: 2024-04-01T06:28:45.272Z
+updated: 2024-04-02T06:28:45.272Z
 tags: 
   - virtual location change
   - pokemon-go

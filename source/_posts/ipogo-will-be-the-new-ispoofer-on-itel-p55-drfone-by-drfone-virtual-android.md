@@ -1,7 +1,7 @@
 ---
 title: iPogo will be the new iSpoofer On Itel P55? | Dr.fone
-date: 2024-03-26 15:13:41
-updated: 2024-03-27 13:21:28
+date: 2024-04-01T06:28:45.220Z
+updated: 2024-04-02T06:28:45.220Z
 tags: 
   - virtual location change
   - pokemon-go

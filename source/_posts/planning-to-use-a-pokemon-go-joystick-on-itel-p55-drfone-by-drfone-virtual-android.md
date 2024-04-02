@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Itel P55? | Dr.fone
-date: 2024-03-24 10:53:30
-updated: 2024-03-27 12:31:32
+date: 2024-04-01T06:28:45.128Z
+updated: 2024-04-02T06:28:45.128Z
 tags: 
   - virtual location change
   - pokemon-go

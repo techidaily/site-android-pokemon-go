@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Itel P55? Fixed | Dr.fone
-date: 2024-03-24 11:20:15
-updated: 2024-03-27 12:58:18
+date: 2024-04-01T06:28:45.165Z
+updated: 2024-04-02T06:28:45.165Z
 tags: 
   - virtual location change
   - pokemon-go

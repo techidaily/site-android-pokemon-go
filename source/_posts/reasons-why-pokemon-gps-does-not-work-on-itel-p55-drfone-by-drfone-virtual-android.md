@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Itel P55? | Dr.fone
-date: 2024-03-25 18:54:42
-updated: 2024-03-27 16:31:24
+date: 2024-04-01T06:28:45.214Z
+updated: 2024-04-02T06:28:45.214Z
 tags: 
   - virtual location change
   - pokemon-go

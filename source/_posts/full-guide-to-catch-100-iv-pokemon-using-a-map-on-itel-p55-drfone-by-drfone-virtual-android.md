@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Itel P55 | Dr.fone
-date: 2024-03-25 11:44:37
-updated: 2024-03-27 23:27:49
+date: 2024-04-01T06:28:45.200Z
+updated: 2024-04-02T06:28:45.200Z
 tags: 
   - virtual location change
   - pokemon-go
