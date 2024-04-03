@@ -1,7 +1,7 @@
 ---
 title: What is the best Pokemon for pokemon pvp ranking On Itel P55? | Dr.fone
-date: 2024-04-01T12:28:58.116Z
-updated: 2024-04-02T12:28:58.116Z
+date: 2024-04-02T00:15:30.730Z
+updated: 2024-04-03T00:15:30.730Z
 tags: 
   - virtual location change
   - pokemon-go

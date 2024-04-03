@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Itel P55? | Dr.fone
-date: 2024-04-01T12:28:58.109Z
-updated: 2024-04-02T12:28:58.109Z
+date: 2024-04-02T00:15:30.725Z
+updated: 2024-04-03T00:15:30.725Z
 tags: 
   - virtual location change
   - pokemon-go

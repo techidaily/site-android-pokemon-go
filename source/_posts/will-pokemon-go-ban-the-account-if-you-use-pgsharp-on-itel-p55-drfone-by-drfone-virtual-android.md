@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Itel P55 | Dr.fone
-date: 2024-04-01T12:28:58.084Z
-updated: 2024-04-02T12:28:58.084Z
+date: 2024-04-02T00:15:30.710Z
+updated: 2024-04-03T00:15:30.710Z
 tags: 
   - virtual location change
   - pokemon-go

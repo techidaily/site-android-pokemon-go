@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to Catch the Regional-Located Pokemon For Itel P55 | Dr.fone
-date: 2024-04-01T12:28:58.108Z
-updated: 2024-04-02T12:28:58.108Z
+date: 2024-04-02T00:15:30.724Z
+updated: 2024-04-03T00:15:30.724Z
 tags: 
   - virtual location change
   - pokemon-go

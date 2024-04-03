@@ -1,7 +1,7 @@
 ---
 title: Detailed guide of ispoofer for pogo installation On Itel P55 | Dr.fone
-date: 2024-04-01T12:28:58.046Z
-updated: 2024-04-02T12:28:58.046Z
+date: 2024-04-02T00:15:30.696Z
+updated: 2024-04-03T00:15:30.696Z
 tags: 
   - virtual location change
   - pokemon-go
