@@ -1,7 +1,7 @@
 ---
 title: 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Itel P55 | Dr.fone
-date: 2024-04-02T00:15:30.695Z
-updated: 2024-04-03T00:15:30.695Z
+date: 2024-04-02T07:28:28.870Z
+updated: 2024-04-03T07:28:28.870Z
 tags: 
   - virtual location change
   - pokemon-go

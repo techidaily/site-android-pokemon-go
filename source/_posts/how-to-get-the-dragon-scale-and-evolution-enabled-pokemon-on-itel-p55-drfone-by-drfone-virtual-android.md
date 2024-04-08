@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Itel P55? | Dr.fone
-date: 2024-04-02T00:15:30.713Z
-updated: 2024-04-03T00:15:30.713Z
+date: 2024-04-02T07:28:28.878Z
+updated: 2024-04-03T07:28:28.878Z
 tags: 
   - virtual location change
   - pokemon-go

@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Itel P55? | Dr.fone
-date: 2024-04-02T00:15:30.743Z
-updated: 2024-04-03T00:15:30.743Z
+date: 2024-04-02T07:28:28.884Z
+updated: 2024-04-03T07:28:28.884Z
 tags: 
   - virtual location change
   - pokemon-go
