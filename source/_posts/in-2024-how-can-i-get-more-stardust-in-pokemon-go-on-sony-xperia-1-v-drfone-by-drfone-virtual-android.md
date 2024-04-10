@@ -1,7 +1,7 @@
 ---
 title: In 2024, How can I get more stardust in pokemon go On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-07T23:19:12.151Z
-updated: 2024-04-08T23:19:12.151Z
+date: 2024-04-09T03:22:29.586Z
+updated: 2024-04-10T03:22:29.586Z
 tags: 
   - virtual location change
   - pokemon-go

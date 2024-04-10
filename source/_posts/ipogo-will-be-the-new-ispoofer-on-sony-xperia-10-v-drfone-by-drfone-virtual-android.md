@@ -1,7 +1,7 @@
 ---
 title: iPogo will be the new iSpoofer On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-07T23:19:12.196Z
-updated: 2024-04-08T23:19:12.196Z
+date: 2024-04-09T03:22:29.630Z
+updated: 2024-04-10T03:22:29.630Z
 tags: 
   - virtual location change
   - pokemon-go

@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.019Z
-updated: 2024-04-08T23:19:12.019Z
+date: 2024-04-09T03:22:29.378Z
+updated: 2024-04-10T03:22:29.378Z
 tags: 
   - virtual location change
   - pokemon-go

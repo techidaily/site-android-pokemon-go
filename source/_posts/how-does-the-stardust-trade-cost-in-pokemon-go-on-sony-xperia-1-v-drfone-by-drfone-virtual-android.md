@@ -1,7 +1,7 @@
 ---
 title: How does the stardust trade cost In pokemon go On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-07T23:19:12.076Z
-updated: 2024-04-08T23:19:12.076Z
+date: 2024-04-09T03:22:29.508Z
+updated: 2024-04-10T03:22:29.508Z
 tags: 
   - virtual location change
   - pokemon-go

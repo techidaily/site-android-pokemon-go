@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Sony Xperia 10 V? Fixed | Dr.fone
-date: 2024-04-07T23:19:12.170Z
-updated: 2024-04-08T23:19:12.170Z
+date: 2024-04-09T03:22:29.602Z
+updated: 2024-04-10T03:22:29.602Z
 tags: 
   - virtual location change
   - pokemon-go

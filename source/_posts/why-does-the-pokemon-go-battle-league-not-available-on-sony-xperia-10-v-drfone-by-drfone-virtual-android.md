@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Sony Xperia 10 V | Dr.fone
-date: 2024-04-07T23:19:12.187Z
-updated: 2024-04-08T23:19:12.187Z
+date: 2024-04-09T03:22:29.621Z
+updated: 2024-04-10T03:22:29.621Z
 tags: 
   - virtual location change
   - pokemon-go

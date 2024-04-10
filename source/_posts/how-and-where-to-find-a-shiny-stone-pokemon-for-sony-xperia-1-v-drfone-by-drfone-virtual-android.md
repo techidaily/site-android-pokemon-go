@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Sony Xperia 1 V? | Dr.fone
-date: 2024-04-07T23:19:12.068Z
-updated: 2024-04-08T23:19:12.068Z
+date: 2024-04-09T03:22:29.503Z
+updated: 2024-04-10T03:22:29.503Z
 tags: 
   - virtual location change
   - pokemon-go

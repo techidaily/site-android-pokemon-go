@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.153Z
-updated: 2024-04-08T23:19:12.153Z
+date: 2024-04-09T03:22:29.588Z
+updated: 2024-04-10T03:22:29.588Z
 tags: 
   - virtual location change
   - pokemon-go

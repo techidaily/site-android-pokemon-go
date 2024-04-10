@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-07T23:19:12.189Z
-updated: 2024-04-08T23:19:12.189Z
+date: 2024-04-09T03:22:29.623Z
+updated: 2024-04-10T03:22:29.623Z
 tags: 
   - virtual location change
   - pokemon-go

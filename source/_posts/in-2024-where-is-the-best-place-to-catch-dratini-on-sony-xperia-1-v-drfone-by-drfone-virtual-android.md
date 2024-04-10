@@ -1,7 +1,7 @@
 ---
 title: In 2024, Where Is the Best Place to Catch Dratini On Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.127Z
-updated: 2024-04-08T23:19:12.127Z
+date: 2024-04-09T03:22:29.559Z
+updated: 2024-04-10T03:22:29.559Z
 tags: 
   - virtual location change
   - pokemon-go

@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to Catch the Regional-Located Pokemon For Sony Xperia 10 V | Dr.fone
-date: 2024-04-07T23:19:12.199Z
-updated: 2024-04-08T23:19:12.199Z
+date: 2024-04-09T03:22:29.633Z
+updated: 2024-04-10T03:22:29.633Z
 tags: 
   - virtual location change
   - pokemon-go

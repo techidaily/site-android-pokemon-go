@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.120Z
-updated: 2024-04-08T23:19:12.120Z
+date: 2024-04-09T03:22:29.549Z
+updated: 2024-04-10T03:22:29.549Z
 tags: 
   - virtual location change
   - pokemon-go

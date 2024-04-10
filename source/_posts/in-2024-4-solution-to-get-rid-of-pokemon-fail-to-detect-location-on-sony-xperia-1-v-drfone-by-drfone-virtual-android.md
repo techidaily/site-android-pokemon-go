@@ -1,7 +1,7 @@
 ---
 title: In 2024, 4 solution to get rid of pokemon fail to detect location On Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.090Z
-updated: 2024-04-08T23:19:12.090Z
+date: 2024-04-09T03:22:29.526Z
+updated: 2024-04-10T03:22:29.526Z
 tags: 
   - virtual location change
   - pokemon-go

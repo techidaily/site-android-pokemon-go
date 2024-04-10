@@ -1,7 +1,7 @@
 ---
 title: In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.147Z
-updated: 2024-04-08T23:19:12.147Z
+date: 2024-04-09T03:22:29.581Z
+updated: 2024-04-10T03:22:29.581Z
 tags: 
   - virtual location change
   - pokemon-go

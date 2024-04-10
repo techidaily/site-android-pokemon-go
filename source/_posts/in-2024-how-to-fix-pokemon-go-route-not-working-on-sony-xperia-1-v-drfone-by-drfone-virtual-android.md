@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Fix Pokemon Go Route Not Working On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-07T23:19:12.138Z
-updated: 2024-04-08T23:19:12.138Z
+date: 2024-04-09T03:22:29.571Z
+updated: 2024-04-10T03:22:29.571Z
 tags: 
   - virtual location change
   - pokemon-go

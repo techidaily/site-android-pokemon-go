@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Sony Xperia 10 V | Dr.fone
-date: 2024-04-07T23:19:12.186Z
-updated: 2024-04-08T23:19:12.186Z
+date: 2024-04-09T03:22:29.620Z
+updated: 2024-04-10T03:22:29.620Z
 tags: 
   - virtual location change
   - pokemon-go

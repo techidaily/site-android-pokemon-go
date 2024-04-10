@@ -1,7 +1,7 @@
 ---
 title: Which Pokémon can Evolve with a Moon Stone For Sony Xperia 1 V? | Dr.fone
-date: 2024-04-07T23:19:12.080Z
-updated: 2024-04-08T23:19:12.080Z
+date: 2024-04-09T03:22:29.512Z
+updated: 2024-04-10T03:22:29.512Z
 tags: 
   - virtual location change
   - pokemon-go

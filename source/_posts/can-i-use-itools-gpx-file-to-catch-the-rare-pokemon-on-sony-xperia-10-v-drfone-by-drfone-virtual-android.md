@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Sony Xperia 10 V | Dr.fone
-date: 2024-04-07T23:19:12.169Z
-updated: 2024-04-08T23:19:12.169Z
+date: 2024-04-09T03:22:29.601Z
+updated: 2024-04-10T03:22:29.601Z
 tags: 
   - virtual location change
   - pokemon-go

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.121Z
-updated: 2024-04-08T23:19:12.121Z
+date: 2024-04-09T03:22:29.550Z
+updated: 2024-04-10T03:22:29.550Z
 tags: 
   - virtual location change
   - pokemon-go

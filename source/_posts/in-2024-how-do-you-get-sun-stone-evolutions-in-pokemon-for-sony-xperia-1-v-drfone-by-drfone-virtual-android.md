@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Sony Xperia 1 V? | Dr.fone
-date: 2024-04-07T23:19:12.089Z
-updated: 2024-04-08T23:19:12.089Z
+date: 2024-04-09T03:22:29.525Z
+updated: 2024-04-10T03:22:29.525Z
 tags: 
   - virtual location change
   - pokemon-go

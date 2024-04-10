@@ -1,7 +1,7 @@
 ---
 title: In 2024, Ultimate guide to get the meltan box pokemon go For Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.113Z
-updated: 2024-04-08T23:19:12.113Z
+date: 2024-04-09T03:22:29.540Z
+updated: 2024-04-10T03:22:29.540Z
 tags: 
   - virtual location change
   - pokemon-go

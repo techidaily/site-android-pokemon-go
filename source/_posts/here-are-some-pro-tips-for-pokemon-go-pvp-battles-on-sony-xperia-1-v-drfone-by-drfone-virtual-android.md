@@ -1,7 +1,7 @@
 ---
 title: Here are Some Pro Tips for Pokemon Go PvP Battles On Sony Xperia 1 V | Dr.fone
-date: 2024-04-07T23:19:12.063Z
-updated: 2024-04-08T23:19:12.063Z
+date: 2024-04-09T03:22:29.498Z
+updated: 2024-04-10T03:22:29.498Z
 tags: 
   - virtual location change
   - pokemon-go
