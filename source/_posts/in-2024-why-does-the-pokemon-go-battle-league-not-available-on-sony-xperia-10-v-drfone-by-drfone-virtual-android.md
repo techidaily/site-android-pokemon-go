@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Sony Xperia 10 V | Dr.fone
-date: 2024-04-12T03:09:29.056Z
-updated: 2024-04-13T03:09:29.056Z
+date: 2024-04-30T07:15:17.226Z
+updated: 2024-05-01T07:15:17.226Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -444,3 +444,4 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme GT 5 Pro? | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On iPhone 11 Pro Max</u></a></li>
 </ul></div>
+

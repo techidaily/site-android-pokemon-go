@@ -1,7 +1,7 @@
 ---
 title: List of Pokémon Go Joysticks On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:20.597Z
-updated: 2024-04-13T03:09:20.597Z
+date: 2024-04-30T07:15:16.974Z
+updated: 2024-05-01T07:15:16.974Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -404,3 +404,4 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-oneplus-ace-3-drfone-by-drfone-virtual-android/" ><u>In 2024, List of Pokémon Go Joysticks On OnePlus Ace 3 | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-nokia-g22-drfone-by-drfone-virtual-android/" ><u>In 2024, Hacks to do pokemon go trainer battles For Nokia G22 | Dr.fone</u></a></li>
 </ul></div>
+

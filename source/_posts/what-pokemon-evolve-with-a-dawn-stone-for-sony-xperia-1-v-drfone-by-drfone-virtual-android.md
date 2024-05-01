@@ -1,7 +1,7 @@
 ---
 title: What Pokémon Evolve with A Dawn Stone For Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:20.350Z
-updated: 2024-04-13T03:09:20.350Z
+date: 2024-04-30T07:15:16.920Z
+updated: 2024-05-01T07:15:16.920Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -303,3 +303,4 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-lava-yuva-3-drfone-by-drfone-virtual-android/" ><u>In 2024, What Legendaries Are In Pokemon Platinum On Lava Yuva 3? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-motorola-edge-40-neo-drfone-by-drfone-virtual-android/" ><u>In 2024, What Pokémon Evolve with A Dawn Stone For Motorola Edge 40 Neo? | Dr.fone</u></a></li>
 </ul></div>
+

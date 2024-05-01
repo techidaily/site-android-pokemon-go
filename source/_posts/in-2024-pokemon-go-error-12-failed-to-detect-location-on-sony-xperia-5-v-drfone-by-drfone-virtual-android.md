@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Sony Xperia 5 V? | Dr.fone
-date: 2024-04-12T03:09:47.776Z
-updated: 2024-04-13T03:09:47.776Z
+date: 2024-04-30T07:15:17.446Z
+updated: 2024-05-01T07:15:17.446Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -361,3 +361,4 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-oppo-reno-10-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Oppo Reno 10 5G</u></a></li>
 <li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-on-apple-iphone-14-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID on Apple iPhone 14</u></a></li>
 </ul></div>
+

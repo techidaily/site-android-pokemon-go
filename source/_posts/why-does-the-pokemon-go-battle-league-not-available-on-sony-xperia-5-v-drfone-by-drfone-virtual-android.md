@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:38.031Z
-updated: 2024-04-13T03:09:38.031Z
+date: 2024-04-30T07:15:17.334Z
+updated: 2024-05-01T07:15:17.334Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -441,3 +441,4 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 <li><a href="https://phone-solutions.techidaily.com/error-solved-excel-2010-file-is-not-in-recognizable-format-by-stellar-guide/"><u>Error Solved Excel 2010 file is not in recognizable format</u></a></li>
 <li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-a38-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo A38 Devices | Dr.fone</u></a></li>
 </ul></div>
+

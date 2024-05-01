@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Asus ROG Phone 8 | Dr.fone
-date: 2024-04-12T03:10:51.903Z
-updated: 2024-04-13T03:10:51.903Z
+date: 2024-04-30T07:15:18.246Z
+updated: 2024-05-01T07:15:18.246Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -389,3 +389,4 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-12-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme 12 5G? Fixed | Dr.fone</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your OnePlus 12 | Dr.fone</u></a></li>
 </ul></div>
+

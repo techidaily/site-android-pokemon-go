@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:42.892Z
-updated: 2024-04-13T03:09:42.892Z
+date: 2024-04-30T07:15:17.374Z
+updated: 2024-05-01T07:15:17.374Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -365,3 +365,4 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://phone-solutions.techidaily.com/6-things-we-can-do-to-save-a-water-damaged-iphone-15-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>6 Things We Can Do To Save A Water Damaged iPhone 15 | Stellar</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/3-easy-methods-to-unlock-icloud-locked-apple-iphone-seipadipod-by-drfone-ios/"><u>3 Easy Methods to Unlock iCloud Locked Apple iPhone SE/iPad/iPod</u></a></li>
 </ul></div>
+

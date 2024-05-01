@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Sony Xperia 5 V? | Dr.fone
-date: 2024-04-12T03:09:40.097Z
-updated: 2024-04-13T03:09:40.097Z
+date: 2024-04-30T07:15:17.352Z
+updated: 2024-05-01T07:15:17.352Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -406,3 +406,4 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-nokia-c22-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Nokia C22 Phone Network-Ready</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/how-to-access-your-apple-iphone-15-pro-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>How to Access Your Apple iPhone 15 Pro When You Forget the Passcode? | Dr.fone</u></a></li>
 </ul></div>
+

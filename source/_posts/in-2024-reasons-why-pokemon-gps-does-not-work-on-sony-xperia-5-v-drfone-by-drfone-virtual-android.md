@@ -1,7 +1,7 @@
 ---
 title: In 2024, Reasons why Pokémon GPS does not Work On Sony Xperia 5 V? | Dr.fone
-date: 2024-04-12T03:09:47.942Z
-updated: 2024-04-13T03:09:47.942Z
+date: 2024-04-30T07:15:17.447Z
+updated: 2024-05-01T07:15:17.447Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -384,3 +384,4 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-itel-p40plus-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Itel P40+</u></a></li>
 <li><a href="https://techidaily.com/how-to-free-up-apple-iphone-xs-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up Apple iPhone XS Space | Dr.fone</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:20.818Z
-updated: 2024-04-13T03:09:20.818Z
+date: 2024-04-30T07:15:16.996Z
+updated: 2024-05-01T07:15:16.996Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -561,3 +561,4 @@ To wrap up, Pokémon GO PvP leagues excitedly produce rewards and rankings. To g
 <li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-nokia-c02-drfone-by-drfone-virtual-android/" ><u>How and Where to Find a Shiny Stone Pokémon For Nokia C02? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nokia-c02-drfone-by-drfone-virtual-android/" ><u>How to get the dragon scale and evolution-enabled pokemon On Nokia C02? | Dr.fone</u></a></li>
 </ul></div>
+

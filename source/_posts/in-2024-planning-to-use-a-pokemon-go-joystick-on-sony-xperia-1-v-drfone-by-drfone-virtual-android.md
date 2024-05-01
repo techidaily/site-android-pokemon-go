@@ -1,7 +1,7 @@
 ---
 title: In 2024, Planning to Use a Pokemon Go Joystick on Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:20.872Z
-updated: 2024-04-13T03:09:20.872Z
+date: 2024-04-30T07:15:17.014Z
+updated: 2024-05-01T07:15:17.014Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -353,3 +353,4 @@ This is a desktop-based spoofing tool which can help you fake your location. It 
 <li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-xiaomi-redmi-note-12r-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>8 Ultimate Fixes for Google Play Your Xiaomi Redmi Note 12R Isnt Compatible | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-realme-11-proplus-phone-by-drfone-android/" ><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Realme 11 Pro+ Phone</u></a></li>
 </ul></div>
+

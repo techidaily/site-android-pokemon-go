@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Sony Xperia 10 V? | Dr.fone
-date: 2024-04-12T03:09:30.398Z
-updated: 2024-04-13T03:09:30.398Z
+date: 2024-04-30T07:15:17.251Z
+updated: 2024-05-01T07:15:17.251Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -414,3 +414,4 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Realme 11 Pro | Dr.fone</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y28-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo Y28 5G PIN Code/Pattern Lock/Password</u></a></li>
 </ul></div>
+

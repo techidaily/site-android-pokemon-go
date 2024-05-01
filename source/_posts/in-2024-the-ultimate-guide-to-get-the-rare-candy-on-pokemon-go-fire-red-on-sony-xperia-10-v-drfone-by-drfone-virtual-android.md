@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Sony Xperia 10 V | Dr.fone
-date: 2024-04-12T03:09:28.407Z
-updated: 2024-04-13T03:09:28.407Z
+date: 2024-04-30T07:15:17.220Z
+updated: 2024-05-01T07:15:17.220Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -420,3 +420,4 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 <li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y100-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y100 5G Location by Number | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Lava Blaze 2 | Dr.fone</u></a></li>
 </ul></div>
+

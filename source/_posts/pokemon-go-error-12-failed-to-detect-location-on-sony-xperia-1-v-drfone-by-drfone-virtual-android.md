@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:20.569Z
-updated: 2024-04-13T03:09:20.569Z
+date: 2024-04-30T07:15:16.970Z
+updated: 2024-05-01T07:15:16.970Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -450,3 +450,4 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 <li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/" ><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Motorola Moto G34 5G | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-nokia-130-music-drfone-by-drfone-virtual-android/" ><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Nokia 130 Music | Dr.fone</u></a></li>
 </ul></div>
+

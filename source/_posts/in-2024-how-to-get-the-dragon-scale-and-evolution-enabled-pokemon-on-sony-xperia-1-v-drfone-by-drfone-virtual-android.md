@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:21.168Z
-updated: 2024-04-13T03:09:21.168Z
+date: 2024-04-30T07:15:17.063Z
+updated: 2024-05-01T07:15:17.063Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -346,3 +346,4 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-tecno-camon-30-pro-5g-devices-drfone-by-drfone-virtual/" ><u>In 2024, For People Wanting to Mock GPS on Tecno Camon 30 Pro 5G Devices | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/" ><u>In 2024, How to Watch Hulu Outside US On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
 </ul></div>
+

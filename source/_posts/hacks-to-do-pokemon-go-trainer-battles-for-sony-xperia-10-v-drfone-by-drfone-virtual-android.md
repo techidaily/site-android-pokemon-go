@@ -1,7 +1,7 @@
 ---
 title: Hacks to do pokemon go trainer battles For Sony Xperia 10 V | Dr.fone
-date: 2024-04-12T03:09:24.411Z
-updated: 2024-04-13T03:09:24.411Z
+date: 2024-04-30T07:15:17.176Z
+updated: 2024-05-01T07:15:17.176Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -319,3 +319,4 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 <li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Vivo X100? | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/recover-your-photos-after-f5-pro-5g-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after F5 Pro 5G has been deleted.</u></a></li>
 </ul></div>
+

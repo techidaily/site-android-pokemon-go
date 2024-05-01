@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Sony Xperia 10 V | Dr.fone
-date: 2024-04-12T03:09:28.891Z
-updated: 2024-04-13T03:09:28.891Z
+date: 2024-04-30T07:15:17.224Z
+updated: 2024-05-01T07:15:17.224Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -376,3 +376,4 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-infinix-hot-30-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Infinix Hot 30 5G?</u></a></li>
 </ul></div>
+

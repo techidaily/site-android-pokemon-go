@@ -1,7 +1,7 @@
 ---
 title: In 2024, Planning to Use a Pokemon Go Joystick on Sony Xperia 10 V? | Dr.fone
-date: 2024-04-12T03:09:25.048Z
-updated: 2024-04-13T03:09:25.048Z
+date: 2024-04-30T07:15:17.182Z
+updated: 2024-05-01T07:15:17.182Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -425,3 +425,4 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 <li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-note-12-pro-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Xiaomi Redmi Note 12 Pro 5G Phone Pattern Lock without Factory Reset</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-infinix-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Infinix .</u></a></li>
 </ul></div>
+

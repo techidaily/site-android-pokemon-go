@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:35.260Z
-updated: 2024-04-13T03:09:35.260Z
+date: 2024-04-30T07:15:17.288Z
+updated: 2024-05-01T07:15:17.288Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -388,3 +388,4 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
 <li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-oppo-a59-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Oppo A59 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
 <li><a href="https://iphone-location.techidaily.com/in-2024-how-to-enable-disable-and-change-safari-location-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Enable, Disable, and Change Safari Location on Apple iPhone SE | Dr.fone</u></a></li>
 </ul></div>
+

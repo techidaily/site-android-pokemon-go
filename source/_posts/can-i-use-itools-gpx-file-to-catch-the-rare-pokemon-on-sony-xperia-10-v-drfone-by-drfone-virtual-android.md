@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Sony Xperia 10 V | Dr.fone
-date: 2024-04-12T03:09:21.582Z
-updated: 2024-04-13T03:09:21.582Z
+date: 2024-04-30T07:15:17.112Z
+updated: 2024-05-01T07:15:17.112Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -423,3 +423,4 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-motorola-moto-g23-to-roku-drfone-by-drfone-android/" ><u>In 2024, 3 Methods to Mirror Motorola Moto G23 to Roku | Dr.fone</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-vivo-s17-pro-with-and-without-jailbreak-drfone-by-drfone-virtual-android/" ><u>Solutions to Spy on Vivo S17 Pro with and without jailbreak | Dr.fone</u></a></li>
 </ul></div>
+

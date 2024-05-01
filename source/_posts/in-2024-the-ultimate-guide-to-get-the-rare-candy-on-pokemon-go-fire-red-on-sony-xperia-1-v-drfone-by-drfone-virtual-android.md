@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:21.080Z
-updated: 2024-04-13T03:09:21.080Z
+date: 2024-04-30T07:15:17.040Z
+updated: 2024-05-01T07:15:17.040Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -347,3 +347,4 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-c51-phone-without-pin-by-drfone-android/" ><u>How to Unlock Poco C51 Phone without PIN</u></a></li>
 <li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-se-2022-location-on-twitter-drfone-by-drfone-virtual-ios/" ><u>How to Change your Apple iPhone SE (2022) Location on Twitter | Dr.fone</u></a></li>
 </ul></div>
+

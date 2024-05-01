@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:20.521Z
-updated: 2024-04-13T03:09:20.521Z
+date: 2024-04-30T07:15:16.966Z
+updated: 2024-05-01T07:15:16.966Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -460,3 +460,4 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-motorola-g24-power-drfone-by-drfone-virtual-android/" ><u>Can I use iTools gpx file to catch the rare Pokemon On Motorola G24 Power | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-lava-yuva-3-drfone-by-drfone-virtual-android/" ><u>In 2024, Why does the pokemon go battle league not available On Lava Yuva 3 | Dr.fone</u></a></li>
 </ul></div>
+

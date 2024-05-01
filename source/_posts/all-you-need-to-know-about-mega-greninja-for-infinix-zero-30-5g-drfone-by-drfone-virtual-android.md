@@ -454,3 +454,4 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/" ><u>All You Need To Know About Mega Greninja For Sony Xperia 1 V | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-lava-yuva-2-pro-drfone-by-drfone-virtual-android/" ><u>What Pokémon Evolve with A Dawn Stone For Lava Yuva 2 Pro? | Dr.fone</u></a></li>
 </ul></div>
+

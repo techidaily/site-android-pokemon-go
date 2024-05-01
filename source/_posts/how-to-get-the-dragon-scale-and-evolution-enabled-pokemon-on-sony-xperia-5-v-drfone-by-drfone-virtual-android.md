@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Sony Xperia 5 V? | Dr.fone
-date: 2024-04-12T03:09:38.350Z
-updated: 2024-04-13T03:09:38.350Z
+date: 2024-04-30T07:15:17.337Z
+updated: 2024-05-01T07:15:17.337Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -333,3 +333,4 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 <li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-y78plus-t1-edition-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo Y78+ (T1) Edition</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-vivo-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Vivo Phone With/Without IMEI Number</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: In 2024, List of Pokémon Go Joysticks On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:21.229Z
-updated: 2024-04-13T03:09:21.229Z
+date: 2024-04-30T07:15:17.070Z
+updated: 2024-05-01T07:15:17.070Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -483,3 +483,4 @@ There you go! I’m sure that after reading this post, you would be able to know
 <li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-realme-11-5g-for-mobile-legends-drfone-by-drfone-virtual-android/" ><u>How To Fake GPS On Realme 11 5G For Mobile Legends? | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/unlock-your-disabled-iphone-12-pro-max-without-itunes-in-5-ways-by-drfone-ios/" ><u>Unlock Your Disabled iPhone 12 Pro Max Without iTunes in 5 Ways</u></a></li>
 </ul></div>
+

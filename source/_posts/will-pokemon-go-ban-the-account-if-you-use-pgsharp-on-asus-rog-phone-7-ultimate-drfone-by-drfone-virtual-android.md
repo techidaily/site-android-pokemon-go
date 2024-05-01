@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Asus ROG Phone 7 Ultimate | Dr.fone
-date: 2024-04-12T03:10:13.780Z
-updated: 2024-04-13T03:10:13.780Z
+date: 2024-04-30T07:15:17.740Z
+updated: 2024-05-01T07:15:17.740Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -385,3 +385,4 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Realme V30? | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-google-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Google using Video Repair Utility on Mac?</u></a></li>
 </ul></div>
+

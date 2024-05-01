@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:51.474Z
-updated: 2024-04-13T03:09:51.474Z
+date: 2024-04-30T07:15:17.479Z
+updated: 2024-05-01T07:15:17.479Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -512,3 +512,4 @@ In conclusion, the pursuit of capturing a **Snorlax Pokémon sleeping** in Poké
 <li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-call-history-from-htc-u23-by-fonelab-android-recover-call-logs/"><u>Easy steps to recover deleted call history from HTC U23</u></a></li>
 <li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-m54-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy M54 5G Phone FRP Lock</u></a></li>
 </ul></div>
+

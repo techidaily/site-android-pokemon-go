@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-12T03:09:21.777Z
-updated: 2024-04-13T03:09:21.777Z
+date: 2024-04-30T07:15:17.146Z
+updated: 2024-05-01T07:15:17.146Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -345,3 +345,4 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/" ><u>Preparation to Beat Giovani in Pokemon Go For Tecno Spark 20 Pro | Dr.fone</u></a></li>
 <li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-samsung-galaxy-a23-5g-drfone-by-drfone-virtual/" ><u>In 2024, How to Fake GPS on Android without Mock Location For your Samsung Galaxy A23 5G | Dr.fone</u></a></li>
 </ul></div>
+

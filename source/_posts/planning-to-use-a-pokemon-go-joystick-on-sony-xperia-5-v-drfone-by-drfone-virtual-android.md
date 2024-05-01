@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Sony Xperia 5 V? | Dr.fone
-date: 2024-04-12T03:09:34.283Z
-updated: 2024-04-13T03:09:34.283Z
+date: 2024-04-30T07:15:17.281Z
+updated: 2024-05-01T07:15:17.281Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -387,3 +387,4 @@ In conclusion, the pursuit of capturing a **Snorlax Pokémon sleeping** in Poké
 <li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-sync-contacts-from-apple-iphone-15-plus-to-ipad-easily-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Sync Contacts from Apple iPhone 15 Plus to iPad Easily | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-apple-iphone-xs-without-a-passcode-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your Apple iPhone XS Without a Passcode</u></a></li>
 </ul></div>
+

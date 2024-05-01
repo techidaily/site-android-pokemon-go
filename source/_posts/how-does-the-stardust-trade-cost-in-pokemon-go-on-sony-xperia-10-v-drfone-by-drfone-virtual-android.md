@@ -1,7 +1,7 @@
 ---
 title: How does the stardust trade cost In pokemon go On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-12T03:09:24.089Z
-updated: 2024-04-13T03:09:24.089Z
+date: 2024-04-30T07:15:17.173Z
+updated: 2024-05-01T07:15:17.173Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -336,3 +336,4 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-lava-yuva-2-pro-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Lava Yuva 2 Pro FRP</u></a></li>
 <li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Motorola Moto G 5G (2023) | Dr.fone</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:20.845Z
-updated: 2024-04-13T03:09:20.845Z
+date: 2024-04-30T07:15:17.011Z
+updated: 2024-05-01T07:15:17.011Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -425,3 +425,4 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-oppo-find-x7-drfone-by-drfone-virtual-android/" ><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Oppo Find X7 | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/best-nubia-z50-ultra-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/" ><u>Best Nubia Z50 Ultra Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Sony Xperia 10 V | Dr.fone
-date: 2024-04-12T03:09:21.722Z
-updated: 2024-04-13T03:09:21.722Z
+date: 2024-04-30T07:15:17.140Z
+updated: 2024-05-01T07:15:17.140Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -513,3 +513,4 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-realme-narzo-60-pro-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/" ><u>Change Location on Yik Yak For your Realme Narzo 60 Pro 5G to Enjoy More Fun | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/how-to-reset-oppo-find-x7-ultra-without-the-home-button-drfone-by-drfone-reset-android-reset-android/" ><u>How to Reset Oppo Find X7 Ultra Without the Home Button | Dr.fone</u></a></li>
 </ul></div>
+

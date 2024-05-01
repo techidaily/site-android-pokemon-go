@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:20.684Z
-updated: 2024-04-13T03:09:20.684Z
+date: 2024-04-30T07:15:16.981Z
+updated: 2024-05-01T07:15:16.981Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -335,3 +335,4 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-moto-g14-drfone-by-drfone-virtual-android/" ><u>How to get the dragon scale and evolution-enabled pokemon On Motorola Moto G14? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/" ><u>3 Ways for Android Pokemon Go Spoofing On Motorola Edge+ (2023) | Dr.fone</u></a></li>
 </ul></div>
+

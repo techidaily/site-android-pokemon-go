@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Fix Pokemon Go Route Not Working On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-12T03:09:31.196Z
-updated: 2024-04-13T03:09:31.196Z
+date: 2024-04-30T07:15:17.258Z
+updated: 2024-05-01T07:15:17.258Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -445,3 +445,4 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-infinix-note-30-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Infinix Note 30 | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-on-your-iphone-13-pro-max-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled On your iPhone 13 Pro Max? How to Fix</u></a></li>
 </ul></div>
+

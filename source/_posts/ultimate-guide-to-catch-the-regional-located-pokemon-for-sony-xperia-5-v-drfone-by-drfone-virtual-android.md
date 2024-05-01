@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to Catch the Regional-Located Pokemon For Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:39.944Z
-updated: 2024-04-13T03:09:39.944Z
+date: 2024-04-30T07:15:17.350Z
+updated: 2024-05-01T07:15:17.350Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -494,3 +494,4 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 <li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-poco-m6-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Poco M6 5G | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-realme-gt-3-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Realme GT 3 | Dr.fone</u></a></li>
 </ul></div>
+

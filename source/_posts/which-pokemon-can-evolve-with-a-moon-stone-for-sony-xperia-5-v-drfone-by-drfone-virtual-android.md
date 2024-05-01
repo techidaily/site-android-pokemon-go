@@ -1,7 +1,7 @@
 ---
 title: Which Pokémon can Evolve with a Moon Stone For Sony Xperia 5 V? | Dr.fone
-date: 2024-04-12T03:09:42.721Z
-updated: 2024-04-13T03:09:42.721Z
+date: 2024-04-30T07:15:17.373Z
+updated: 2024-05-01T07:15:17.373Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -439,3 +439,4 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-apple-iphone-8-plus-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone 8 Plus With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-iphone-xs-max-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From iPhone XS Max? 5 Tips You Must Know</u></a></li>
 </ul></div>
+

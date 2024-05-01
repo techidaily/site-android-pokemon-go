@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:21.451Z
-updated: 2024-04-13T03:09:21.451Z
+date: 2024-04-30T07:15:17.097Z
+updated: 2024-05-01T07:15:17.097Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -521,3 +521,4 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 <li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-narzo-n53-drfone-by-drfone-virtual-android/" ><u>3 Ways for Android Pokemon Go Spoofing On Realme Narzo N53 | Dr.fone</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-iphone-6-drfone-by-drfone-ios/" ><u>In 2024, Guide on How To Change Your Apple ID Email Address On iPhone 6 | Dr.fone</u></a></li>
 </ul></div>
+

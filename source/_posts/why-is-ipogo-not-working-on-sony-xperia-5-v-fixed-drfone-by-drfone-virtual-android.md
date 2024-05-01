@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Sony Xperia 5 V? Fixed | Dr.fone
-date: 2024-04-12T03:09:35.418Z
-updated: 2024-04-13T03:09:35.418Z
+date: 2024-04-30T07:15:17.289Z
+updated: 2024-05-01T07:15:17.289Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -343,3 +343,4 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>10 Best Fake GPS Location Spoofers for Apple iPhone 15 Pro | Dr.fone</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-a1x-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo A1x 5G Phone</u></a></li>
 </ul></div>
+

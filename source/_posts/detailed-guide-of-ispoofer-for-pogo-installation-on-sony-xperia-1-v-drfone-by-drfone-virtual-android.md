@@ -1,7 +1,7 @@
 ---
 title: Detailed guide of ispoofer for pogo installation On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:20.406Z
-updated: 2024-04-13T03:09:20.407Z
+date: 2024-04-30T07:15:16.941Z
+updated: 2024-05-01T07:15:16.941Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -428,3 +428,4 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 <li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-nokia-xr21-drfone-by-drfone-virtual-android/" ><u>How can I get more stardust in pokemon go On Nokia XR21? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-c210-drfone-by-drfone-virtual-android/" ><u>Ultimate Guide to Catch the Regional-Located Pokemon For Nokia C210 | Dr.fone</u></a></li>
 </ul></div>
+

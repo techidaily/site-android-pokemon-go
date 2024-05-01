@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:41.864Z
-updated: 2024-04-13T03:09:41.864Z
+date: 2024-04-30T07:15:17.366Z
+updated: 2024-05-01T07:15:17.366Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -439,3 +439,4 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://techidaily.com/three-solutions-to-hard-reset-tecno-camon-20-premier-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-oneplus-nord-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on OnePlus Nord 3 5G | Dr.fone</u></a></li>
 </ul></div>
+

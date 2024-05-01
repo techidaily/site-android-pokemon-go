@@ -1,7 +1,7 @@
 ---
 title: How Can I Catch the Regional Pokémon without Traveling On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:20.759Z
-updated: 2024-04-13T03:09:20.759Z
+date: 2024-04-30T07:15:16.990Z
+updated: 2024-05-01T07:15:16.990Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -418,3 +418,4 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-nokia-g42-5g-drfone-by-drfone-virtual-android/" ><u>In 2024, Reasons why Pokémon GPS does not Work On Nokia G42 5G? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-motorola-g24-power-drfone-by-drfone-virtual-android/" ><u>In 2024, Hacks to do pokemon go trainer battles For Motorola G24 Power | Dr.fone</u></a></li>
 </ul></div>
+

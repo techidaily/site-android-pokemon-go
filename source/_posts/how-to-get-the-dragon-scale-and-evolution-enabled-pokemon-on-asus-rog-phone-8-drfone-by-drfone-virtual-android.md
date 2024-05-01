@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Asus ROG Phone 8? | Dr.fone
-date: 2024-04-12T03:10:52.710Z
-updated: 2024-04-13T03:10:52.710Z
+date: 2024-04-30T07:15:18.251Z
+updated: 2024-05-01T07:15:18.251Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -453,3 +453,4 @@ There you go! By now, you would be able to implement these spoofing Pokemon Go t
 <li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-15-plus-passcode-screen-by-drfone-ios/"><u>How to Unlock Apple iPhone 15 Plus Passcode Screen?</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-m34-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy M34 5G Phone without Google Account?</u></a></li>
 </ul></div>
+

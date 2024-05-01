@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:21.146Z
-updated: 2024-04-13T03:09:21.146Z
+date: 2024-04-30T07:15:17.061Z
+updated: 2024-05-01T07:15:17.061Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -382,3 +382,4 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-a79-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/" ><u>In 2024, How to Transfer Data from Oppo A79 5G to BlackBerry | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/" ><u>How to Fix Pokemon Go Route Not Working On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
 </ul></div>
+

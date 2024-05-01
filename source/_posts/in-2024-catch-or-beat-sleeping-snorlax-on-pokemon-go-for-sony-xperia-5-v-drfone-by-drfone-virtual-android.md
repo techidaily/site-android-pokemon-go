@@ -1,7 +1,7 @@
 ---
 title: In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:50.944Z
-updated: 2024-04-13T03:09:50.944Z
+date: 2024-04-30T07:15:17.474Z
+updated: 2024-05-01T07:15:17.474Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -438,3 +438,4 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-infinix-hot-40-pro-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Infinix Hot 40 Pro to Your PC/Mac | Dr.fone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-lenovo-thinkphone-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Lenovo ThinkPhone to iPhone | Dr.fone</u></a></li>
 </ul></div>
+

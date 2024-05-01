@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:21.341Z
-updated: 2024-04-13T03:09:21.341Z
+date: 2024-04-30T07:15:17.083Z
+updated: 2024-05-01T07:15:17.083Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -370,3 +370,4 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-redmi-13c-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/" ><u>How to Transfer Photos from Xiaomi Redmi 13C to Laptop Without USB | Dr.fone</u></a></li>
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-11x-5g-fixed-drfone-by-drfone-virtual-android/" ><u>In 2024, Why is iPogo not working On Realme 11X 5G? Fixed | Dr.fone</u></a></li>
 </ul></div>
+

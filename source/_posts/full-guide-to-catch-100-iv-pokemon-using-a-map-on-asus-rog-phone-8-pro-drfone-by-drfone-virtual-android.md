@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Asus ROG Phone 8 Pro | Dr.fone
-date: 2024-04-12T03:10:32.909Z
-updated: 2024-04-13T03:10:32.909Z
+date: 2024-04-30T07:15:17.952Z
+updated: 2024-05-01T07:15:17.952Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -407,3 +407,4 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 <li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-from-your-apple-iphone-14-pro-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card from Your Apple iPhone 14 Pro Apple ID and Apple Pay</u></a></li>
 <li><a href="https://techidaily.com/how-to-perform-hard-reset-on-vivo-y78t-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Vivo Y78t? | Dr.fone</u></a></li>
 </ul></div>
+

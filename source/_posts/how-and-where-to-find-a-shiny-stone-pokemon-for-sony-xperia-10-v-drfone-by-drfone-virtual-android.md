@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Sony Xperia 10 V? | Dr.fone
-date: 2024-04-12T03:09:23.188Z
-updated: 2024-04-13T03:09:23.188Z
+date: 2024-04-30T07:15:17.168Z
+updated: 2024-05-01T07:15:17.168Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -352,3 +352,4 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-xiaomi-redmi-k70e-by-drfone-android/"><u>In 2024, How to Bypass FRP on Xiaomi Redmi K70E?</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-infinix-note-30-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Infinix Note 30 5G Mirror Screen to PC? | Dr.fone</u></a></li>
 </ul></div>
+

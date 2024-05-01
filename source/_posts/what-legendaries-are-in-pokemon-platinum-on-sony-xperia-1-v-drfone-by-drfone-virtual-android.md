@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:20.725Z
-updated: 2024-04-13T03:09:20.725Z
+date: 2024-04-30T07:15:16.986Z
+updated: 2024-05-01T07:15:16.986Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -371,3 +371,4 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-meizu-21-pro-drfone-by-drfone-virtual-android/" ><u>In 2024, iPogo will be the new iSpoofer On Meizu 21 Pro? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-motorola-moto-e13-drfone-by-drfone-virtual-android/" ><u>In 2024, Additional Tips About Sinnoh Stone For Motorola Moto E13 | Dr.fone</u></a></li>
 </ul></div>
+

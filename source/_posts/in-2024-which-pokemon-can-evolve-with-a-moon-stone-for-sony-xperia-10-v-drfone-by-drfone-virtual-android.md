@@ -1,7 +1,7 @@
 ---
 title: In 2024, Which Pokémon can Evolve with a Moon Stone For Sony Xperia 10 V? | Dr.fone
-date: 2024-04-12T03:09:33.790Z
-updated: 2024-04-13T03:09:33.790Z
+date: 2024-04-30T07:15:17.276Z
+updated: 2024-05-01T07:15:17.276Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -470,3 +470,4 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://location-social.techidaily.com/in-2024-does-oneplus-11r-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does OnePlus 11R Have Find My Friends? | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Realme GT Neo 5 | Dr.fone</u></a></li>
 </ul></div>
+

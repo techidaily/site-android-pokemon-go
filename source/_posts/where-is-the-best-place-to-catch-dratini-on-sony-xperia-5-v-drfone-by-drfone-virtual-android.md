@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:38.503Z
-updated: 2024-04-13T03:09:38.503Z
+date: 2024-04-30T07:15:17.338Z
+updated: 2024-05-01T07:15:17.338Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -339,3 +339,4 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-nokia-c02-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Nokia C02</u></a></li>
 <li><a href="https://techidaily.com/hard-reset-lava-blaze-2-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Lava Blaze 2 in 3 Efficient Ways | Dr.fone</u></a></li>
 </ul></div>
+

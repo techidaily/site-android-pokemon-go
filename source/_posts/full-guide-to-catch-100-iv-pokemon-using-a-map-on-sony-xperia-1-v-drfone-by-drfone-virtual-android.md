@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:20.493Z
-updated: 2024-04-13T03:09:20.493Z
+date: 2024-04-30T07:15:16.962Z
+updated: 2024-05-01T07:15:16.962Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -405,3 +405,4 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-lava-storm-5g-fixed-drfone-by-drfone-virtual-android/" ><u>In 2024, Why is iPogo not working On Lava Storm 5G? Fixed | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-motorola-defy-2-drfone-by-drfone-virtual-android/" ><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Motorola Defy 2 | Dr.fone</u></a></li>
 </ul></div>
+

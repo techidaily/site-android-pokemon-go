@@ -1,7 +1,7 @@
 ---
 title: In 2024, Planning to Use a Pokemon Go Joystick on Sony Xperia 5 V? | Dr.fone
-date: 2024-04-12T03:09:43.219Z
-updated: 2024-04-13T03:09:43.219Z
+date: 2024-04-30T07:15:17.377Z
+updated: 2024-05-01T07:15:17.377Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -340,3 +340,4 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 <li><a href="https://techidaily.com/full-guide-to-hard-reset-your-xiaomi-redmi-a2plus-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-xiaomi-redmi-note-12-4g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Xiaomi Redmi Note 12 4G Bypass FRP Tools for PC That Actually Work</u></a></li>
 </ul></div>
+

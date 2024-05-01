@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:47.085Z
-updated: 2024-04-13T03:09:47.085Z
+date: 2024-04-30T07:15:17.427Z
+updated: 2024-05-01T07:15:17.427Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -398,3 +398,4 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-honor-magic-6-lite-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Honor Magic 6 Lite? | Dr.fone</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-itel-p40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Itel P40 | Dr.fone</u></a></li>
 </ul></div>
+

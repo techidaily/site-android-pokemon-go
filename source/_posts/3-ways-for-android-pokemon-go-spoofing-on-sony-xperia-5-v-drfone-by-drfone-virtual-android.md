@@ -1,7 +1,7 @@
 ---
 title: 3 Ways for Android Pokemon Go Spoofing On Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:40.267Z
-updated: 2024-04-13T03:09:40.267Z
+date: 2024-04-30T07:15:17.353Z
+updated: 2024-05-01T07:15:17.353Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -379,3 +379,4 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-realme-note-50-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Realme Note 50 and Browser | Dr.fone</u></a></li>
 <li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor X50 GT | Dr.fone</u></a></li>
 </ul></div>
+

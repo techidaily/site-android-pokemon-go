@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Sony Xperia 1 V? | Dr.fone
-date: 2024-04-12T03:09:20.305Z
-updated: 2024-04-13T03:09:20.305Z
+date: 2024-04-30T07:15:16.916Z
+updated: 2024-05-01T07:15:16.916Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -289,3 +289,4 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/" ><u>Full Guide to Catch 100 IV Pokémon Using a Map On Lava Yuva 2 Pro | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/" ><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Motorola Moto G84 5G | Dr.fone</u></a></li>
 </ul></div>
+

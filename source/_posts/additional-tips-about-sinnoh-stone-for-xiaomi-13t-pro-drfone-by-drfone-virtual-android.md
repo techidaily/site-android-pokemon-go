@@ -351,3 +351,4 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-lava-storm-5g-drfone-by-drfone-virtual-android/" ><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Storm 5G | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-lava-blaze-2-drfone-by-drfone-virtual-android/" ><u>Why does the pokemon go battle league not available On Lava Blaze 2 | Dr.fone</u></a></li>
 </ul></div>
+

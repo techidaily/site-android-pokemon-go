@@ -1,7 +1,7 @@
 ---
 title: Here are Some Pro Tips for Pokemon Go PvP Battles On Sony Xperia 10 V | Dr.fone
-date: 2024-04-12T03:09:22.545Z
-updated: 2024-04-13T03:09:22.545Z
+date: 2024-04-30T07:15:17.163Z
+updated: 2024-05-01T07:15:17.163Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -404,3 +404,4 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-lava-agni-2-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Lava Agni 2 5G to Other Android devices | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-realme-gt-neo-5-se-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Realme GT Neo 5 SE to Roku | Dr.fone</u></a></li>
 </ul></div>
+

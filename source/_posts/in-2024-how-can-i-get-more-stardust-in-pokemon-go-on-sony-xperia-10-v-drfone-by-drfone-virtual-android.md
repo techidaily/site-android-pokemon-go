@@ -1,7 +1,7 @@
 ---
 title: In 2024, How can I get more stardust in pokemon go On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-12T03:09:33.143Z
-updated: 2024-04-13T03:09:33.143Z
+date: 2024-04-30T07:15:17.271Z
+updated: 2024-05-01T07:15:17.271Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -446,3 +446,4 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-iphone-15-pro-max-with-or-without-password-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on iPhone 15 Pro Max With or Without Password | Dr.fone</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-xiaomi-redmi-note-12-pro-5g-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Xiaomi Redmi Note 12 Pro 5G</u></a></li>
 </ul></div>
+

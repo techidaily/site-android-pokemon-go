@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Sony Xperia 5 V | Dr.fone
-date: 2024-04-12T03:09:38.192Z
-updated: 2024-04-13T03:09:38.192Z
+date: 2024-04-30T07:15:17.335Z
+updated: 2024-05-01T07:15:17.335Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -575,3 +575,4 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 <li><a href="https://howto.techidaily.com/authentication-error-occurred-on-realme-12plus-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Realme 12+ 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/how-to-change-realme-narzo-60x-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Realme Narzo 60x 5G Lock Screen Clock in Seconds</u></a></li>
 </ul></div>
+

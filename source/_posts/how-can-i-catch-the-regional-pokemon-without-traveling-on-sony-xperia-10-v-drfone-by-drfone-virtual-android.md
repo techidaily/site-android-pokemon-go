@@ -1,7 +1,7 @@
 ---
 title: How Can I Catch the Regional Pokémon without Traveling On Sony Xperia 10 V | Dr.fone
-date: 2024-04-12T03:09:22.868Z
-updated: 2024-04-13T03:09:22.868Z
+date: 2024-04-30T07:15:17.166Z
+updated: 2024-05-01T07:15:17.166Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -469,3 +469,4 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-14-pro-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 14 Pro without Data Loss? | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/4-ways-to-unlock-iphone-11-pro-to-use-usb-accessories-without-passcode-by-drfone-ios/"><u>4 Ways to Unlock iPhone 11 Pro to Use USB Accessories Without Passcode</u></a></li>
 </ul></div>
+

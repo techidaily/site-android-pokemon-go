@@ -1,7 +1,7 @@
 ---
 title: Here are Some Pro Tips for Pokemon Go PvP Battles On Sony Xperia 1 V | Dr.fone
-date: 2024-04-12T03:09:20.736Z
-updated: 2024-04-13T03:09:20.736Z
+date: 2024-04-30T07:15:16.987Z
+updated: 2024-05-01T07:15:16.987Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -433,3 +433,4 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nokia-c12-drfone-by-drfone-virtual-android/" ><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Nokia C12 | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oneplus-11r-drfone-by-drfone-virtual-android/" ><u>Unova Stone Pokémon Go Evolution List and How Catch Them For OnePlus 11R | Dr.fone</u></a></li>
 </ul></div>
+
