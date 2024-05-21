@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Sony Xperia 5 V? | Dr.fone
-date: 2024-04-30T07:15:17.452Z
-updated: 2024-05-01T07:15:17.452Z
+date: 2024-05-20T04:41:46.750Z
+updated: 2024-05-21T04:41:46.750Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -462,4 +462,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-on-iphone-6-plus-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock On iPhone 6 Plus Online</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-vivo-y200-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Vivo Y200 Phone Now with These Tips</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Hacks to do pokemon go trainer battles For Sony Xperia 5 V | Dr.fone
-date: 2024-04-30T07:15:17.372Z
-updated: 2024-05-01T07:15:17.372Z
+date: 2024-05-20T04:41:46.273Z
+updated: 2024-05-21T04:41:46.273Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -404,4 +404,5 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
 <li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-m34-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy M34 5G</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-y78plus-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo Y78+? 8 Solutions Inside | Dr.fone</u></a></li>
 </ul></div>
+
 

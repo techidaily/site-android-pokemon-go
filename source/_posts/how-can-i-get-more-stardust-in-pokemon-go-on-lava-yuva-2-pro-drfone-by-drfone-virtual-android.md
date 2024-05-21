@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Lava Yuva 2 Pro? | Dr.fone
-date: 2024-04-30T07:18:19.910Z
-updated: 2024-05-01T07:18:19.910Z
+date: 2024-05-20T04:42:02.779Z
+updated: 2024-05-21T04:42:02.779Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -441,4 +441,5 @@ In conclusion, the pursuit of capturing a **Snorlax Pokémon sleeping** in Poké
 <li><a href="https://howto.techidaily.com/how-to-fix-it-xiaomi-redmi-13c-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Xiaomi Redmi 13C Wont Turn On | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-motorola-moto-g24-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Motorola Moto G24?</u></a></li>
 </ul></div>
+
 

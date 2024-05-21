@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze 2? | Dr.fone
-date: 2024-04-30T07:18:35.126Z
-updated: 2024-05-01T07:18:35.126Z
+date: 2024-05-20T04:42:03.862Z
+updated: 2024-05-21T04:42:03.862Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -395,4 +395,5 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 <li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-apple-iphone-6-plus-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On Apple iPhone 6 Plus?</u></a></li>
 <li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
 </ul></div>
+
 

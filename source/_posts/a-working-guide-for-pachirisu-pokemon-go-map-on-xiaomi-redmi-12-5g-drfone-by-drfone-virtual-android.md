@@ -394,3 +394,4 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 <li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/" ><u>Which Pokémon can Evolve with a Moon Stone For Sony Xperia 1 V? | Dr.fone</u></a></li>
 </ul></div>
 
+

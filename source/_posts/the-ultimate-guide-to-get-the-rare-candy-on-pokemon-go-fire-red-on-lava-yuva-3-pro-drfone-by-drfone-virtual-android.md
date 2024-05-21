@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Yuva 3 Pro | Dr.fone
-date: 2024-04-30T07:21:11.002Z
-updated: 2024-05-01T07:21:11.002Z
+date: 2024-05-20T04:42:13.160Z
+updated: 2024-05-21T04:42:13.160Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -493,4 +493,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-on-your-iphone-11-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID On your iPhone 11?</u></a></li>
 <li><a href="https://ai-video-editing.techidaily.com/new-easy-ways-to-make-procreate-gifs-for-2024/"><u>New Easy Ways to Make Procreate GIFs for 2024</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:16.963Z
-updated: 2024-05-01T07:15:16.963Z
+date: 2024-05-20T04:41:42.802Z
+updated: 2024-05-21T04:41:42.802Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -427,4 +427,5 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 <li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-oneplus-open-drfone-by-drfone-virtual-android/" ><u>Which Pokémon can Evolve with a Moon Stone For OnePlus Open? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-k11-5g-drfone-by-drfone-virtual-android/" ><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo K11 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

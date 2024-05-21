@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Agni 2 5G? | Dr.fone
-date: 2024-04-30T07:19:07.001Z
-updated: 2024-05-01T07:19:07.001Z
+date: 2024-05-20T04:42:05.627Z
+updated: 2024-05-21T04:42:05.627Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -346,4 +346,5 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-c67-4g-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme C67 4G To Phone | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-x-fold-2-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo X Fold 2 Phone FRP Lock</u></a></li>
 </ul></div>
+
 

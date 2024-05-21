@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Nokia C02? | Dr.fone
-date: 2024-04-30T07:31:56.972Z
-updated: 2024-05-01T07:31:56.972Z
+date: 2024-05-20T04:42:53.709Z
+updated: 2024-05-21T04:42:53.709Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -308,4 +308,5 @@ Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this m
 <li><a href="https://ai-video.techidaily.com/updated-how-to-use-korean-to-english-video-translators-for-creators/"><u>updated How To Use Korean to English Video Translators for Creators</u></a></li>
 <li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-infinix-note-30-pro-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Infinix Note 30 Pro | Dr.fone</u></a></li>
 </ul></div>
+
 

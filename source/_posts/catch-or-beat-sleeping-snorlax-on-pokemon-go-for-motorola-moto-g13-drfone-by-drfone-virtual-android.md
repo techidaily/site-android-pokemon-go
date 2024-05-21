@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Motorola Moto G13 | Dr.fone
-date: 2024-04-30T07:24:44.041Z
-updated: 2024-05-01T07:24:44.041Z
+date: 2024-05-20T04:42:25.867Z
+updated: 2024-05-21T04:42:25.867Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -395,4 +395,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-14-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone 14? Fixed | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-manually-install-a-driver-in-windows-1110-by-drivereasy-guide/"><u>How to Manually Install a Driver in Windows 11/10</u></a></li>
 </ul></div>
+
 

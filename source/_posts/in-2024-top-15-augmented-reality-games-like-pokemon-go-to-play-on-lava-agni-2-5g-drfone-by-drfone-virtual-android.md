@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Agni 2 5G | Dr.fone
-date: 2024-04-30T07:19:26.423Z
-updated: 2024-05-01T07:19:26.423Z
+date: 2024-05-20T04:42:06.632Z
+updated: 2024-05-21T04:42:06.632Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -465,4 +465,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How To Simulate GPS Movement With Location Spoofer On Apple iPhone 14? | Dr.fone</u></a></li>
 <li><a href="https://iphone-transfer.techidaily.com/easy-methods-how-to-transfer-pictures-from-apple-iphone-14-pro-to-pc-drfone-by-drfone-transfer-from-ios/"><u>Easy Methods How To Transfer Pictures From Apple iPhone 14 Pro to PC | Dr.fone</u></a></li>
 </ul></div>
+
 

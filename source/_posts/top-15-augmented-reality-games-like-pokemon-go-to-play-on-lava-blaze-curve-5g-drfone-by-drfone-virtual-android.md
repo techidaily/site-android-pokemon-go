@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Curve 5G | Dr.fone
-date: 2024-04-30T07:22:35.650Z
-updated: 2024-05-01T07:22:35.650Z
+date: 2024-05-20T04:42:18.345Z
+updated: 2024-05-21T04:42:18.345Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -452,4 +452,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Watch Hulu Outside US On Apple iPhone 14 | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Vivo S18e? | Dr.fone</u></a></li>
 </ul></div>
+
 

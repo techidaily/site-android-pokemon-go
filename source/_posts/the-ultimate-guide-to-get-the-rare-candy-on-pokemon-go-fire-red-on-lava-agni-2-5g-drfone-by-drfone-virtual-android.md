@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Agni 2 5G | Dr.fone
-date: 2024-04-30T07:19:05.600Z
-updated: 2024-05-01T07:19:05.600Z
+date: 2024-05-20T04:42:05.548Z
+updated: 2024-05-21T04:42:05.548Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -397,4 +397,5 @@ There you go! By following these tips, you would be able to come up with a winni
 <li><a href="https://techidaily.com/hard-reset-xiaomi-mix-fold-3-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Xiaomi Mix Fold 3 in 3 Efficient Ways | Dr.fone</u></a></li>
 <li><a href="https://ai-video-apps.techidaily.com/updated-get-windows-movie-maker-a-step-by-step-download-and-installation-guide-for-2024/"><u>Updated Get Windows Movie Maker A Step-by-Step Download and Installation Guide for 2024</u></a></li>
 </ul></div>
+
 

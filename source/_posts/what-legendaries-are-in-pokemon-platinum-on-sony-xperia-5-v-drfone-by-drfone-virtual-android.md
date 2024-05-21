@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Sony Xperia 5 V? | Dr.fone
-date: 2024-04-30T07:15:17.357Z
-updated: 2024-05-01T07:15:17.357Z
+date: 2024-05-20T04:41:46.116Z
+updated: 2024-05-21T04:41:46.116Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -368,4 +368,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-iphone-8-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>In 2024, Unlock Your iPhone 8 in Minutes with ICCID Code Everything You Need to Know</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-motorola-edge-40-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Motorola Edge 40 for Parents | Dr.fone</u></a></li>
 </ul></div>
+
 

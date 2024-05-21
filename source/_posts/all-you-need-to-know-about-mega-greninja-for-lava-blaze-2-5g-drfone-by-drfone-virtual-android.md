@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Lava Blaze 2 5G | Dr.fone
-date: 2024-04-30T07:20:44.708Z
-updated: 2024-05-01T07:20:44.708Z
+date: 2024-05-20T04:42:11.471Z
+updated: 2024-05-21T04:42:11.471Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -421,4 +421,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme GT 5 (240W)? | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/how-to-watch-avchd-mts-video-on-galaxy-s23-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to watch AVCHD MTS video on Galaxy S23?</u></a></li>
 </ul></div>
+
 

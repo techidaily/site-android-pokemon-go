@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Motorola Moto G04 | Dr.fone
-date: 2024-04-30T07:31:08.173Z
-updated: 2024-05-01T07:31:08.173Z
+date: 2024-05-20T04:42:50.330Z
+updated: 2024-05-21T04:42:50.330Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -402,4 +402,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-nokia-c22-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Nokia C22 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
 <li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-asus-rog-phone-8-pro-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Asus ROG Phone 8 Pro to iPhone 14 and 15 | Dr.fone</u></a></li>
 </ul></div>
+
 

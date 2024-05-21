@@ -1,7 +1,7 @@
 ---
 title: CatchEmAll Celebrate National Pokémon Day with Virtual Location On Lava Yuva 3 Pro | Dr.fone
-date: 2024-04-30T07:21:09.885Z
-updated: 2024-05-01T07:21:09.885Z
+date: 2024-05-20T04:42:13.100Z
+updated: 2024-05-21T04:42:13.100Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -417,4 +417,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-samsung-galaxy-a23-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Samsung Galaxy A23 5G | Dr.fone</u></a></li>
 <li><a href="https://iphone-location.techidaily.com/in-2024-6-methods-to-protect-yourself-from-location-tracking-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Methods to Protect Yourself from Location Tracking on Apple iPhone 13 mini | Dr.fone</u></a></li>
 </ul></div>
+
 

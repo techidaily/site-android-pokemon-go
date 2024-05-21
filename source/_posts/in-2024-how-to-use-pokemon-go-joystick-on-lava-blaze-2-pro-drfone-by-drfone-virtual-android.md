@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Lava Blaze 2 Pro? | Dr.fone
-date: 2024-04-30T07:20:12.155Z
-updated: 2024-05-01T07:20:12.155Z
+date: 2024-05-20T04:42:09.513Z
+updated: 2024-05-21T04:42:09.513Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -384,4 +384,5 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 <li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-itel-s23plus-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Itel S23+ FRP Android 10/11/12/13</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-xiaomi-13t-pro-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Xiaomi 13T Pro Pattern Lock Screen</u></a></li>
 </ul></div>
+
 

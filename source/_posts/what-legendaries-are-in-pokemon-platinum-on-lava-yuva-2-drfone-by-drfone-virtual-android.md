@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Lava Yuva 2? | Dr.fone
-date: 2024-04-30T07:19:37.694Z
-updated: 2024-05-01T07:19:37.694Z
+date: 2024-05-20T04:42:07.275Z
+updated: 2024-05-21T04:42:07.275Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -358,4 +358,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://ai-video-editing.techidaily.com/new-top-list-the-best-slow-motion-video-editors-available-for-2024/"><u>New Top List The Best Slow Motion Video Editors Available for 2024</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/updated-free-and-easy-the-5-best-online-tone-makers/"><u>Updated Free and Easy The 5 Best Online Tone Makers</u></a></li>
 </ul></div>
+
 

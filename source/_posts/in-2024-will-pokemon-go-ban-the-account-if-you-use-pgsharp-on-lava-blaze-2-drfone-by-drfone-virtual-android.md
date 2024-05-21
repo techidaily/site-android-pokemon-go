@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Lava Blaze 2 | Dr.fone
-date: 2024-04-30T07:18:52.889Z
-updated: 2024-05-01T07:18:52.889Z
+date: 2024-05-20T04:42:04.858Z
+updated: 2024-05-21T04:42:04.858Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -409,4 +409,5 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://ai-editing-video.techidaily.com/2024-approved-best-8-educational-video-websites-for-teachers/"><u>2024 Approved Best 8 Educational Video Websites for Teachers</u></a></li>
 <li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Vivo Y17s | Dr.fone</u></a></li>
 </ul></div>
+
 

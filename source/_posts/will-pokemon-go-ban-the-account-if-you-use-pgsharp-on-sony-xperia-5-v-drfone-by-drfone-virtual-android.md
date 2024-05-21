@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Sony Xperia 5 V | Dr.fone
-date: 2024-04-30T07:15:17.333Z
-updated: 2024-05-01T07:15:17.333Z
+date: 2024-05-20T04:41:45.912Z
+updated: 2024-05-21T04:41:45.912Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -355,4 +355,5 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 <li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-se-2022-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone SE (2022) with a Broken Screen?</u></a></li>
 <li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Oppo Find X6 | Dr.fone</u></a></li>
 </ul></div>
+
 

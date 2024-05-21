@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Lava Blaze 2 | Dr.fone
-date: 2024-04-30T07:18:39.398Z
-updated: 2024-05-01T07:18:39.398Z
+date: 2024-05-20T04:42:04.137Z
+updated: 2024-05-21T04:42:04.137Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -368,4 +368,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-12-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 12 To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor Magic 6 Pro? | Dr.fone</u></a></li>
 </ul></div>
+
 

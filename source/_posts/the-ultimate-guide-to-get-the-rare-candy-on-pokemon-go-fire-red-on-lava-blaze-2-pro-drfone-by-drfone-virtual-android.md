@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze 2 Pro | Dr.fone
-date: 2024-04-30T07:19:57.161Z
-updated: 2024-05-01T07:19:57.161Z
+date: 2024-05-20T04:42:08.658Z
+updated: 2024-05-21T04:42:08.658Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -440,4 +440,5 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://ios-unlock.techidaily.com/in-2024-full-guide-to-unlock-apple-iphone-se-with-itunes-by-drfone-ios/"><u>In 2024, Full Guide to Unlock Apple iPhone SE with iTunes</u></a></li>
 <li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-xiaomi-redmi-k70e-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Xiaomi Redmi K70E to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Lava Blaze Curve 5G? | Dr.fone
-date: 2024-04-30T07:22:44.778Z
-updated: 2024-05-01T07:22:44.778Z
+date: 2024-05-20T04:42:18.799Z
+updated: 2024-05-21T04:42:18.799Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -492,4 +492,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Motorola Moto G34 5G | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-vivo-v29-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Vivo V29 Pro | Dr.fone</u></a></li>
 </ul></div>
+
 

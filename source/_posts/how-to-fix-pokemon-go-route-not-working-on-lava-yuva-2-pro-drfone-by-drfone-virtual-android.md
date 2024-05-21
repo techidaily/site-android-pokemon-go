@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Lava Yuva 2 Pro? | Dr.fone
-date: 2024-04-30T07:18:17.069Z
-updated: 2024-05-01T07:18:17.069Z
+date: 2024-05-20T04:42:02.630Z
+updated: 2024-05-21T04:42:02.630Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -366,4 +366,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo S17e | Dr.fone</u></a></li>
 <li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-a79-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo A79 5G FRP</u></a></li>
 </ul></div>
+
 

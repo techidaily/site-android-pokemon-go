@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Sony Xperia 10 V? | Dr.fone
-date: 2024-04-30T07:15:17.109Z
-updated: 2024-05-01T07:15:17.109Z
+date: 2024-05-20T04:41:44.162Z
+updated: 2024-05-21T04:41:44.162Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -393,4 +393,5 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 <li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-oppo-f23-5g-by-fonelab-android-recover-data/" ><u>Easy steps to recover deleted data from Oppo F23 5G</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-apple-iphone-14-proipad-without-computer-drfone-by-drfone-ios/" ><u>How to Unlock Disabled Apple iPhone 14 Pro/iPad Without Computer | Dr.fone</u></a></li>
 </ul></div>
+
 

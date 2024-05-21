@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze 2 Pro | Dr.fone
-date: 2024-04-30T07:20:16.384Z
-updated: 2024-05-01T07:20:16.384Z
+date: 2024-05-20T04:42:09.716Z
+updated: 2024-05-21T04:42:09.716Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -526,4 +526,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Realme Narzo N53? | Dr.fone</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/how-to-add-subtitles-to-mkv-videos-on-all-platforms/"><u>How to Add Subtitles to MKV Videos on All Platforms</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Motorola Defy 2? | Dr.fone
-date: 2024-04-30T07:25:29.995Z
-updated: 2024-05-01T07:25:29.995Z
+date: 2024-05-20T04:42:28.945Z
+updated: 2024-05-21T04:42:28.945Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -421,4 +421,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-honor-x7b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Honor X7b | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
 </ul></div>
+
 

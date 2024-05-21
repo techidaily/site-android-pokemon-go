@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Curve 5G | Dr.fone
-date: 2024-04-30T07:22:49.128Z
-updated: 2024-05-01T07:22:49.128Z
+date: 2024-05-20T04:42:19.028Z
+updated: 2024-05-21T04:42:19.028Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -646,4 +646,5 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-15-to-ipad-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 15 to iPad? | Dr.fone</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/new-best-5-udemy-subtitle-translator-auto-translation-for-2024/"><u>New Best 5 Udemy Subtitle Translator (Auto Translation) for 2024</u></a></li>
 </ul></div>
+
 

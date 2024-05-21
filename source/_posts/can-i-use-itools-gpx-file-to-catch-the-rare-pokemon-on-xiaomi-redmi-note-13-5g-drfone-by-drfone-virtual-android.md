@@ -484,3 +484,4 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-google-pixel-fold-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Google Pixel Fold to Samsung Phone | Dr.fone</u></a></li>
 </ul></div>
 
+

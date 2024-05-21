@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:16.953Z
-updated: 2024-05-01T07:15:16.953Z
+date: 2024-05-20T04:41:42.748Z
+updated: 2024-05-21T04:41:42.748Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -332,4 +332,5 @@ Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A goo
 <li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-oneplus-12r-drfone-by-drfone-virtual-android/" ><u>How to Get and Use Pokemon Go Promo Codes On OnePlus 12R | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-edge-2023-drfone-by-drfone-virtual-android/" ><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Motorola Edge 2023? | Dr.fone</u></a></li>
 </ul></div>
+
 

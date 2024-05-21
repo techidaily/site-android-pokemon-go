@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:14.520Z
-updated: 2024-05-01T07:18:14.520Z
+date: 2024-05-20T04:42:02.478Z
+updated: 2024-05-21T04:42:02.478Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -438,4 +438,5 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-poco-c50-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Poco C50 Phone Using PC | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/how-to-hard-reset-honor-x50-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Honor X50 Without Password | Dr.fone</u></a></li>
 </ul></div>
+
 

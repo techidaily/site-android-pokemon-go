@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze 2 | Dr.fone
-date: 2024-04-30T07:18:59.634Z
-updated: 2024-05-01T07:18:59.634Z
+date: 2024-05-20T04:42:05.174Z
+updated: 2024-05-21T04:42:05.174Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -414,4 +414,5 @@ This is a desktop-based spoofing tool which can help you fake your location. It 
 <li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-vivo-y55s-5g-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
 </ul></div>
+
 

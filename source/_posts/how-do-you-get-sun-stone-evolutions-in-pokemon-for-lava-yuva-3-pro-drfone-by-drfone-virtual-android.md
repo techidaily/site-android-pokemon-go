@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Yuva 3 Pro? | Dr.fone
-date: 2024-04-30T07:21:07.691Z
-updated: 2024-05-01T07:21:07.691Z
+date: 2024-05-20T04:42:12.774Z
+updated: 2024-05-21T04:42:12.774Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -403,4 +403,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-oneplus-ace-2-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on OnePlus Ace 2</u></a></li>
 <li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone 14? | Dr.fone</u></a></li>
 </ul></div>
+
 

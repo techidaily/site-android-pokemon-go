@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Lava Blaze Pro 5G | Dr.fone
-date: 2024-04-30T07:20:22.362Z
-updated: 2024-05-01T07:20:22.362Z
+date: 2024-05-20T04:42:10.155Z
+updated: 2024-05-21T04:42:10.155Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -475,4 +475,5 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-samsung-galaxy-s23plus-phone-by-drfone-android/"><u>How to Reset a Locked Samsung Galaxy S23+ Phone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-tecno-camon-30-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Tecno Camon 30 Pro 5G to iPhone | Dr.fone</u></a></li>
 </ul></div>
+
 

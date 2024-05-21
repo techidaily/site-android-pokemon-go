@@ -387,3 +387,4 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-honor-x7b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Honor X7b | Dr.fone</u></a></li>
 </ul></div>
 
+

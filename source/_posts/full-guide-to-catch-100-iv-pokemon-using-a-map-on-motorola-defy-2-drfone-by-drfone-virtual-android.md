@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Motorola Defy 2 | Dr.fone
-date: 2024-04-30T07:25:27.775Z
-updated: 2024-05-01T07:25:27.775Z
+date: 2024-05-20T04:42:28.813Z
+updated: 2024-05-21T04:42:28.813Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -476,4 +476,5 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-oneplus-open-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from OnePlus Open to iPhone Easily | Dr.fone</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-6s-plusipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on Apple iPhone 6s Plus/iPad/iPod</u></a></li>
 </ul></div>
+
 

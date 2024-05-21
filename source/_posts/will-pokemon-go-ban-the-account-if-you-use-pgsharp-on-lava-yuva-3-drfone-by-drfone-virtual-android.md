@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 3 | Dr.fone
-date: 2024-04-30T07:22:01.896Z
-updated: 2024-05-01T07:22:01.896Z
+date: 2024-05-20T04:42:16.132Z
+updated: 2024-05-21T04:42:16.132Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -356,4 +356,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-v27e-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo V27e? | Dr.fone</u></a></li>
 <li><a href="https://ai-video-editing.techidaily.com/new-ways-to-find-free-online-slideshow-maker-with-no-watermark/"><u>New Ways to Find Free Online Slideshow Maker with No Watermark</u></a></li>
 </ul></div>
+
 

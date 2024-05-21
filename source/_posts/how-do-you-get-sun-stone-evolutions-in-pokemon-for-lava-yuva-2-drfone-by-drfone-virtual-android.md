@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Yuva 2? | Dr.fone
-date: 2024-04-30T07:19:28.579Z
-updated: 2024-05-01T07:19:28.579Z
+date: 2024-05-20T04:42:06.780Z
+updated: 2024-05-21T04:42:06.780Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -476,4 +476,5 @@ This is a desktop-based spoofing tool which can help you fake your location. It 
 <li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-oppo-reno-8t-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Oppo Reno 8T 5G | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-iphone-13-mini-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your iPhone 13 mini? Learn All 4 Methods</u></a></li>
 </ul></div>
+
 

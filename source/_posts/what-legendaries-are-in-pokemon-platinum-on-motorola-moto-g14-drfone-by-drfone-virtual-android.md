@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Motorola Moto G14? | Dr.fone
-date: 2024-04-30T07:28:21.288Z
-updated: 2024-05-01T07:28:21.288Z
+date: 2024-05-20T04:42:39.702Z
+updated: 2024-05-21T04:42:39.702Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -404,4 +404,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://animation-videos.techidaily.com/updated-all-about-3d-medical-animation-and-its-uses-for-2024/"><u>Updated All About 3D Medical Animation And Its Uses for 2024</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-samsung-galaxy-a15-5g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Samsung Galaxy A15 5G Device</u></a></li>
 </ul></div>
+
 

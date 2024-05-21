@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:16.924Z
-updated: 2024-05-01T07:15:16.924Z
+date: 2024-05-20T04:41:42.512Z
+updated: 2024-05-21T04:41:42.512Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -331,4 +331,5 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/" ><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-htc-u23-pro-drfone-by-drfone-virtual-android/" ><u>Reasons why Pokémon GPS does not Work On HTC U23 Pro? | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Lava Blaze 2 5G | Dr.fone
-date: 2024-04-30T07:20:59.942Z
-updated: 2024-05-01T07:20:59.942Z
+date: 2024-05-20T04:42:12.338Z
+updated: 2024-05-21T04:42:12.338Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -470,4 +470,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://phone-solutions.techidaily.com/fixed-freeze-panes-not-working-in-excel-stellar-by-stellar-guide/"><u>Fixed Freeze Panes not Working in Excel | Stellar</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/how-to-create-liquid-water-reveal-intro/"><u>How to Create Liquid Water Reveal Intro?</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Lava Blaze Pro 5G | Dr.fone
-date: 2024-04-30T07:20:23.253Z
-updated: 2024-05-01T07:20:23.253Z
+date: 2024-05-20T04:42:10.199Z
+updated: 2024-05-21T04:42:10.199Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -529,4 +529,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-xiaomi-redmi-note-12r-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Xiaomi Redmi Note 12R Without Volume Buttons | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-itel-p40-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Itel P40</u></a></li>
 </ul></div>
+
 

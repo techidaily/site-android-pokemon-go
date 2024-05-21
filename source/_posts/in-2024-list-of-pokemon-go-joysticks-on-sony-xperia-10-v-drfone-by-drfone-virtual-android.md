@@ -1,7 +1,7 @@
 ---
 title: In 2024, List of Pokémon Go Joysticks On Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.249Z
-updated: 2024-05-01T07:15:17.249Z
+date: 2024-05-20T04:41:45.248Z
+updated: 2024-05-21T04:41:45.248Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -468,4 +468,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-camon-20-premier-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-iphone-15-pro-by-drfone-ios/"><u>How to Fix Locked Apple ID on iPhone 15 Pro</u></a></li>
 </ul></div>
+
 

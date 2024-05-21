@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Nokia C02? | Dr.fone
-date: 2024-04-30T07:32:14.395Z
-updated: 2024-05-01T07:32:14.395Z
+date: 2024-05-20T04:42:54.642Z
+updated: 2024-05-21T04:42:54.642Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -429,4 +429,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-motorola-moto-g73-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Motorola Moto G73 5G Devices</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-realme-10t-5g-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Realme 10T 5G</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:16.995Z
-updated: 2024-05-01T07:15:16.995Z
+date: 2024-05-20T04:41:43.187Z
+updated: 2024-05-21T04:41:43.187Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -470,4 +470,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nokia-105-classic-drfone-by-drfone-virtual-android/" ><u>4 solution to get rid of pokemon fail to detect location On Nokia 105 Classic | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-nokia-g310-drfone-by-drfone-virtual-android/" ><u>In 2024, Additional Tips About Sinnoh Stone For Nokia G310 | Dr.fone</u></a></li>
 </ul></div>
+
 

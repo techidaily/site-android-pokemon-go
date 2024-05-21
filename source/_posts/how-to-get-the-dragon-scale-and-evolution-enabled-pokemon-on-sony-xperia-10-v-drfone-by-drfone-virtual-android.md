@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-30T07:15:17.142Z
-updated: 2024-05-01T07:15:17.142Z
+date: 2024-05-20T04:41:44.476Z
+updated: 2024-05-21T04:41:44.476Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -387,4 +387,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-13-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/" ><u>How To Transfer Data From iPhone 13 To Other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-motorola-edge-40-by-fonelab-android-recover-contacts/" ><u>How to recover deleted contacts from Motorola Edge 40.</u></a></li>
 </ul></div>
+
 

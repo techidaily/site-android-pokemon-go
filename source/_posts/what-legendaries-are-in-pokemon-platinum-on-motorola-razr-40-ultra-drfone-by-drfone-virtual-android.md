@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Motorola Razr 40 Ultra? | Dr.fone
-date: 2024-04-30T07:27:56.992Z
-updated: 2024-05-01T07:27:56.992Z
+date: 2024-05-20T04:42:38.212Z
+updated: 2024-05-21T04:42:38.212Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -444,4 +444,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-memes-on-iphone-and-android/"><u>New In 2024, How to Make Memes on iPhone and Android</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-what-is-ai-advertising-wondershare-virbo-glossary/"><u>Updated In 2024, What Is AI Advertising? | Wondershare Virbo Glossary</u></a></li>
 </ul></div>
+
 

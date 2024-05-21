@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Lava Yuva 2? | Dr.fone
-date: 2024-04-30T07:19:41.962Z
-updated: 2024-05-01T07:19:41.962Z
+date: 2024-05-20T04:42:07.508Z
+updated: 2024-05-21T04:42:07.508Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -473,4 +473,5 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-samsung-galaxy-s24-ultra-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Samsung Galaxy S24 Ultra</u></a></li>
 <li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-motorola-moto-g24-frp-by-drfone-android/"><u>The Updated Method to Bypass Motorola Moto G24 FRP</u></a></li>
 </ul></div>
+
 

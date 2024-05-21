@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Motorola Moto G13? | Dr.fone
-date: 2024-04-30T07:24:42.517Z
-updated: 2024-05-01T07:24:42.517Z
+date: 2024-05-20T04:42:25.775Z
+updated: 2024-05-21T04:42:25.775Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -379,4 +379,5 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 13 Pro | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Huawei P60 | Dr.fone</u></a></li>
 </ul></div>
+
 

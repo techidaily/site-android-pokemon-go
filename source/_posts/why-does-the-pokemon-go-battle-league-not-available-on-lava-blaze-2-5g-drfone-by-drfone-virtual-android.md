@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Lava Blaze 2 5G | Dr.fone
-date: 2024-04-30T07:20:47.275Z
-updated: 2024-05-01T07:20:47.275Z
+date: 2024-05-20T04:42:11.618Z
+updated: 2024-05-21T04:42:11.618Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -465,4 +465,5 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-se-2022-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone SE (2022)? Fixed | Dr.fone</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-oppo-a79-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Oppo A79 5G Location | Dr.fone</u></a></li>
 </ul></div>
+
 

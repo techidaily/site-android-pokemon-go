@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Yuva 3 Pro | Dr.fone
-date: 2024-04-30T07:21:12.103Z
-updated: 2024-05-01T07:21:12.103Z
+date: 2024-05-20T04:42:13.231Z
+updated: 2024-05-21T04:42:13.231Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -421,4 +421,5 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-xiaomi-redmi-k70-pro-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Xiaomi Redmi K70 Pro</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-solve-mkv-lagging-problem-in-xiaomi-redmi-12-by-aiseesoft-video-converter-play-mkv-on-android/"><u>How to solve MKV lagging problem in Xiaomi Redmi 12?</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze Curve 5G? | Dr.fone
-date: 2024-04-30T07:22:38.115Z
-updated: 2024-05-01T07:22:38.115Z
+date: 2024-05-20T04:42:18.451Z
+updated: 2024-05-21T04:42:18.451Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -473,4 +473,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-apple-iphone-7-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your Apple iPhone 7 Apple ID on MacBook</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-itel-p40-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Itel P40</u></a></li>
 </ul></div>
+
 

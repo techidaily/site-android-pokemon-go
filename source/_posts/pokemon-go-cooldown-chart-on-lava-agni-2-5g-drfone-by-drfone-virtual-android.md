@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Agni 2 5G | Dr.fone
-date: 2024-04-30T07:19:06.793Z
-updated: 2024-05-01T07:19:06.793Z
+date: 2024-05-20T04:42:05.619Z
+updated: 2024-05-21T04:42:05.619Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -447,4 +447,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-vivo-x-flip-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Vivo X Flip to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
 <li><a href="https://iphone-transfer.techidaily.com/in-2024-5-ways-to-send-ringtones-from-apple-iphone-13-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Ways to Send Ringtones from Apple iPhone 13 to iPhone Including iPhone 15 | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.270Z
-updated: 2024-05-01T07:15:17.270Z
+date: 2024-05-20T04:41:45.477Z
+updated: 2024-05-21T04:41:45.477Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -423,4 +423,5 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-oppo-f23-5g-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Oppo F23 5G on Windows</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/how-to-reset-your-vivo-y77t-lock-screen-password-by-drfone-android/"><u>How to Reset your Vivo Y77t Lock Screen Password</u></a></li>
 </ul></div>
+
 

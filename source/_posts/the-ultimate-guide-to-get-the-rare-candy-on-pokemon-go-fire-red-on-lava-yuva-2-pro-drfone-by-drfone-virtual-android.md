@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:13.065Z
-updated: 2024-05-01T07:18:13.065Z
+date: 2024-05-20T04:42:02.408Z
+updated: 2024-05-21T04:42:02.408Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -400,4 +400,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-realme-gt-5-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Realme GT 5</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-xiaomi-redmi-note-13-5g-by-fonelab-android-recover-contacts/"><u>How To  Restore Missing Contacts Files from Xiaomi Redmi Note 13 5G.</u></a></li>
 </ul></div>
+
 

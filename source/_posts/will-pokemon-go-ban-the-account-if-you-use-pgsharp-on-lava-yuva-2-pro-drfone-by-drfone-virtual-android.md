@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:13.836Z
-updated: 2024-05-01T07:18:13.836Z
+date: 2024-05-20T04:42:02.463Z
+updated: 2024-05-21T04:42:02.463Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -379,4 +379,5 @@ There you go! By now, you would be able to implement these spoofing Pokemon Go t
 <li><a href="https://techidaily.com/how-to-factory-reset-samsung-galaxy-z-fold-5-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Samsung Galaxy Z Fold 5 without Losing Data | Dr.fone</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-oppo-a2-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Oppo A2? Tips, Tricks and Helpful Advice</u></a></li>
 </ul></div>
+
 

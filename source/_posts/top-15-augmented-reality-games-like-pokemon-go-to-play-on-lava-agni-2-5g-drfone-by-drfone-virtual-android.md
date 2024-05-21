@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Agni 2 5G | Dr.fone
-date: 2024-04-30T07:19:12.691Z
-updated: 2024-05-01T07:19:12.691Z
+date: 2024-05-20T04:42:05.975Z
+updated: 2024-05-21T04:42:05.975Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -443,4 +443,5 @@ Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this m
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor Magic Vs 2 | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-infinix-zero-5g-2023-turbo-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Infinix Zero 5G 2023 Turbo Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
 </ul></div>
+
 

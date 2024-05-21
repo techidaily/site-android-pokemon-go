@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Sony Xperia 5 V | Dr.fone
-date: 2024-04-30T07:15:17.423Z
-updated: 2024-05-01T07:15:17.423Z
+date: 2024-05-20T04:41:46.597Z
+updated: 2024-05-21T04:41:46.597Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -388,4 +388,5 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 <li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-y17s-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo Y17s Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-infinix-note-30-pro-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Infinix Note 30 Pro</u></a></li>
 </ul></div>
+
 

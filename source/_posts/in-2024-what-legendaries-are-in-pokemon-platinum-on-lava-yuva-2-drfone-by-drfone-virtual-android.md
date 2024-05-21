@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Lava Yuva 2? | Dr.fone
-date: 2024-04-30T07:19:49.708Z
-updated: 2024-05-01T07:19:49.708Z
+date: 2024-05-20T04:42:08.152Z
+updated: 2024-05-21T04:42:08.152Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -472,4 +472,5 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 <li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-note-12-pro-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi Note 12 Pro 5G Location by Number | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/what-to-do-when-honor-90-lite-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Honor 90 Lite Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
+
 

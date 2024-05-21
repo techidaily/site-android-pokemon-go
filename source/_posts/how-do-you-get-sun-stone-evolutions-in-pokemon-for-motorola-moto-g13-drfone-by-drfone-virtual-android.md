@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Motorola Moto G13? | Dr.fone
-date: 2024-04-30T07:24:34.653Z
-updated: 2024-05-01T07:24:34.653Z
+date: 2024-05-20T04:42:25.288Z
+updated: 2024-05-21T04:42:25.288Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -435,4 +435,5 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-realme-v30-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Realme V30? | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/different-methods-for-resetting-poco-f5-pro-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Poco F5 Pro 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
 </ul></div>
+
 

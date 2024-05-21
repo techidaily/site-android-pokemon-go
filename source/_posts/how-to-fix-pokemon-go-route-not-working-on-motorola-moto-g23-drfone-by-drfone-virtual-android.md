@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Motorola Moto G23? | Dr.fone
-date: 2024-04-30T07:25:06.631Z
-updated: 2024-05-01T07:25:06.631Z
+date: 2024-05-20T04:42:27.253Z
+updated: 2024-05-21T04:42:27.253Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -356,4 +356,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://phone-solutions.techidaily.com/fixed-microsoft-excel-2019-cannot-access-the-file-error-stellar-by-stellar-guide/"><u>Fixed Microsoft Excel 2019 Cannot Access the File Error | Stellar</u></a></li>
 <li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-realme-gt-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Realme GT 5? | Dr.fone</u></a></li>
 </ul></div>
+
 

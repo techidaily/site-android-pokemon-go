@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Motorola Moto G23? | Dr.fone
-date: 2024-04-30T07:25:04.236Z
-updated: 2024-05-01T07:25:04.236Z
+date: 2024-05-20T04:42:27.111Z
+updated: 2024-05-21T04:42:27.111Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -478,4 +478,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-poco-x5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Poco X5 Pro | Dr.fone</u></a></li>
 </ul></div>
+
 

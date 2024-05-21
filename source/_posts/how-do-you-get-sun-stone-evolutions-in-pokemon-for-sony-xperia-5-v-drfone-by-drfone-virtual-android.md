@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Sony Xperia 5 V? | Dr.fone
-date: 2024-04-30T07:15:17.286Z
-updated: 2024-05-01T07:15:17.286Z
+date: 2024-05-20T04:41:45.638Z
+updated: 2024-05-21T04:41:45.638Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -419,4 +419,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://techidaily.com/is-your-motorola-moto-g14-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Motorola Moto G14 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-6s-plus-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 6s Plus to other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
 </ul></div>
+
 

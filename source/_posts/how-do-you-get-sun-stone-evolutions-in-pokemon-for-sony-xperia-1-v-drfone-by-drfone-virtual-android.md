@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Sony Xperia 1 V? | Dr.fone
-date: 2024-04-30T07:15:16.922Z
-updated: 2024-05-01T07:15:16.922Z
+date: 2024-05-20T04:41:42.486Z
+updated: 2024-05-21T04:41:42.486Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -462,4 +462,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/" ><u>How to use iSpoofer on Lenovo ThinkPhone? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/" ><u>In 2024, How can I get more stardust in pokemon go On Asus ROG Phone 8? | Dr.fone</u></a></li>
 </ul></div>
+
 

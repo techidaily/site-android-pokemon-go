@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.274Z
-updated: 2024-05-01T07:15:17.274Z
+date: 2024-05-20T04:41:45.508Z
+updated: 2024-05-21T04:41:45.508Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -445,4 +445,5 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
 <li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 12? | Dr.fone</u></a></li>
 </ul></div>
+
 

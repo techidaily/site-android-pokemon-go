@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.133Z
-updated: 2024-05-01T07:15:17.133Z
+date: 2024-05-20T04:41:44.391Z
+updated: 2024-05-21T04:41:44.391Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -441,4 +441,5 @@ This is a desktop-based spoofing tool which can help you fake your location. It 
 <li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-samsung-galaxy-a54-5g-device-by-drfone-android/" ><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Samsung Galaxy A54 5G Device</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-honor-100-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/" ><u>In 2024, 8 Ways to Transfer Photos from Honor 100 to iPhone Easily | Dr.fone</u></a></li>
 </ul></div>
+
 

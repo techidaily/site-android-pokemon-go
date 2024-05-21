@@ -462,3 +462,4 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
      data-full-width-responsive="true"></ins>
 
 
+

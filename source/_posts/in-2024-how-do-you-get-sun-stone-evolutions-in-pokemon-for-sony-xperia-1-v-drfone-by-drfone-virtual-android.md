@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Sony Xperia 1 V? | Dr.fone
-date: 2024-04-30T07:15:17.021Z
-updated: 2024-05-01T07:15:17.021Z
+date: 2024-05-20T04:41:43.408Z
+updated: 2024-05-21T04:41:43.408Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -407,4 +407,5 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-s23-tactical-edition-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/" ><u>How to Transfer Data from Samsung Galaxy S23 Tactical Edition to BlackBerry | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-honor-magic-6-pro-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>11 Ways to Fix it When My Honor Magic 6 Pro Wont Charge | Dr.fone</u></a></li>
 </ul></div>
+
 

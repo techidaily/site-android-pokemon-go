@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Lava Yuva 3? | Dr.fone
-date: 2024-04-30T07:21:56.513Z
-updated: 2024-05-01T07:21:56.513Z
+date: 2024-05-20T04:42:15.791Z
+updated: 2024-05-21T04:42:15.791Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -440,4 +440,5 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Realme 11 5G? | Dr.fone</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/updated-list-of-supported-whatsapp-video-format-you-may-want-to-know-for-2024/"><u>Updated List of Supported Whatsapp Video Format You May Want to Know for 2024</u></a></li>
 </ul></div>
+
 

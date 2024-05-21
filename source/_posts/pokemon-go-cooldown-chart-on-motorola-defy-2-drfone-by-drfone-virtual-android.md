@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Defy 2 | Dr.fone
-date: 2024-04-30T07:25:28.407Z
-updated: 2024-05-01T07:25:28.407Z
+date: 2024-05-20T04:42:28.852Z
+updated: 2024-05-21T04:42:28.852Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -472,4 +472,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://iphone-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-iphone-se-2020-drfone-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For iPhone SE (2020) | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
 </ul></div>
+
 

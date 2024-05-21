@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Huawei P60? | Dr.fone
-date: 2024-04-30T07:16:56.571Z
-updated: 2024-05-01T07:16:56.571Z
+date: 2024-05-20T04:41:58.220Z
+updated: 2024-05-21T04:41:58.220Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -421,4 +421,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-infinix-zero-5g-2023-turbo-by-drfone-android/"><u>In 2024, How to Bypass FRP from Infinix Zero 5G 2023 Turbo?</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-realme-11x-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Realme 11X 5G to iPad Easily | Dr.fone</u></a></li>
 </ul></div>
+
 

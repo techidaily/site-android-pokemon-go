@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Lava Yuva 2? | Dr.fone
-date: 2024-04-30T07:19:35.472Z
-updated: 2024-05-01T07:19:35.472Z
+date: 2024-05-20T04:42:07.156Z
+updated: 2024-05-21T04:42:07.156Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -430,4 +430,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-tecno-spark-10-pro-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Tecno Spark 10 Pro ? Fix It Easily | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

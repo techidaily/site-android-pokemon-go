@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lenovo ThinkPhone? | Dr.fone
-date: 2024-04-30T07:22:55.832Z
-updated: 2024-05-01T07:22:55.832Z
+date: 2024-05-20T04:42:19.465Z
+updated: 2024-05-21T04:42:19.465Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -416,4 +416,5 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-apple-iphone-se-2020-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your Apple iPhone SE (2020)? Learn All 4 Methods</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-oppo-a79-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Oppo A79 5GMirror Share to PC? | Dr.fone</u></a></li>
 </ul></div>
+
 

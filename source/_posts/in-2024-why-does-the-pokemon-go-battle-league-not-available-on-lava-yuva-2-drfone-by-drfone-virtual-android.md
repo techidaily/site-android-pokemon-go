@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Lava Yuva 2 | Dr.fone
-date: 2024-04-30T07:19:45.942Z
-updated: 2024-05-01T07:19:45.942Z
+date: 2024-05-20T04:42:07.767Z
+updated: 2024-05-21T04:42:07.767Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -450,4 +450,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-xiaomi-redmi-12-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Xiaomi Redmi 12 Phone When You Forget the Password</u></a></li>
 <li><a href="https://techidaily.com/solved-photos-disappeared-from-iphone-xs-max-suddenly-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Photos Disappeared from iPhone XS Max Suddenly | Stellar</u></a></li>
 </ul></div>
+
 

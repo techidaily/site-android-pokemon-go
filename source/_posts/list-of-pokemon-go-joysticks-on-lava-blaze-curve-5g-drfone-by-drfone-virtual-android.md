@@ -1,7 +1,7 @@
 ---
 title: List of Pokémon Go Joysticks On Lava Blaze Curve 5G | Dr.fone
-date: 2024-04-30T07:22:30.906Z
-updated: 2024-05-01T07:22:30.906Z
+date: 2024-05-20T04:42:17.689Z
+updated: 2024-05-21T04:42:17.689Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -415,4 +415,5 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 <li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Oppo Reno 9A | Dr.fone</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/updated-best-apps-for-editing-vertical-videos-on-your-smartphone/"><u>Updated Best Apps for Editing Vertical Videos on Your Smartphone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Edge 40 Pro | Dr.fone
-date: 2024-04-30T07:26:16.409Z
-updated: 2024-05-01T07:26:16.409Z
+date: 2024-05-20T04:42:31.770Z
+updated: 2024-05-21T04:42:31.770Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -463,4 +463,5 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-x-to-androidios-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone X to Android/iOS? | Dr.fone</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-easy-tutorial-how-to-record-and-send-talking-emoji-for-iphone/"><u>New 2024 Approved Easy Tutorial How to Record and Send Talking Emoji for iPhone</u></a></li>
 </ul></div>
+
 

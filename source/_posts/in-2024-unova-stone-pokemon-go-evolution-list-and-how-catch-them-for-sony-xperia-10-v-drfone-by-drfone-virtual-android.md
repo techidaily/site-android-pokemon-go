@@ -1,7 +1,7 @@
 ---
 title: In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.277Z
-updated: 2024-05-01T07:15:17.277Z
+date: 2024-05-20T04:41:45.565Z
+updated: 2024-05-21T04:41:45.565Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -373,4 +373,5 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-12-mini-apples-new-iphone-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 mini, Apples New iPhone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/how-to-remove-flashlight-from-iphone-15-pro-lock-screen-by-drfone-ios/"><u>How To Remove Flashlight From iPhone 15 Pro Lock Screen</u></a></li>
 </ul></div>
+
 

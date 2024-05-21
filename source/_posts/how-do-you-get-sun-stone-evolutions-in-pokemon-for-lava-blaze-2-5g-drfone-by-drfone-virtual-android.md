@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze 2 5G? | Dr.fone
-date: 2024-04-30T07:20:42.927Z
-updated: 2024-05-01T07:20:42.927Z
+date: 2024-05-20T04:42:11.330Z
+updated: 2024-05-21T04:42:11.330Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -460,4 +460,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-apple-iphone-12-mini-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My Apple iPhone 12 mini After Forgetting my PIN Code?</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-iphone-6s-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on iPhone 6s online without jailbreak</u></a></li>
 </ul></div>
+
 

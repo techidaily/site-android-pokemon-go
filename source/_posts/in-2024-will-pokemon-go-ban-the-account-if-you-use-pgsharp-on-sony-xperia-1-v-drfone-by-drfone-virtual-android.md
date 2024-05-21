@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:17.059Z
-updated: 2024-05-01T07:15:17.059Z
+date: 2024-05-20T04:41:43.676Z
+updated: 2024-05-21T04:41:43.676Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -373,4 +373,5 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 <li><a href="https://screen-mirror.techidaily.com/how-to-do-oneplus-nord-n30-5g-screen-sharing-drfone-by-drfone-android/" ><u>How To Do OnePlus Nord N30 5G Screen Sharing | Dr.fone</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-asus-rog-phone-8-pro-is-unlocked-by-drfone-android/" ><u>How To Check if Your Asus ROG Phone 8 Pro Is Unlocked</u></a></li>
 </ul></div>
+
 

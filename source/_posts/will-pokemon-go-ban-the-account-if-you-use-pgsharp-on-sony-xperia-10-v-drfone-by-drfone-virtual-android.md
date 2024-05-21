@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.137Z
-updated: 2024-05-01T07:15:17.137Z
+date: 2024-05-20T04:41:44.436Z
+updated: 2024-05-21T04:41:44.436Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -437,4 +437,5 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 <li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-nokia-xr21-screen-mirroring-app-drfone-by-drfone-android/" ><u>Overview of the Best Nokia XR21 Screen Mirroring App | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-nokia-g22-for-streaming-drfone-by-drfone-android/" ><u>Top 10 AirPlay Apps in Nokia G22 for Streaming | Dr.fone</u></a></li>
 </ul></div>
+
 

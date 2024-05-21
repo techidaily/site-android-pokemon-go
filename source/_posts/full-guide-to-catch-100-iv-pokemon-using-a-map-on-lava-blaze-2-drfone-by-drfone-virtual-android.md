@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Lava Blaze 2 | Dr.fone
-date: 2024-04-30T07:18:39.190Z
-updated: 2024-05-01T07:18:39.190Z
+date: 2024-05-20T04:42:04.114Z
+updated: 2024-05-21T04:42:04.114Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -521,4 +521,5 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 <li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-xiaomi-13t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Xiaomi 13T | Dr.fone</u></a></li>
 <li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-honor-play-7t-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Honor Play 7T | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Huawei P60? | Dr.fone
-date: 2024-04-30T07:16:55.032Z
-updated: 2024-05-01T07:16:55.032Z
+date: 2024-05-20T04:41:58.136Z
+updated: 2024-05-21T04:41:58.136Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -365,4 +365,5 @@ This is a desktop-based spoofing tool which can help you fake your location. It 
 <li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-samsung-galaxy-s23plus-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Samsung Galaxy S23+ for Free? | Dr.fone</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-motorola-moto-g73-5g-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Motorola Moto G73 5G Back to Operation | Dr.fone</u></a></li>
 </ul></div>
+
 

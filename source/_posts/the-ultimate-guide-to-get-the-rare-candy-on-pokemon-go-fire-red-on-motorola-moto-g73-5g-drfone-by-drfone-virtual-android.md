@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G73 5G | Dr.fone
-date: 2024-04-30T07:25:51.162Z
-updated: 2024-05-01T07:25:51.162Z
+date: 2024-05-20T04:42:30.242Z
+updated: 2024-05-21T04:42:30.242Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -406,4 +406,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-from-iphone-se-2020-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue From iPhone SE (2020)</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-itel-a05s-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Itel A05s Screen Mirroring App | Dr.fone</u></a></li>
 </ul></div>
+
 

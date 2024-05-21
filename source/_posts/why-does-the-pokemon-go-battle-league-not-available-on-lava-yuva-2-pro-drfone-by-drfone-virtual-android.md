@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:14.203Z
-updated: 2024-05-01T07:18:14.203Z
+date: 2024-05-20T04:42:02.468Z
+updated: 2024-05-21T04:42:02.468Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -450,4 +450,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-your-hardware-drivers-with-windows-device-manager-in-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning your hardware drivers with Windows Device Manager in Windows 11 & 10 & 7</u></a></li>
 <li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>How to Change Location On Facebook Dating for your Apple iPhone 13 | Dr.fone</u></a></li>
 </ul></div>
+
 

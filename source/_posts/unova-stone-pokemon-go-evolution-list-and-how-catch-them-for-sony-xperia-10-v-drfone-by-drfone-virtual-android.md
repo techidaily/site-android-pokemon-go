@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.179Z
-updated: 2024-05-01T07:15:17.179Z
+date: 2024-05-20T04:41:44.803Z
+updated: 2024-05-21T04:41:44.803Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -417,4 +417,5 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 <li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-meizu-21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Meizu 21 | Dr.fone</u></a></li>
 <li><a href="https://iphone-transfer.techidaily.com/in-2024-transfer-your-apple-iphone-se-2022-apps-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Transfer your Apple iPhone SE (2022) Apps to New iPhone | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Motorola Defy 2 | Dr.fone
-date: 2024-04-30T07:25:28.193Z
-updated: 2024-05-01T07:25:28.193Z
+date: 2024-05-20T04:42:28.841Z
+updated: 2024-05-21T04:42:28.841Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -512,4 +512,5 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 <li><a href="https://howto.techidaily.com/how-to-fix-it-oppo-a58-4g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Oppo A58 4G Wont Turn On | Dr.fone</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/unlocking-an-icloud-locked-ipad-and-iphone-xs-by-drfone-ios/"><u>Unlocking an iCloud Locked iPad and iPhone XS</u></a></li>
 </ul></div>
+
 

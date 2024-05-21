@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze 2 | Dr.fone
-date: 2024-04-30T07:18:38.661Z
-updated: 2024-05-01T07:18:38.661Z
+date: 2024-05-20T04:42:04.082Z
+updated: 2024-05-21T04:42:04.082Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -392,4 +392,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-oppo-a2-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Oppo A2 Phone</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>Updated 2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Here are Some Pro Tips for Pokemon Go PvP Battles On Sony Xperia 5 V | Dr.fone
-date: 2024-04-30T07:15:17.358Z
-updated: 2024-05-01T07:15:17.358Z
+date: 2024-05-20T04:41:46.133Z
+updated: 2024-05-21T04:41:46.133Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -511,4 +511,5 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 <li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-realme-c51-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Realme C51</u></a></li>
 <li><a href="https://techidaily.com/undeleted-lost-videos-from-g42-5g-by-fonelab-android-recover-video/"><u>Undeleted lost videos from G42 5G</u></a></li>
 </ul></div>
+
 

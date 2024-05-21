@@ -1,7 +1,7 @@
 ---
 title: Which Pokémon can Evolve with a Moon Stone For Lava Blaze 2 Pro? | Dr.fone
-date: 2024-04-30T07:20:04.592Z
-updated: 2024-05-01T07:20:04.592Z
+date: 2024-05-20T04:42:09.098Z
+updated: 2024-05-21T04:42:09.098Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -334,4 +334,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://howto.techidaily.com/what-to-do-if-your-samsung-galaxy-z-flip-5-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Samsung Galaxy Z Flip 5 Auto Does Not Work | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-sony-xperia-10-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Sony Xperia 10 V? | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze 2 5G | Dr.fone
-date: 2024-04-30T07:20:53.187Z
-updated: 2024-05-01T07:20:53.187Z
+date: 2024-05-20T04:42:11.968Z
+updated: 2024-05-21T04:42:11.968Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -568,4 +568,5 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://ai-video-editing.techidaily.com/updated-obs-studio-is-a-free-and-open-source-app-for-screen-casting-and-live-streaming/"><u>Updated OBS Studio Is a Free and Open-Source App for Screen-Casting and Live Streaming</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-f34-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Samsung Galaxy F34 5G</u></a></li>
 </ul></div>
+
 

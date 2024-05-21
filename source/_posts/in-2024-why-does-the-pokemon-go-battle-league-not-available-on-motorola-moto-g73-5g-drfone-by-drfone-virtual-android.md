@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Motorola Moto G73 5G | Dr.fone
-date: 2024-04-30T07:26:04.331Z
-updated: 2024-05-01T07:26:04.331Z
+date: 2024-05-20T04:42:31.033Z
+updated: 2024-05-21T04:42:31.033Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -376,4 +376,5 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://ios-location-track.techidaily.com/ways-to-stop-parent-tracking-your-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Ways to stop parent tracking your Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-sony-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Sony</u></a></li>
 </ul></div>
+
 

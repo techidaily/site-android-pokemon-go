@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:16.964Z
-updated: 2024-05-01T07:15:16.964Z
+date: 2024-05-20T04:41:42.813Z
+updated: 2024-05-21T04:41:42.813Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -367,4 +367,5 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 <li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-motorola-moto-g04-drfone-by-drfone-virtual-android/" ><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Motorola Moto G04 | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-motorola-moto-g04-drfone-by-drfone-virtual-android/" ><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G04 | Dr.fone</u></a></li>
 </ul></div>
+
 

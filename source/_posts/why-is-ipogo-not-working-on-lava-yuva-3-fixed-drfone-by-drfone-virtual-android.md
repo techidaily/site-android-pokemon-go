@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Lava Yuva 3? Fixed | Dr.fone
-date: 2024-04-30T07:21:58.302Z
-updated: 2024-05-01T07:21:58.302Z
+date: 2024-05-20T04:42:15.903Z
+updated: 2024-05-21T04:42:15.903Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -380,4 +380,5 @@ There you go! By following these tips, you would be able to come up with a winni
 <li><a href="https://change-location.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Vivo V27 Pro? | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-xiaomi-redmi-note-12-4g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Xiaomi Redmi Note 12 4G Without Power Button | Dr.fone</u></a></li>
 </ul></div>
+
 

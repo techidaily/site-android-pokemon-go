@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Lava Yuva 2 Pro? | Dr.fone
-date: 2024-04-30T07:18:18.028Z
-updated: 2024-05-01T07:18:18.028Z
+date: 2024-05-20T04:42:02.691Z
+updated: 2024-05-21T04:42:02.691Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -418,4 +418,5 @@ That being said, there aren’t any well-researched and ground rules as to how y
 <li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Pause Life360 Location Sharing For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-8-plus-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 8 Plus To Android devices? | Dr.fone</u></a></li>
 </ul></div>
+
 

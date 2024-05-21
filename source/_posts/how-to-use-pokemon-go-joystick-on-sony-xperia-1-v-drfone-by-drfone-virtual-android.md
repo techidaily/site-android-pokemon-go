@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Sony Xperia 1 V? | Dr.fone
-date: 2024-04-30T07:15:16.975Z
-updated: 2024-05-01T07:15:16.975Z
+date: 2024-05-20T04:41:42.968Z
+updated: 2024-05-21T04:41:42.968Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -483,4 +483,5 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 <li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-motorola-g54-5g-drfone-by-drfone-virtual-android/" ><u>Planning to Use a Pokemon Go Joystick on Motorola G54 5G? | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-motorola-edge-40-drfone-by-drfone-virtual-android/" ><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Motorola Edge 40 | Dr.fone</u></a></li>
 </ul></div>
+
 

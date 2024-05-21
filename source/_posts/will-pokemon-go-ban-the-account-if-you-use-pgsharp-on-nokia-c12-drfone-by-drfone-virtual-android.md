@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Nokia C12 | Dr.fone
-date: 2024-04-30T07:33:40.154Z
-updated: 2024-05-01T07:33:40.154Z
+date: 2024-05-20T04:42:59.796Z
+updated: 2024-05-21T04:42:59.796Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -356,4 +356,5 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Nokia C12 Pro? | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/does-tecno-camon-20-premier-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Tecno Camon 20 Premier 5G Have Find My Friends? | Dr.fone</u></a></li>
 </ul></div>
+
 

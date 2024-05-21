@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Lava Yuva 3 Pro? | Dr.fone
-date: 2024-04-30T07:21:20.116Z
-updated: 2024-05-01T07:21:20.116Z
+date: 2024-05-20T04:42:13.675Z
+updated: 2024-05-21T04:42:13.675Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -434,4 +434,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-how-to-create-ai-powered-videos-using-synthesia-avatar-and-voices/"><u>New 2024 Approved How To Create AI-Powered Videos Using Synthesia Avatar and Voices</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-what-is-an-ai-text-generator-wondershare-virbo-glossary/"><u>New In 2024, What Is an AI Text Generator? | Wondershare Virbo Glossary</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Can I use iTools gpx file to catch the rare Pokemon On Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:17.023Z
-updated: 2024-05-01T07:15:17.023Z
+date: 2024-05-20T04:41:43.439Z
+updated: 2024-05-21T04:41:43.439Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -384,4 +384,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-11-5g-drfone-by-drfone-virtual-android/" ><u>Reasons why Pokémon GPS does not Work On Realme 11 5G? | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-15-drfone-by-drfone-virtual-ios/" ><u>Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 15? | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Moto E13 | Dr.fone
-date: 2024-04-30T07:24:13.817Z
-updated: 2024-05-01T07:24:13.817Z
+date: 2024-05-20T04:42:24.044Z
+updated: 2024-05-21T04:42:24.044Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -470,4 +470,5 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 <li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-12-pro-5g-by-fonelab-android-recover-call-logs/"><u>How To  Restore Missing Call Logs from 12 Pro 5G</u></a></li>
 <li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Honor Play 40C | Dr.fone</u></a></li>
 </ul></div>
+
 

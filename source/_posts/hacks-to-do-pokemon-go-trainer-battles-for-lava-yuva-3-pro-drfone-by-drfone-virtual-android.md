@@ -1,7 +1,7 @@
 ---
 title: Hacks to do pokemon go trainer battles For Lava Yuva 3 Pro | Dr.fone
-date: 2024-04-30T07:21:18.159Z
-updated: 2024-05-01T07:21:18.159Z
+date: 2024-05-20T04:42:13.592Z
+updated: 2024-05-21T04:42:13.592Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -327,4 +327,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-lyric-video-production-made-easy-best-online-tools/"><u>Updated 2024 Approved Lyric Video Production Made Easy Best Online Tools</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-edge-2023-by-fonelab-android-recover-video/"><u>How to recover old videos from your Edge 2023</u></a></li>
 </ul></div>
+
 

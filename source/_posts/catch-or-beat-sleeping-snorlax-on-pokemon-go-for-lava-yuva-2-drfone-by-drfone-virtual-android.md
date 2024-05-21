@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Lava Yuva 2 | Dr.fone
-date: 2024-04-30T07:19:39.200Z
-updated: 2024-05-01T07:19:39.200Z
+date: 2024-05-20T04:42:07.344Z
+updated: 2024-05-21T04:42:07.344Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -445,4 +445,5 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 <li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-15-pro-to-an-older-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 15 Pro to an Older Version? | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-infinix-note-30-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Infinix Note 30 Without Volume Buttons | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Sony Xperia 10 V? | Dr.fone
-date: 2024-04-30T07:15:17.188Z
-updated: 2024-05-01T07:15:17.188Z
+date: 2024-05-20T04:41:44.892Z
+updated: 2024-05-21T04:41:44.892Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -438,4 +438,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y78t-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y78t to BlackBerry | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-vivo-y36i-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Vivo Y36i FRP Without Computer</u></a></li>
 </ul></div>
+
 

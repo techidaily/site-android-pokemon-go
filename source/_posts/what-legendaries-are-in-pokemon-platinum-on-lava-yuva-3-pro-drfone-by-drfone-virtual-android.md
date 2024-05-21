@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Lava Yuva 3 Pro? | Dr.fone
-date: 2024-04-30T07:21:15.698Z
-updated: 2024-05-01T07:21:15.698Z
+date: 2024-05-20T04:42:13.452Z
+updated: 2024-05-21T04:42:13.452Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -382,4 +382,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-oppo-reno-10-proplus-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Oppo Reno 10 Pro+ 5G</u></a></li>
 <li><a href="https://ai-video-editing.techidaily.com/new-top-10-fun-discord-bots-you-need-for-2024/"><u>New Top 10 Fun Discord Bots You Need for 2024</u></a></li>
 </ul></div>
+
 

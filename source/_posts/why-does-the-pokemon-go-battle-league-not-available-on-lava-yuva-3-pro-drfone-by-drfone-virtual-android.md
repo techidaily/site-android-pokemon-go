@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Lava Yuva 3 Pro | Dr.fone
-date: 2024-04-30T07:21:11.873Z
-updated: 2024-05-01T07:21:11.873Z
+date: 2024-05-20T04:42:13.220Z
+updated: 2024-05-21T04:42:13.220Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -415,4 +415,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://android-location-track.techidaily.com/in-2024-top-9-nokia-c12-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Nokia C12 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-galaxy-a15-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Galaxy A15 5G?</u></a></li>
 </ul></div>
+
 

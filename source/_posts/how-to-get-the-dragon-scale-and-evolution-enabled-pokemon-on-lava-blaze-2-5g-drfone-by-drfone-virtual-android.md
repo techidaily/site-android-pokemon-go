@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Blaze 2 5G? | Dr.fone
-date: 2024-04-30T07:20:47.721Z
-updated: 2024-05-01T07:20:47.721Z
+date: 2024-05-20T04:42:11.636Z
+updated: 2024-05-21T04:42:11.636Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -435,4 +435,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://ai-editing-video.techidaily.com/1713954136670-updated-in-2024-how-to-convert-images-into-video-kapwing-tutorial/"><u>Updated In 2024, How to Convert Images Into Video - Kapwing Tutorial</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/how-can-xiaomi-redmi-note-12-pro-4gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Xiaomi Redmi Note 12 Pro 4GMirror Share to PC? | Dr.fone</u></a></li>
 </ul></div>
+
 

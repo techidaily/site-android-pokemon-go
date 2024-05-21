@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Lava Yuva 3 | Dr.fone
-date: 2024-04-30T07:22:15.773Z
-updated: 2024-05-01T07:22:15.773Z
+date: 2024-05-20T04:42:16.844Z
+updated: 2024-05-21T04:42:16.844Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -389,4 +389,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-realme-gt-5-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Realme GT 5</u></a></li>
 <li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-samsung-galaxy-s23-fe-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Samsung Galaxy S23 FE without backup.</u></a></li>
 </ul></div>
+
 

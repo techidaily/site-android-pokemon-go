@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Motorola Moto G14? | Dr.fone
-date: 2024-04-30T07:28:12.617Z
-updated: 2024-05-01T07:28:12.617Z
+date: 2024-05-20T04:42:39.157Z
+updated: 2024-05-21T04:42:39.157Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -385,4 +385,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://ai-video-editing.techidaily.com/new-in-2024-the-ultimate-wedding-videography-checklist/"><u>New In 2024, The Ultimate Wedding Videography Checklist</u></a></li>
 <li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-oppo-k11-5g-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Oppo K11 5G</u></a></li>
 </ul></div>
+
 

@@ -488,3 +488,4 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://techidaily.com/is-your-nokia-c12-plus-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Nokia C12 Plus working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
 </ul></div>
 
+

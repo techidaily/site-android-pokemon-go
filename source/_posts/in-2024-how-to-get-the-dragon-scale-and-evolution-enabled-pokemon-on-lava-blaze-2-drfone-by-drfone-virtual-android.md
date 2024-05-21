@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Lava Blaze 2? | Dr.fone
-date: 2024-04-30T07:18:53.759Z
-updated: 2024-05-01T07:18:53.759Z
+date: 2024-05-20T04:42:04.881Z
+updated: 2024-05-21T04:42:04.881Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -372,4 +372,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-12-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus 12 to Outlook | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-realme-v30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Realme V30 | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Lava Blaze 2 Pro | Dr.fone
-date: 2024-04-30T07:19:58.015Z
-updated: 2024-05-01T07:19:58.015Z
+date: 2024-05-20T04:42:08.718Z
+updated: 2024-05-21T04:42:08.718Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -351,4 +351,5 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-sony-xperia-1-v-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Sony Xperia 1 V | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-xiaomi-redmi-note-13-proplus-5g-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Xiaomi Redmi Note 13 Pro+ 5G</u></a></li>
 </ul></div>
+
 

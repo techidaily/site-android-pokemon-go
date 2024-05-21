@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Nokia C12? | Dr.fone
-date: 2024-04-30T07:33:40.777Z
-updated: 2024-05-01T07:33:40.777Z
+date: 2024-05-20T04:42:59.828Z
+updated: 2024-05-21T04:42:59.828Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -351,4 +351,5 @@ Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this m
 <li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-nord-n30-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Nord N30 5G</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 8? | Dr.fone</u></a></li>
 </ul></div>
+
 

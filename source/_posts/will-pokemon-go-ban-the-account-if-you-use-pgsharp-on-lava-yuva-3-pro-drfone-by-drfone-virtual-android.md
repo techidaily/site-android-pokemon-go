@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 3 Pro | Dr.fone
-date: 2024-04-30T07:21:11.655Z
-updated: 2024-05-01T07:21:11.655Z
+date: 2024-05-20T04:42:13.215Z
+updated: 2024-05-21T04:42:13.215Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -414,4 +414,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
 <li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Yuva 2 | Dr.fone
-date: 2024-04-30T07:19:32.431Z
-updated: 2024-05-01T07:19:32.431Z
+date: 2024-05-20T04:42:06.992Z
+updated: 2024-05-21T04:42:06.992Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -543,4 +543,5 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 <li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-motorola-moto-g73-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Motorola Moto G73 5G Phones with/without a PC</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mp4-files-on-xiaomi-redmi-note-12-4g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How do you play MP4 files on Xiaomi Redmi Note 12 4G?</u></a></li>
 </ul></div>
+
 

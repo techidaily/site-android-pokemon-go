@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:26.634Z
-updated: 2024-05-01T07:18:26.634Z
+date: 2024-05-20T04:42:03.384Z
+updated: 2024-05-21T04:42:03.384Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -429,4 +429,5 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-honor-100-pro-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Honor 100 Pro Running Slow and Freezing | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/complete-tutorial-for-sony-xperia-1-v-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Sony Xperia 1 V Hard Reset | Dr.fone</u></a></li>
 </ul></div>
+
 

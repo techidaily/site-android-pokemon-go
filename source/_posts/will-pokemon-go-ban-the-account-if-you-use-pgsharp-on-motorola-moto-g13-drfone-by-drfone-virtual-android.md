@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G13 | Dr.fone
-date: 2024-04-30T07:24:38.616Z
-updated: 2024-05-01T07:24:38.616Z
+date: 2024-05-20T04:42:25.570Z
+updated: 2024-05-21T04:42:25.570Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -406,4 +406,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://ai-editing-video.techidaily.com/how-to-google-meet-green-screen/"><u>How to Google Meet Green Screen</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/little-known-ways-of-adding-emojis-to-photos-on-iphone-and-android-2023/"><u>Little Known Ways of Adding Emojis to Photos on iPhone & Android 2023</u></a></li>
 </ul></div>
+
 

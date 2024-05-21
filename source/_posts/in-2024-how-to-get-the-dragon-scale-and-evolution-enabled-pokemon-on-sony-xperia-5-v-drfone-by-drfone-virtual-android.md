@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Sony Xperia 5 V? | Dr.fone
-date: 2024-04-30T07:15:17.442Z
-updated: 2024-05-01T07:15:17.442Z
+date: 2024-05-20T04:41:46.676Z
+updated: 2024-05-21T04:41:46.676Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -328,4 +328,5 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 <li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-note-30-pro-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Infinix Note 30 Pro Phone without Google Account?</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-14-pro-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 14 Pro Unavailable Issue With Ease</u></a></li>
 </ul></div>
+
 

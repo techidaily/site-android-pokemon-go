@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-30T07:15:17.144Z
-updated: 2024-05-01T07:15:17.144Z
+date: 2024-05-20T04:41:44.490Z
+updated: 2024-05-21T04:41:44.490Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -450,4 +450,5 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 <li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/" ><u>Thinking About Changing Your Netflix Region Without a VPN On Infinix Zero 5G 2023 Turbo? | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-oppo-a2-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>Guide How To Unbrick a Bricked Oppo A2 Phone | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:25.960Z
-updated: 2024-05-01T07:18:25.960Z
+date: 2024-05-20T04:42:03.344Z
+updated: 2024-05-21T04:42:03.344Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -380,4 +380,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi 13T Pro | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-motorola-edge-40-neo-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Motorola Edge 40 Neo to Computer for iPhone and Android? | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Motorola Razr 40 Ultra? | Dr.fone
-date: 2024-04-30T07:27:54.936Z
-updated: 2024-05-01T07:27:54.936Z
+date: 2024-05-20T04:42:38.102Z
+updated: 2024-05-21T04:42:38.102Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -464,4 +464,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-samsung-galaxy-s23-fe-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Samsung Galaxy S23 FE</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-can-you-unlock-iphone-12-pro-max-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>In 2024, Can You Unlock iPhone 12 Pro Max After Forgetting the Passcode? | Dr.fone</u></a></li>
 </ul></div>
+
 

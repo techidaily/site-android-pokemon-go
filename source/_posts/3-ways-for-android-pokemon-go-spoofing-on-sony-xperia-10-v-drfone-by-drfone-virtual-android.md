@@ -1,7 +1,7 @@
 ---
 title: 3 Ways for Android Pokemon Go Spoofing On Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.157Z
-updated: 2024-05-01T07:15:17.157Z
+date: 2024-05-20T04:41:44.581Z
+updated: 2024-05-21T04:41:44.581Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -468,4 +468,5 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-honor-play-40c-drfone-by-drfone-virtual-android/" ><u>3 Ways to Fake GPS Without Root On Honor Play 40C | Dr.fone</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-infinix-smart-7-hd-by-drfone-android/" ><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Infinix Smart 7 HD</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Sony Xperia 10 V? | Dr.fone
-date: 2024-04-30T07:15:17.172Z
-updated: 2024-05-01T07:15:17.172Z
+date: 2024-05-20T04:41:44.716Z
+updated: 2024-05-21T04:41:44.716Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -406,4 +406,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-realme-v30t-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Realme V30T</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-itel-p55t-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Itel P55T to PC- Detailed Steps | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G23 | Dr.fone
-date: 2024-04-30T07:25:02.918Z
-updated: 2024-05-01T07:25:02.918Z
+date: 2024-05-20T04:42:27.033Z
+updated: 2024-05-21T04:42:27.033Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -504,4 +504,5 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 <li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-vivo-x-fold-2-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Vivo X Fold 2</u></a></li>
 <li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-itel-s23plus-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Itel S23+ Phone | Dr.fone</u></a></li>
 </ul></div>
+
 

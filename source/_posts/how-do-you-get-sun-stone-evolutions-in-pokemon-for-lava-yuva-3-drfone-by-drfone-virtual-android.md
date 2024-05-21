@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Yuva 3? | Dr.fone
-date: 2024-04-30T07:21:57.543Z
-updated: 2024-05-01T07:21:57.543Z
+date: 2024-05-20T04:42:15.857Z
+updated: 2024-05-21T04:42:15.857Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -476,4 +476,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://review-topics.techidaily.com/mov-playback-issues-on-motorola-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV playback issues on Motorola</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-play-40c-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor Play 40C to Samsung Phone | Dr.fone</u></a></li>
 </ul></div>
+
 

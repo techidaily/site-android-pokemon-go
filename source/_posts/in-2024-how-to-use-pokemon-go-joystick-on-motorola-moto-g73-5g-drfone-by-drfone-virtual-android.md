@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Motorola Moto G73 5G? | Dr.fone
-date: 2024-04-30T07:26:06.089Z
-updated: 2024-05-01T07:26:06.089Z
+date: 2024-05-20T04:42:31.106Z
+updated: 2024-05-21T04:42:31.106Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -415,4 +415,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme GT 5? | Dr.fone</u></a></li>
 <li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-how-to-create-your-own-lol-montage-video/"><u>New 2024 Approved How to Create Your Own LOL Montage Video</u></a></li>
 </ul></div>
+
 

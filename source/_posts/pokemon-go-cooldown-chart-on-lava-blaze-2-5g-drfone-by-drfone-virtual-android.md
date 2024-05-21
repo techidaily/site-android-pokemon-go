@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Blaze 2 5G | Dr.fone
-date: 2024-04-30T07:20:47.505Z
-updated: 2024-05-01T07:20:47.505Z
+date: 2024-05-20T04:42:11.629Z
+updated: 2024-05-21T04:42:11.629Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -455,4 +455,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://meme-emoji.techidaily.com/new-how-to-make-your-own-emoji-in-2-ways-step-by-step-guide-for-2024/"><u>New How to Make Your Own Emoji in 2 Ways Step-By Step Guide for 2024</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-lava-blaze-curve-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Lava Blaze Curve 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

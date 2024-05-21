@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze 2 5G | Dr.fone
-date: 2024-04-30T07:21:05.704Z
-updated: 2024-05-01T07:21:05.704Z
+date: 2024-05-20T04:42:12.625Z
+updated: 2024-05-21T04:42:12.625Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -514,4 +514,5 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 <li><a href="https://ai-voice-clone.techidaily.com/updated-what-is-chatgpt-in-2024/"><u>Updated What Is ChatGPT, In 2024</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-13-stellar-video-editing-software-options-besides-wmm/"><u>2024 Approved 13 Stellar Video Editing Software Options (Besides WMM)</u></a></li>
 </ul></div>
+
 

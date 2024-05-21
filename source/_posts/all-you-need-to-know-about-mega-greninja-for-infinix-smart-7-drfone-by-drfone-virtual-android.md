@@ -296,3 +296,4 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/" ><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze 2 5G | Dr.fone</u></a></li>
 </ul></div>
 
+

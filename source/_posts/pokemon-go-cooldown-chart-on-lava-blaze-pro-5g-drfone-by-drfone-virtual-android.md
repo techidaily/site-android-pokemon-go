@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Blaze Pro 5G | Dr.fone
-date: 2024-04-30T07:20:22.809Z
-updated: 2024-05-01T07:20:22.809Z
+date: 2024-05-20T04:42:10.171Z
+updated: 2024-05-21T04:42:10.171Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -597,4 +597,5 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 <li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-vivo-y02t-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Vivo Y02T Device</u></a></li>
 <li><a href="https://techidaily.com/how-to-easily-hard-reset-my-xiaomi-13-ultra-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Xiaomi 13 Ultra | Dr.fone</u></a></li>
 </ul></div>
+
 

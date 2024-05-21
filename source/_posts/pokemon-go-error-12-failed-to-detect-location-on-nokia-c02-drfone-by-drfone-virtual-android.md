@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Nokia C02? | Dr.fone
-date: 2024-04-30T07:31:57.397Z
-updated: 2024-05-01T07:31:57.397Z
+date: 2024-05-20T04:42:53.741Z
+updated: 2024-05-21T04:42:53.741Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -497,4 +497,5 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Infinix Smart 7 HD | Dr.fone</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-infinix-hot-40-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Infinix Hot 40? 7 Ways to Resolve | Dr.fone</u></a></li>
 </ul></div>
+
 

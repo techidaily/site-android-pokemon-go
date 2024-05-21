@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Moto G13 | Dr.fone
-date: 2024-04-30T07:24:39.048Z
-updated: 2024-05-01T07:24:39.048Z
+date: 2024-05-20T04:42:25.587Z
+updated: 2024-05-21T04:42:25.587Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -484,4 +484,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/updated-create-ai-avatar-video-with-avatar-online/"><u>Updated Create AI Avatar Video with Avatar | Online</u></a></li>
 </ul></div>
+
 

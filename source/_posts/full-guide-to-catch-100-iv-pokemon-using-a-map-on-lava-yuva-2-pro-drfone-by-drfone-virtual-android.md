@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:13.594Z
-updated: 2024-05-01T07:18:13.594Z
+date: 2024-05-20T04:42:02.440Z
+updated: 2024-05-21T04:42:02.440Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -417,4 +417,5 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-6-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 6 Without Losing Data? | Dr.fone</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/best-motorola-moto-g13-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Motorola Moto G13 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
 </ul></div>
+
 

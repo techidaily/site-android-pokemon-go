@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-30T07:15:16.967Z
-updated: 2024-05-01T07:15:16.967Z
+date: 2024-05-20T04:41:42.905Z
+updated: 2024-05-21T04:41:42.905Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -354,4 +354,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-htc-u23-drfone-by-drfone-virtual-android/" ><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For HTC U23 | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-nokia-xr21-drfone-by-drfone-virtual-android/" ><u>In 2024, Additional Tips About Sinnoh Stone For Nokia XR21 | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Lava Blaze 2 5G? | Dr.fone
-date: 2024-04-30T07:20:49.011Z
-updated: 2024-05-01T07:20:49.011Z
+date: 2024-05-20T04:42:11.723Z
+updated: 2024-05-21T04:42:11.723Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -407,4 +407,5 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 <li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Motorola Moto G24 | Dr.fone</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-honor-play-8t-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Honor Play 8T? Try These Fixes</u></a></li>
 </ul></div>
+
 

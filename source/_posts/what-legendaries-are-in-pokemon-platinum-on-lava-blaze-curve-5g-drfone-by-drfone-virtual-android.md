@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Lava Blaze Curve 5G? | Dr.fone
-date: 2024-04-30T07:22:33.354Z
-updated: 2024-05-01T07:22:33.354Z
+date: 2024-05-20T04:42:17.835Z
+updated: 2024-05-21T04:42:17.835Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -430,4 +430,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://animation-videos.techidaily.com/obs-animated-alternatives-for-2024/"><u>OBS Animated Alternatives for 2024</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-samsung-galaxy-f54-5g-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Samsung Galaxy F54 5G</u></a></li>
 </ul></div>
+
 

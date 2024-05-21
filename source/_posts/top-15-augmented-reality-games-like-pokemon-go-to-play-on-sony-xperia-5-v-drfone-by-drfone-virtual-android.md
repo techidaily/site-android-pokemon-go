@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Sony Xperia 5 V | Dr.fone
-date: 2024-04-30T07:15:17.370Z
-updated: 2024-05-01T07:15:17.370Z
+date: 2024-05-20T04:41:46.259Z
+updated: 2024-05-21T04:41:46.259Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -496,4 +496,5 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 <li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo V27 | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/gmail-not-working-on-tecno-spark-20-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Tecno Spark 20 7 Common Problems & Fixes | Dr.fone</u></a></li>
 </ul></div>
+
 

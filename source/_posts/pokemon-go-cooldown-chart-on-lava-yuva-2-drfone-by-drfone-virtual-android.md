@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Yuva 2 | Dr.fone
-date: 2024-04-30T07:19:33.808Z
-updated: 2024-05-01T07:19:33.808Z
+date: 2024-05-20T04:42:07.062Z
+updated: 2024-05-21T04:42:07.062Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -453,4 +453,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://techidaily.com/three-solutions-to-hard-reset-samsung-galaxy-m54-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Samsung Galaxy M54 5G? | Dr.fone</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-7-plus-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone 7 Plus Without a Passcode | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Asus ROG Phone 8 Pro | Dr.fone
-date: 2024-04-30T07:15:17.961Z
-updated: 2024-05-01T07:15:17.961Z
+date: 2024-05-20T04:41:50.432Z
+updated: 2024-05-21T04:41:50.432Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -383,4 +383,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-samsung-galaxy-xcover-6-pro-tactical-edition-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Samsung Galaxy XCover 6 Pro Tactical Edition FRP</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-apple-iphone-15-plus-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone 15 Plus When Its Locked Within Seconds | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:17.062Z
-updated: 2024-05-01T07:15:17.062Z
+date: 2024-05-20T04:41:43.701Z
+updated: 2024-05-21T04:41:43.701Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -368,4 +368,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://ios-pokemon-go.techidaily.com/in-2024-heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/" ><u>In 2024, Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-realme-11x-5g-phone-screen-by-drfone-android/" ><u>In 2024, How Can We Unlock Our Realme 11X 5G Phone Screen?</u></a></li>
 </ul></div>
+
 

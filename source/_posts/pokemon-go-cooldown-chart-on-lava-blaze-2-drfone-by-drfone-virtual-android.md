@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Blaze 2 | Dr.fone
-date: 2024-04-30T07:18:39.821Z
-updated: 2024-05-01T07:18:39.821Z
+date: 2024-05-20T04:42:04.152Z
+updated: 2024-05-21T04:42:04.152Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -425,4 +425,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://ios-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-iphone-11-pro-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For iPhone 11 Pro</u></a></li>
 <li><a href="https://techidaily.com/how-to-recover-lost-data-from-apple-iphone-14-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data from Apple iPhone 14? | Dr.fone</u></a></li>
 </ul></div>
+
 

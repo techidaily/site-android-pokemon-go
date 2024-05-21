@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Lava Yuva 2 | Dr.fone
-date: 2024-04-30T07:19:30.685Z
-updated: 2024-05-01T07:19:30.685Z
+date: 2024-05-20T04:42:06.896Z
+updated: 2024-05-21T04:42:06.896Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -348,4 +348,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-realme-v30t-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Realme V30T Devices | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-vivo-x100-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Vivo X100.</u></a></li>
 </ul></div>
+
 

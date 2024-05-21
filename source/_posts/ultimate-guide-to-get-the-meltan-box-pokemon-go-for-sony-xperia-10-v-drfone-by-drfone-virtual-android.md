@@ -1,7 +1,7 @@
 ---
 title: Ultimate guide to get the meltan box pokemon go For Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.121Z
-updated: 2024-05-01T07:15:17.121Z
+date: 2024-05-20T04:41:44.297Z
+updated: 2024-05-21T04:41:44.297Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -401,4 +401,5 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 <li><a href="https://change-location.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-g2-drfone-by-drfone-virtual-android/" ><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Vivo G2 | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/how-do-i-restore-excel-2023-file-by-stellar-guide/" ><u>How Do I Restore Excel 2023 File ?</u></a></li>
 </ul></div>
+
 

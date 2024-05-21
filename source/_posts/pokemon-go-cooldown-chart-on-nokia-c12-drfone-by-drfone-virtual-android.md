@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Nokia C12 | Dr.fone
-date: 2024-04-30T07:33:40.572Z
-updated: 2024-05-01T07:33:40.572Z
+date: 2024-05-20T04:42:59.813Z
+updated: 2024-05-21T04:42:59.813Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -471,4 +471,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://ai-topics.techidaily.com/demystifying-ai-game-generators-for-2024/"><u>Demystifying AI Game Generators for 2024</u></a></li>
 <li><a href="https://fake-location.techidaily.com/how-to-fix-my-vivo-x100-pro-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Vivo X100 Pro Location Is Wrong | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Lava Agni 2 5G | Dr.fone
-date: 2024-04-30T07:19:06.370Z
-updated: 2024-05-01T07:19:06.370Z
+date: 2024-05-20T04:42:05.603Z
+updated: 2024-05-21T04:42:05.603Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -577,4 +577,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-narzo-n53-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme Narzo N53 To Phone | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/full-guide-to-hard-reset-your-nokia-c12-plus-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Nokia C12 Plus | Dr.fone</u></a></li>
 </ul></div>
+
 

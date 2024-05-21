@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Motorola Moto G14? | Dr.fone
-date: 2024-04-30T07:28:13.489Z
-updated: 2024-05-01T07:28:13.489Z
+date: 2024-05-20T04:42:39.224Z
+updated: 2024-05-21T04:42:39.224Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -445,4 +445,5 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 <li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-12-pro-max-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer Data from Apple iPhone 12 Pro Max to New iPhone 15 | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-c50-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Poco C50 Pattern Lock if Forgotten? 6 Ways</u></a></li>
 </ul></div>
+
 

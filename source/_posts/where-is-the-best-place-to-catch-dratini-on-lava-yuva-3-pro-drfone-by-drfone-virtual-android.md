@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Lava Yuva 3 Pro | Dr.fone
-date: 2024-04-30T07:21:12.547Z
-updated: 2024-05-01T07:21:12.547Z
+date: 2024-05-20T04:42:13.259Z
+updated: 2024-05-21T04:42:13.259Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -392,4 +392,5 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 <li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-vivo-s17t-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Vivo S17t</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/what-are-ai-tools-wondershare-virbo-glossary-for-2024/"><u>What Are AI Tools? | Wondershare Virbo Glossary for 2024</u></a></li>
 </ul></div>
+
 

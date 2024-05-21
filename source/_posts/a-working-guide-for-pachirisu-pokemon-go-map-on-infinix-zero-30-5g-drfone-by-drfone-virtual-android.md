@@ -420,3 +420,4 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-motorola-moto-g14-drfone-by-drfone-virtual-android/" ><u>Pokémon Go Cooldown Chart On Motorola Moto G14 | Dr.fone</u></a></li>
 </ul></div>
 
+

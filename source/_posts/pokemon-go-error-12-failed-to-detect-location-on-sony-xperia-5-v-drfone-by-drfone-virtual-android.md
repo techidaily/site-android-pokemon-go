@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Sony Xperia 5 V? | Dr.fone
-date: 2024-04-30T07:15:17.339Z
-updated: 2024-05-01T07:15:17.339Z
+date: 2024-05-20T04:41:45.958Z
+updated: 2024-05-21T04:41:45.958Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -420,4 +420,5 @@ There you go! I’m sure that after reading this post, you would be able to know
 <li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-infinix-note-30-vip-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Infinix Note 30 VIP FRP Bypass</u></a></li>
 <li><a href="https://android-frp.techidaily.com/how-to-bypass-oppo-a78-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Oppo A78 FRP In 3 Different Ways</u></a></li>
 </ul></div>
+
 

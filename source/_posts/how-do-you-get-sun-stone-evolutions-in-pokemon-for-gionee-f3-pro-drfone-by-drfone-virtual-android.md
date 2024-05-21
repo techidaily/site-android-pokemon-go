@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Gionee F3 Pro? | Dr.fone
-date: 2024-04-30T07:15:35.788Z
-updated: 2024-05-01T07:15:35.788Z
+date: 2024-05-20T04:41:53.293Z
+updated: 2024-05-21T04:41:53.293Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -443,4 +443,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-infinix-note-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Infinix Note 30i | Dr.fone</u></a></li>
 <li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-oppo-a38-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Oppo A38 | Dr.fone</u></a></li>
 </ul></div>
+
 

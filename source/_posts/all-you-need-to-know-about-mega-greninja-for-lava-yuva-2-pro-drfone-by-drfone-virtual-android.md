@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:11.435Z
-updated: 2024-05-01T07:18:11.436Z
+date: 2024-05-20T04:42:02.320Z
+updated: 2024-05-21T04:42:02.320Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -359,4 +359,5 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-apple-iphone-se-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From Apple iPhone SE Lock Screen</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-xiaomi-13-ultra-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Xiaomi 13 Ultra to Latest Samsung | Dr.fone</u></a></li>
 </ul></div>
+
 

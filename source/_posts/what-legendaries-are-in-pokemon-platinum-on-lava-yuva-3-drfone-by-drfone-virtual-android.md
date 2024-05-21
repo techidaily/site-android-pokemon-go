@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Lava Yuva 3? | Dr.fone
-date: 2024-04-30T07:22:06.083Z
-updated: 2024-05-01T07:22:06.083Z
+date: 2024-05-20T04:42:16.360Z
+updated: 2024-05-21T04:42:16.360Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -400,4 +400,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-blade-a73-5g-phone-without-password-by-drfone-android/"><u>How To Unlock ZTE Blade A73 5G Phone Without Password?</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-vivo-v29-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Vivo V29 Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
 </ul></div>
+
 

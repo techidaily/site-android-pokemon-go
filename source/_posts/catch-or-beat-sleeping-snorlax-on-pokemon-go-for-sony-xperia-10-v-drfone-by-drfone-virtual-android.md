@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.171Z
-updated: 2024-05-01T07:15:17.171Z
+date: 2024-05-20T04:41:44.704Z
+updated: 2024-05-21T04:41:44.704Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -354,4 +354,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-motorola-g24-power-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Motorola G24 Power | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Motorola Razr 40? | Dr.fone
-date: 2024-04-30T07:27:32.320Z
-updated: 2024-05-01T07:27:32.320Z
+date: 2024-05-20T04:42:36.512Z
+updated: 2024-05-21T04:42:36.512Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -422,4 +422,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://animation-videos.techidaily.com/the-15-most-efficient-photo-to-cartoon-software-for-android/"><u>The 15 Most Efficient Photo to Cartoon Software for Android</u></a></li>
 <li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Motorola Moto G13 | Dr.fone</u></a></li>
 </ul></div>
+
 

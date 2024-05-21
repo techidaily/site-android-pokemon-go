@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Blaze Curve 5G? | Dr.fone
-date: 2024-04-30T07:22:29.609Z
-updated: 2024-05-01T07:22:29.609Z
+date: 2024-05-20T04:42:17.613Z
+updated: 2024-05-21T04:42:17.613Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -385,4 +385,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Tecno Spark Go (2023) | Dr.fone</u></a></li>
 <li><a href="https://android-frp.techidaily.com/how-can-we-bypass-motorola-frp-by-drfone-android/"><u>How Can We Bypass Motorola FRP?</u></a></li>
 </ul></div>
+
 

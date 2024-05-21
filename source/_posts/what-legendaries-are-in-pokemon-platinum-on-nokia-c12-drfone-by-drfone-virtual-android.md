@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Nokia C12? | Dr.fone
-date: 2024-04-30T07:33:44.131Z
-updated: 2024-05-01T07:33:44.131Z
+date: 2024-05-20T04:43:00.017Z
+updated: 2024-05-21T04:43:00.017Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -400,4 +400,5 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 <li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-vivo-y17s-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Vivo Y17s</u></a></li>
 <li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor Magic V2? | Dr.fone</u></a></li>
 </ul></div>
+
 

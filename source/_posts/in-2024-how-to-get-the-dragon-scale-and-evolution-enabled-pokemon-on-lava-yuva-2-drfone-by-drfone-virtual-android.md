@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 2? | Dr.fone
-date: 2024-04-30T07:19:46.370Z
-updated: 2024-05-01T07:19:46.370Z
+date: 2024-05-20T04:42:07.782Z
+updated: 2024-05-21T04:42:07.782Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -382,4 +382,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-honor-100-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Honor 100 Without Power Button | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Motorola Moto G73 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

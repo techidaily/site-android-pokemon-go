@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Razr 40 | Dr.fone
-date: 2024-04-30T07:27:28.836Z
-updated: 2024-05-01T07:27:28.836Z
+date: 2024-05-20T04:42:36.298Z
+updated: 2024-05-21T04:42:36.298Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -453,4 +453,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://techidaily.com/recover-apple-iphone-14-pro-max-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 14 Pro Max Data From iOS iTunes Backup | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-realme-c67-5g-phone-by-drfone-android/"><u>How to Reset a Locked Realme C67 5G Phone</u></a></li>
 </ul></div>
+
 

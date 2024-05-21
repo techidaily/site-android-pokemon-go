@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Lava Yuva 2? | Dr.fone
-date: 2024-04-30T07:19:47.792Z
-updated: 2024-05-01T07:19:47.792Z
+date: 2024-05-20T04:42:08.048Z
+updated: 2024-05-21T04:42:08.048Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -462,4 +462,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-vivo-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Vivo Like A Pro 5 Easy Ways</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-nokia-c12-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Nokia C12 PC | Dr.fone</u></a></li>
 </ul></div>
+
 

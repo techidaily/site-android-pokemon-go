@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Yuva 2 Pro? | Dr.fone
-date: 2024-04-30T07:18:09.571Z
-updated: 2024-05-01T07:18:09.571Z
+date: 2024-05-20T04:42:02.188Z
+updated: 2024-05-21T04:42:02.188Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -524,4 +524,5 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 <li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Tecno Spark Go (2023) | Dr.fone</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/updated-7-best-whiteboard-explainer-videos-to-inspire-you/"><u>Updated 7 Best Whiteboard Explainer Videos to Inspire You</u></a></li>
 </ul></div>
+
 

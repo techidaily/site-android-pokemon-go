@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Yuva 2 Pro | Dr.fone
-date: 2024-04-30T07:18:33.084Z
-updated: 2024-05-01T07:18:33.084Z
+date: 2024-05-20T04:42:03.708Z
+updated: 2024-05-21T04:42:03.708Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -520,4 +520,5 @@ Unlike most other location-faking apps, Dr.Fone - Virtual Location works without
 <li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-must-have-apps-for-real-time-video-translation/"><u>Updated In 2024, Must-Have Apps for Real-Time Video Translation</u></a></li>
 <li><a href="https://animation-videos.techidaily.com/in-2024-top-10-best-photo-to-animation-converters-that-give-you-an-advantage/"><u>In 2024, Top 10 Best Photo to Animation Converters That Give You an Advantage</u></a></li>
 </ul></div>
+
 

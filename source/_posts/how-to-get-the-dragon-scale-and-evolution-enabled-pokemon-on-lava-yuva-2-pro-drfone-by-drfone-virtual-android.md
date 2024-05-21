@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 2 Pro? | Dr.fone
-date: 2024-04-30T07:18:14.749Z
-updated: 2024-05-01T07:18:14.749Z
+date: 2024-05-20T04:42:02.486Z
+updated: 2024-05-21T04:42:02.486Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -445,4 +445,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://ai-voice-clone.techidaily.com/2024-approved-top-4-ways-of-instagram-video-promotion/"><u>2024 Approved Top 4 Ways of Instagram Video Promotion</u></a></li>
 <li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On Apple iPhone 13 Pro Max?</u></a></li>
 </ul></div>
+
 

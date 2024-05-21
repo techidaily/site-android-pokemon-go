@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 3 Pro? | Dr.fone
-date: 2024-04-30T07:21:12.328Z
-updated: 2024-05-01T07:21:12.328Z
+date: 2024-05-20T04:42:13.238Z
+updated: 2024-05-21T04:42:13.238Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -362,4 +362,5 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 <li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Samsung Galaxy S23+? | Dr.fone</u></a></li>
 <li><a href="https://ios-pokemon-go.techidaily.com/here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 6 | Dr.fone</u></a></li>
 </ul></div>
+
 

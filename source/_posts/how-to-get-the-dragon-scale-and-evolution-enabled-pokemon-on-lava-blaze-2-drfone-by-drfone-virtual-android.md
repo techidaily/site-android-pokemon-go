@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Blaze 2? | Dr.fone
-date: 2024-04-30T07:18:40.029Z
-updated: 2024-05-01T07:18:40.029Z
+date: 2024-05-20T04:42:04.160Z
+updated: 2024-05-21T04:42:04.160Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -406,4 +406,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-honor-x50-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Honor X50 to iPhone (13/14/15) | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-poco-f5-pro-5g-easily-by-drfone-android/"><u>In 2024, How To Unlock a Poco F5 Pro 5G Easily?</u></a></li>
 </ul></div>
+
 

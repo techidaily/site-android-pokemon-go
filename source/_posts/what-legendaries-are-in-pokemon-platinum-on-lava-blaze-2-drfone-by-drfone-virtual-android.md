@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Lava Blaze 2? | Dr.fone
-date: 2024-04-30T07:18:43.815Z
-updated: 2024-05-01T07:18:43.815Z
+date: 2024-05-20T04:42:04.382Z
+updated: 2024-05-21T04:42:04.382Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -419,4 +419,5 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-11-pro-max-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 11 Pro Max Randomly Asking for Apple ID Password</u></a></li>
 </ul></div>
+
 

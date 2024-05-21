@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On HTC U23 | Dr.fone
-date: 2024-04-30T07:16:09.752Z
-updated: 2024-05-01T07:16:09.752Z
+date: 2024-05-20T04:41:55.363Z
+updated: 2024-05-21T04:41:55.363Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -447,4 +447,5 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a14-4g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A14 4G Pattern Lock if Forgotten? 6 Ways</u></a></li>
 <li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-pro-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Pro To Other iPhone? | Dr.fone</u></a></li>
 </ul></div>
+
 

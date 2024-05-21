@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Lava Yuva 2 | Dr.fone
-date: 2024-04-30T07:19:33.043Z
-updated: 2024-05-01T07:19:33.043Z
+date: 2024-05-20T04:42:07.024Z
+updated: 2024-05-21T04:42:07.024Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -435,4 +435,5 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 <li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-lava-blaze-2-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Lava Blaze 2 FRP Bypass</u></a></li>
 <li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Nokia C22 | Dr.fone</u></a></li>
 </ul></div>
+
 

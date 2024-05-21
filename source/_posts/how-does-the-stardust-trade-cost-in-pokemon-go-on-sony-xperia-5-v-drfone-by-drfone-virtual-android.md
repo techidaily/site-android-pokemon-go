@@ -1,7 +1,7 @@
 ---
 title: How does the stardust trade cost In pokemon go On Sony Xperia 5 V? | Dr.fone
-date: 2024-04-30T07:15:17.369Z
-updated: 2024-05-01T07:15:17.369Z
+date: 2024-05-20T04:41:46.232Z
+updated: 2024-05-21T04:41:46.232Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -510,4 +510,5 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor X9b? | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-vivo-g2-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from Vivo G2</u></a></li>
 </ul></div>
+
 

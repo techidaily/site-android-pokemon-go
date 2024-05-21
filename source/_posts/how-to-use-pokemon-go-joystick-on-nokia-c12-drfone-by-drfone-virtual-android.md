@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Nokia C12? | Dr.fone
-date: 2024-04-30T07:33:42.117Z
-updated: 2024-05-01T07:33:42.117Z
+date: 2024-05-20T04:42:59.907Z
+updated: 2024-05-21T04:42:59.907Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -468,4 +468,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://ios-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-14-pro-max-in-lost-mode-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone 14 Pro Max in Lost Mode</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/download-the-best-video-editor-for-mac-splice-video-editor-for-2024/"><u>Download the Best Video Editor for Mac Splice Video Editor for 2024</u></a></li>
 </ul></div>
+
 

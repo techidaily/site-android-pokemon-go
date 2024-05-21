@@ -1,7 +1,7 @@
 ---
 title: Additional Tips About Sinnoh Stone For Sony Xperia 5 V | Dr.fone
-date: 2024-04-30T07:15:17.365Z
-updated: 2024-05-01T07:15:17.365Z
+date: 2024-05-20T04:41:46.195Z
+updated: 2024-05-21T04:41:46.195Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -390,4 +390,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone 12 | Dr.fone</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-the-apple-iphone-se-icloud-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing the Apple iPhone SE iCloud Lock</u></a></li>
 </ul></div>
+
 

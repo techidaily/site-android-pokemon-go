@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze Curve 5G | Dr.fone
-date: 2024-04-30T07:22:41.721Z
-updated: 2024-05-01T07:22:41.721Z
+date: 2024-05-20T04:42:18.667Z
+updated: 2024-05-21T04:42:18.667Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -447,4 +447,5 @@ Pokemon Go players must try the Routes and explore this feature. It’s indeed a
 <li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-xs-online-here-are-6-easy-ways-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone XS Online? Here are 6 Easy Ways</u></a></li>
 <li><a href="https://techidaily.com/how-to-easily-hard-reset-my-realme-gt-neo-5-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Realme GT Neo 5 | Dr.fone</u></a></li>
 </ul></div>
+
 

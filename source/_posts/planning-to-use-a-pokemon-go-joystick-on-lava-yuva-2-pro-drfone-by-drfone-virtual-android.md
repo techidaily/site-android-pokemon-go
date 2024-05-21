@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Lava Yuva 2 Pro? | Dr.fone
-date: 2024-04-30T07:18:08.733Z
-updated: 2024-05-01T07:18:08.733Z
+date: 2024-05-20T04:42:02.122Z
+updated: 2024-05-21T04:42:02.122Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -317,4 +317,5 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://techidaily.com/full-guide-to-hard-reset-your-xiaomi-redmi-12-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Xiaomi Redmi 12 | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-nokia-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Nokia</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Sony Xperia 1 V? | Dr.fone
-date: 2024-04-30T07:15:16.992Z
-updated: 2024-05-01T07:15:16.992Z
+date: 2024-05-20T04:41:43.159Z
+updated: 2024-05-21T04:41:43.159Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -293,4 +293,5 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 <li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-nokia-c12-plus-drfone-by-drfone-virtual-android/" ><u>Preparation to Beat Giovani in Pokemon Go For Nokia C12 Plus | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-motorola-edge-40-drfone-by-drfone-virtual-android/" ><u>In 2024, How to use iSpoofer on Motorola Edge 40? | Dr.fone</u></a></li>
 </ul></div>
+
 

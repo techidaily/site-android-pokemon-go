@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Sony Xperia 1 V? | Dr.fone
-date: 2024-04-30T07:15:16.971Z
-updated: 2024-05-01T07:15:16.971Z
+date: 2024-05-20T04:41:42.938Z
+updated: 2024-05-21T04:41:42.938Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -335,4 +335,5 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-nokia-c300-drfone-by-drfone-virtual-android/" ><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Nokia C300 | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-nokia-c32-drfone-by-drfone-virtual-android/" ><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C32 | Dr.fone</u></a></li>
 </ul></div>
+
 

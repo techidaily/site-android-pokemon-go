@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Sony Xperia 10 V | Dr.fone
-date: 2024-04-30T07:15:17.120Z
-updated: 2024-05-01T07:15:17.120Z
+date: 2024-05-20T04:41:44.286Z
+updated: 2024-05-21T04:41:44.286Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -360,4 +360,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/" ><u>How to Change Spotify Location After Moving to Another Country On Realme 12 Pro 5G | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-s17e-drfone-by-drfone-virtual-android/" ><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo S17e | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Can I Catch the Regional Pokémon without Traveling On Sony Xperia 1 V | Dr.fone
-date: 2024-04-30T07:15:17.087Z
-updated: 2024-05-01T07:15:17.087Z
+date: 2024-05-20T04:41:43.956Z
+updated: 2024-05-21T04:41:43.956Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -472,4 +472,5 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 <li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/" ><u>How to share/fake gps on Uber for Samsung Galaxy A05s | Dr.fone</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-samsung-by-drfone-android/" ><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Samsung</u></a></li>
 </ul></div>
+
 

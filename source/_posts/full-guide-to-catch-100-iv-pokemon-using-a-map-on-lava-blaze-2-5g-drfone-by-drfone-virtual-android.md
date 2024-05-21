@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Lava Blaze 2 5G | Dr.fone
-date: 2024-04-30T07:20:46.849Z
-updated: 2024-05-01T07:20:46.849Z
+date: 2024-05-20T04:42:11.591Z
+updated: 2024-05-21T04:42:11.591Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -407,4 +407,5 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 <li><a href="https://blog-min.techidaily.com/how-to-htc-u23-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to HTC U23 Get Deleted photos Back with Ease and Safety?</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-free-up-iphone-13-mini-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up iPhone 13 mini Space | Dr.fone</u></a></li>
 </ul></div>
+
 

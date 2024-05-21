@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Yuva 2 | Dr.fone
-date: 2024-04-30T07:19:51.850Z
-updated: 2024-05-01T07:19:51.850Z
+date: 2024-05-20T04:42:08.276Z
+updated: 2024-05-21T04:42:08.276Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -581,4 +581,5 @@ In conclusion, PvP battles are of great importance to enjoying the true perks of
 <li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Poco M6 Pro 4G? | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/unlock-your-nubia-z50s-pros-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Nubia Z50S Pros Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Pro 5G | Dr.fone
-date: 2024-04-30T07:20:40.964Z
-updated: 2024-05-01T07:20:40.964Z
+date: 2024-05-20T04:42:11.184Z
+updated: 2024-05-21T04:42:11.184Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -407,4 +407,5 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 <li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-samsung-galaxy-f14-5g-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Samsung Galaxy F14 5G Activity | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-access-your-apple-iphone-11-pro-when-you-forget-the-passcode-by-drfone-ios/"><u>In 2024, How to Access Your Apple iPhone 11 Pro When You Forget the Passcode?</u></a></li>
 </ul></div>
+
 

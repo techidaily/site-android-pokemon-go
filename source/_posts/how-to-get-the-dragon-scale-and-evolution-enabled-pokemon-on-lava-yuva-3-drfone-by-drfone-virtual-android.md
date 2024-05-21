@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 3? | Dr.fone
-date: 2024-04-30T07:22:02.596Z
-updated: 2024-05-01T07:22:02.596Z
+date: 2024-05-20T04:42:16.155Z
+updated: 2024-05-21T04:42:16.155Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -354,4 +354,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://animation-videos.techidaily.com/updated-adobe-auto-rigger-is-awesome/"><u>Updated Adobe Auto Rigger Is AWESOME</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-itel-p40plus-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Itel P40+ Phone</u></a></li>
 </ul></div>
+
 

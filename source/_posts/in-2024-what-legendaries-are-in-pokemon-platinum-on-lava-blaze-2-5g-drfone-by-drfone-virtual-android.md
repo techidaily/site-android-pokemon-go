@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Lava Blaze 2 5G? | Dr.fone
-date: 2024-04-30T07:21:03.439Z
-updated: 2024-05-01T07:21:03.439Z
+date: 2024-05-20T04:42:12.526Z
+updated: 2024-05-21T04:42:12.526Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -448,4 +448,5 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 <li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-14-pro-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone 14 Pro in Lost Mode | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-vivo-y27-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Vivo Y27 5G?</u></a></li>
 </ul></div>
+
 

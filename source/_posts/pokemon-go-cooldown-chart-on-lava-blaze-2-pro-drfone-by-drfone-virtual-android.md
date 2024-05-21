@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Blaze 2 Pro | Dr.fone
-date: 2024-04-30T07:19:58.229Z
-updated: 2024-05-01T07:19:58.229Z
+date: 2024-05-20T04:42:08.728Z
+updated: 2024-05-21T04:42:08.728Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -446,4 +446,5 @@ There you go! I’m sure that after reading this post, you would be able to know
 <li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-infinix-note-30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Infinix Note 30 | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/easy-guide-to-infinix-zero-30-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Infinix Zero 30 5G FRP Bypass With Best Methods</u></a></li>
 </ul></div>
+
 

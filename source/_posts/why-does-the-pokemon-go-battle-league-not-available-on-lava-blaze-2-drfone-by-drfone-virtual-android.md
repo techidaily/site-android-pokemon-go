@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Lava Blaze 2 | Dr.fone
-date: 2024-04-30T07:18:39.607Z
-updated: 2024-05-01T07:18:39.607Z
+date: 2024-05-20T04:42:04.142Z
+updated: 2024-05-21T04:42:04.142Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -389,4 +389,5 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
 <li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-motorola-defy-2-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Motorola Defy 2 without Him Knowing | Dr.fone</u></a></li>
 <li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-oppo-a1x-5g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Oppo A1x 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

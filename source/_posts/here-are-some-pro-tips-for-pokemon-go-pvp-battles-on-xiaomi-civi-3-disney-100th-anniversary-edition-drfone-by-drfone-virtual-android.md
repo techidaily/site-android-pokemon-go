@@ -533,3 +533,4 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-infinix-smart-8-pro-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Infinix Smart 8 Pro? Tips, Tricks and Helpful Advice</u></a></li>
 </ul></div>
 
+

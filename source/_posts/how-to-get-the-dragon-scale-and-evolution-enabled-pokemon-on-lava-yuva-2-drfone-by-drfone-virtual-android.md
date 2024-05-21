@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 2? | Dr.fone
-date: 2024-04-30T07:19:34.024Z
-updated: 2024-05-01T07:19:34.024Z
+date: 2024-05-20T04:42:07.070Z
+updated: 2024-05-21T04:42:07.070Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -369,4 +369,5 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 <li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-poco-c50-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Poco C50? Fixed | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-realme-c55-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Realme C55 Screen to PC with Chromecast | Dr.fone</u></a></li>
 </ul></div>
+
 

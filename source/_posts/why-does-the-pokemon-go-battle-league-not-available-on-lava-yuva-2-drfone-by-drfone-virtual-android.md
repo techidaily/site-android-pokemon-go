@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Lava Yuva 2 | Dr.fone
-date: 2024-04-30T07:19:33.586Z
-updated: 2024-05-01T07:19:33.586Z
+date: 2024-05-20T04:42:07.052Z
+updated: 2024-05-21T04:42:07.052Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -499,4 +499,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-13-mini-using-icloud-website-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 13 mini using icloud website</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-itel-p55t-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Itel P55T Like A Pro 5 Easy Ways</u></a></li>
 </ul></div>
+
 

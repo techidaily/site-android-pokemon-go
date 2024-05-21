@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze Curve 5G? | Dr.fone
-date: 2024-04-30T07:22:24.606Z
-updated: 2024-05-01T07:22:24.606Z
+date: 2024-05-20T04:42:17.323Z
+updated: 2024-05-21T04:42:17.323Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -496,4 +496,5 @@ Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. 
 <li><a href="https://animation-videos.techidaily.com/updated-2024-approved-obs-animated-alternatives/"><u>Updated 2024 Approved OBS Animated Alternatives</u></a></li>
 <li><a href="https://change-location.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
 </ul></div>
+
 

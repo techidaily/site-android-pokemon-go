@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Moto G73 5G | Dr.fone
-date: 2024-04-30T07:25:52.191Z
-updated: 2024-05-01T07:25:52.191Z
+date: 2024-05-20T04:42:30.314Z
+updated: 2024-05-21T04:42:30.314Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -443,4 +443,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-14-plus-without-apple-id-by-drfone-ios/"><u>In 2024, How to Erase an iPhone 14 Plus without Apple ID?</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/add-green-screen-video-on-tiktok-for-2024/"><u>Add Green Screen Video on TikTok for 2024</u></a></li>
 </ul></div>
+
 

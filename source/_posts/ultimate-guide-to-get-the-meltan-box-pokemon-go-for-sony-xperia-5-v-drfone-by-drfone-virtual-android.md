@@ -1,7 +1,7 @@
 ---
 title: Ultimate guide to get the meltan box pokemon go For Sony Xperia 5 V | Dr.fone
-date: 2024-04-30T07:15:17.320Z
-updated: 2024-05-01T07:15:17.320Z
+date: 2024-05-20T04:41:45.773Z
+updated: 2024-05-21T04:41:45.773Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -344,4 +344,5 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 <li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-vivo-g2-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Vivo G2 to Roku | Dr.fone</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-unlock-icloud-account-without-password-from-iphone-12-by-drfone-ios/"><u>3 Effective Ways to Unlock iCloud Account Without Password From iPhone 12</u></a></li>
 </ul></div>
+
 

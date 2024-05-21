@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Agni 2 5G? | Dr.fone
-date: 2024-04-30T07:19:01.814Z
-updated: 2024-05-01T07:19:01.814Z
+date: 2024-05-20T04:42:05.320Z
+updated: 2024-05-21T04:42:05.320Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -436,4 +436,5 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 <li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-vivo-y100-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Vivo Y100 5G FRP</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-xiaomi-redmi-13c-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Xiaomi Redmi 13C FRP Locks</u></a></li>
 </ul></div>
+
 

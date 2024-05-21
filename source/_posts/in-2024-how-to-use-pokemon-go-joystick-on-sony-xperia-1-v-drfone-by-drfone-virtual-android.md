@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Sony Xperia 1 V? | Dr.fone
-date: 2024-04-30T07:15:17.071Z
-updated: 2024-05-01T07:15:17.071Z
+date: 2024-05-20T04:41:43.783Z
+updated: 2024-05-21T04:41:43.783Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -421,4 +421,5 @@ The location will be locked by the program and your iPhone will also show the sa
 <li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-a14-5g-phone-without-pin-by-drfone-android/" ><u>How to Unlock Samsung Galaxy A14 5G Phone without PIN</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-itel-a05s-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>How To Restore a Bricked Itel A05s Back to Operation | Dr.fone</u></a></li>
 </ul></div>
+
 

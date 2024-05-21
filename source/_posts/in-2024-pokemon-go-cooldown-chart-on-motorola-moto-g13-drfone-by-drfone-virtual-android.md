@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Motorola Moto G13 | Dr.fone
-date: 2024-04-30T07:24:51.518Z
-updated: 2024-05-01T07:24:51.518Z
+date: 2024-05-20T04:42:26.314Z
+updated: 2024-05-21T04:42:26.314Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -412,4 +412,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-honor-magic-6-pro-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Honor Magic 6 Pro Running Slow and Freezing | Dr.fone</u></a></li>
 <li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 11 Pro | Dr.fone</u></a></li>
 </ul></div>
+
 

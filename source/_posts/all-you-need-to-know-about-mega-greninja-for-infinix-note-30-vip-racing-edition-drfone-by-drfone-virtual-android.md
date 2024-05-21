@@ -382,3 +382,4 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/" ><u>Why does the pokemon go battle league not available On Asus ROG Phone 8 | Dr.fone</u></a></li>
 </ul></div>
 
+

@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Lava Agni 2 5G? | Dr.fone
-date: 2024-04-30T07:19:10.395Z
-updated: 2024-05-01T07:19:10.395Z
+date: 2024-05-20T04:42:05.840Z
+updated: 2024-05-21T04:42:05.840Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -414,4 +414,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://activate-lock.techidaily.com/4-things-you-must-know-about-iphone-x-activation-lock-by-drfone-ios/"><u>4 Things You Must Know About iPhone X Activation Lock</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/new-how-to-create-vintage-film-effect-1990s-for-2024/"><u>New How to Create Vintage Film Effect 1990S for 2024</u></a></li>
 </ul></div>
+
 

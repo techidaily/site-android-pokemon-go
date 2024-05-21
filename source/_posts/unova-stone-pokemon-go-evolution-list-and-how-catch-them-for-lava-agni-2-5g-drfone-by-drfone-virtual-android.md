@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Lava Agni 2 5G | Dr.fone
-date: 2024-04-30T07:19:13.585Z
-updated: 2024-05-01T07:19:13.585Z
+date: 2024-05-20T04:42:06.015Z
+updated: 2024-05-21T04:42:06.015Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -315,4 +315,5 @@ Go-tcha Evolve is an application that allows you to set animations and vibration
 <li><a href="https://ai-video-apps.techidaily.com/updated-beyond-vegas-pro-discover-the-top-10-mac-video-editing-solutions-for-2024/"><u>Updated Beyond Vegas Pro Discover the Top 10 Mac Video Editing Solutions for 2024</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-pro-to-the-previous-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 Pro to the Previous iOS/iPadOS Version? | Dr.fone</u></a></li>
 </ul></div>
+
 
