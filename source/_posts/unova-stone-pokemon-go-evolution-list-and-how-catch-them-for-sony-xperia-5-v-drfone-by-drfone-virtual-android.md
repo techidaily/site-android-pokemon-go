@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Sony Xperia 5 V | Dr.fone
-date: 2024-05-20T04:41:46.303Z
-updated: 2024-05-21T04:41:46.303Z
+date: 2024-06-10T01:15:03.233Z
+updated: 2024-06-11T01:15:03.233Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Sony Xperia 5 V
 excerpt: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Sony Xperia 5 V
 keywords: Pokemon Go Joystick for Xperia 5 V,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go for Xperia 5 V,Pokemon Go Joystick Without Walking,Pokémon Go for Xperia 5 V
-thumbnail: https://www.lifewire.com/thmb/XTn22vUEhR1g5hO3UkHHYfR8z14=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tesla-bot-f6353f76ae214924916445da1da620ca.png
+thumbnail: https://thmb.techidaily.com/13887af25c31ebc0af7fa01bee84ac625b343ea776763c2dea469f5e646eb4f7.png
 ---
 
 ## Unova Stone Pokémon Go Evolution List and How Catch Them For Sony Xperia 5 V

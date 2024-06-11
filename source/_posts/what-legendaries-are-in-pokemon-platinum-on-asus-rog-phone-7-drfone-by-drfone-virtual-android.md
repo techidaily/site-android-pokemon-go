@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Asus ROG Phone 7? | Dr.fone
-date: 2024-05-20T04:41:47.584Z
-updated: 2024-05-21T04:41:47.584Z
+date: 2024-06-10T01:12:41.702Z
+updated: 2024-06-11T01:12:41.702Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Asus ROG Phone 7?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Asus ROG Phone 7?
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick for ROG Phone 7,Pokémon Go for ROG Phone 7,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for ROG Phone 7
-thumbnail: https://www.lifewire.com/thmb/d3vhzprgAOfQkZJVlCom44MR-q8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/6-best-parental-control-apps-of-2019-featured-c5b50932ab9c4c0fbc0757665e46b6b2.jpg
+thumbnail: https://thmb.techidaily.com/6125c16091ce0e7f3e660bdf2f814f5a9cf410ddebad9670bd4cad45f7263474.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Asus ROG Phone 7?

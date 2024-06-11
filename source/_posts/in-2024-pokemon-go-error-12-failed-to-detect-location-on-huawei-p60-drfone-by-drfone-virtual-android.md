@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Huawei P60? | Dr.fone
-date: 2024-05-20T04:41:58.875Z
-updated: 2024-05-21T04:41:58.875Z
+date: 2024-06-10T01:12:26.919Z
+updated: 2024-06-11T01:12:26.919Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Huawei P60?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Huawei P60?
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick for P60,Pokemon Go Without Walking,Pokémon Go for P60,Pokemon Go Joystick Without Walking,Pokemon Go for P60
-thumbnail: https://www.lifewire.com/thmb/zcmLCaAS2rquyOBmPOs0BcLkssY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5-things-to-consider-before-buying-a-graphics-card-5225912-e71513f30b90445e8c0702a87db6fcdc.jpg
+thumbnail: https://thmb.techidaily.com/7270266df833210c4618ef395558e4a1dd14a566be785a358865debf94836fef.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Huawei P60?

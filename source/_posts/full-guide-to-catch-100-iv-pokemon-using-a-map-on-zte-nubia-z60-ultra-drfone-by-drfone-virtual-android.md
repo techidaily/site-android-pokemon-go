@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On ZTE Nubia Z60 Ultra | Dr.fone
-date: 2024-04-12T03:11:07.490Z
-updated: 2024-04-13T03:11:07.490Z
+date: 2024-06-10T01:16:32.674Z
+updated: 2024-06-11T01:16:32.674Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Full Guide to Catch 100 IV Pokémon Using a Map On ZTE Nubia Z60 Ultra
 excerpt: This article describes Full Guide to Catch 100 IV Pokémon Using a Map On ZTE Nubia Z60 Ultra
 keywords: Pokemon Go Joystick for Nubia Z60 Ultra,Pokémon Go for Nubia Z60 Ultra,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Nubia Z60 Ultra
-thumbnail: https://www.lifewire.com/thmb/EPDzjUiegMEW3vQpFQEPlf_7s2U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1135364530-dec5678c0c2c427ba18ae21452ff6326.jpg
+thumbnail: https://thmb.techidaily.com/8b5881e327b9c1ba2eb90535b5e52b8fb37d29efd85f95b1f8c43ff4375091ae.jpg
 ---
 
 ## Full Guide to Catch 100 IV Pokémon Using a Map On ZTE Nubia Z60 Ultra

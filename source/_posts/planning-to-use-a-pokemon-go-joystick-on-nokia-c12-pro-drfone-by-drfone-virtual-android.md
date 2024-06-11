@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Nokia C12 Pro? | Dr.fone
-date: 2024-05-20T04:43:00.964Z
-updated: 2024-05-21T04:43:00.964Z
+date: 2024-06-10T01:15:51.720Z
+updated: 2024-06-11T01:15:51.720Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Nokia C12 Pro?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Nokia C12 Pro?
 keywords: Pokémon Go for C12 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go for C12 Pro,Pokémon Go Without Walking,Pokemon Go Joystick for C12 Pro
-thumbnail: https://www.lifewire.com/thmb/Wnjr5d8PWtLhZKZOlT7PSsWhqZ8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/YoungAsianmanusinglaptopandreadingnewspaperonplane-59960904685fbe00103478bd.jpg
+thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c63be7c3be4720f86eba5080f.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Nokia C12 Pro?

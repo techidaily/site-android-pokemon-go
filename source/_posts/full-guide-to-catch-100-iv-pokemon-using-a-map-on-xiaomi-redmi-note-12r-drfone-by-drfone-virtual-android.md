@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi Note 12R | Dr.fone
-date: 2024-04-12T03:11:06.462Z
-updated: 2024-04-13T03:11:06.462Z
+date: 2024-06-10T01:14:26.653Z
+updated: 2024-06-11T01:14:26.653Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi Note 12R
 excerpt: This article describes Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi Note 12R
 keywords: Pokémon Go for Redmi Note 12R,Pokemon Go for Redmi Note 12R,Pokemon Go Joystick for Redmi Note 12R,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/KrjxcoVkV9vT3cQ3C-URm7mlpcM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-917461864-7141ebd3ec944ce6a431b8d485cc9cdb.jpg
+thumbnail: https://thmb.techidaily.com/c71f8b11a9475a90b96c899fdeade9228f855c7ed46c02973b8fefdc10e6507c.jpg
 ---
 
 ## Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi Note 12R

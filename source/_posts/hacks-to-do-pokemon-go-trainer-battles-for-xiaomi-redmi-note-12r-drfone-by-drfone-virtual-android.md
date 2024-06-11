@@ -1,7 +1,7 @@
 ---
 title: Hacks to do pokemon go trainer battles For Xiaomi Redmi Note 12R | Dr.fone
-date: 2024-04-12T03:11:14.120Z
-updated: 2024-04-13T03:11:14.120Z
+date: 2024-06-10T01:13:03.167Z
+updated: 2024-06-11T01:13:03.167Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Hacks to do pokemon go trainer battles For Xiaomi Redmi Note 12R
 excerpt: This article describes Hacks to do pokemon go trainer battles For Xiaomi Redmi Note 12R
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick for Redmi Note 12R,Pokémon Go for Redmi Note 12R,Pokemon Go for Redmi Note 12R,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/8cntKMhShePwne7YMK1BVkFRlYs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/snork-fa65ca350e2243e1a2deaf6bb7b209b1.jpg
+thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4255ce54480ebe44b63f8c8e.jpg
 ---
 
 ## Hacks to do pokemon go trainer battles For Xiaomi Redmi Note 12R

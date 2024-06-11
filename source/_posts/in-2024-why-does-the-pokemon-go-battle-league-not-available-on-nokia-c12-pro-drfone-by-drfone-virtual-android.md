@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Nokia C12 Pro | Dr.fone
-date: 2024-05-20T04:43:02.134Z
-updated: 2024-05-21T04:43:02.134Z
+date: 2024-06-10T01:13:18.832Z
+updated: 2024-06-11T01:13:18.832Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why does the pokemon go battle league not available On Nokia C12 Pro
 excerpt: This article describes Why does the pokemon go battle league not available On Nokia C12 Pro
 keywords: Pokémon Go for C12 Pro,Pokemon Go Joystick for C12 Pro,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for C12 Pro,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/sx5hd7He1vcpR0KajATX8cwq3zM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Twitter-and-X-4c4103f6bc3c42e0b7197b60a50317ca.jpg
+thumbnail: https://thmb.techidaily.com/1b366750108562524d82d4ae59a489c50fa84a81f8bcbe092ec793162bb9610d.jpg
 ---
 
 ## Why does the pokemon go battle league not available On Nokia C12 Pro

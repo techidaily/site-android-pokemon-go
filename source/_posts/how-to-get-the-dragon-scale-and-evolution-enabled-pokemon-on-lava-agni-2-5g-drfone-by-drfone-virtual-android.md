@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Agni 2 5G? | Dr.fone
-date: 2024-05-20T04:42:05.627Z
-updated: 2024-05-21T04:42:05.627Z
+date: 2024-06-10T01:12:59.461Z
+updated: 2024-06-11T01:12:59.461Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Lava Agni 2 5G?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Lava Agni 2 5G?
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go for Agni 2 5G,Pokemon Go Joystick for Agni 2 5G,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokémon Go for Agni 2 5G
-thumbnail: https://www.lifewire.com/thmb/Dl9yEfjLblLLqaUBxpcE0bOUpF4=/540x405/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_2654847-5b99b903c9e77c005077d0d8.jpg
+thumbnail: https://thmb.techidaily.com/e1e53d68e6a8bd97bb49ce774576b58cc661b7caf15fc6fdb1157408db40b882.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Lava Agni 2 5G?

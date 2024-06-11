@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto E13 | Dr.fone
-date: 2024-05-20T04:42:24.028Z
-updated: 2024-05-21T04:42:24.028Z
+date: 2024-06-10T01:15:16.359Z
+updated: 2024-06-11T01:15:16.359Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto E13
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto E13
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Moto E13,Pokemon Go for Moto E13,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokémon Go for Moto E13
-thumbnail: https://www.lifewire.com/thmb/6UZHTeyuNkJhbDQGbXCRwhK1TEI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1218764238-30613399ad1b4cffab4ab474184b9c88.jpg
+thumbnail: https://thmb.techidaily.com/738343d11636524e97e883ecdfb55ee8c179338e8409002b7334f65b8debc634.jpg
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto E13

@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Motorola Defy 2? | Dr.fone
-date: 2024-05-20T04:42:28.561Z
-updated: 2024-05-21T04:42:28.561Z
+date: 2024-06-10T01:14:12.458Z
+updated: 2024-06-11T01:14:12.458Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Motorola Defy 2?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Motorola Defy 2?
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Defy 2,Pokémon Go Without Walking,Pokémon Go for Defy 2,Pokemon Go for Defy 2
-thumbnail: https://www.lifewire.com/thmb/AOVQTNyOWIZPYiKZehcoYQS3DNU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-820926684-5c7747ebc45847708ac311b709bdc1f2.jpg
+thumbnail: https://thmb.techidaily.com/0608abec5e89fbdabfc438dbc05f250f26c6343ebf5ad117060d9466fac18ee3.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Motorola Defy 2?

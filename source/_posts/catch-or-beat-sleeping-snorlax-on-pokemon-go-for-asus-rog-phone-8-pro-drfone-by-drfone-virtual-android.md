@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Asus ROG Phone 8 Pro | Dr.fone
-date: 2024-05-20T04:41:50.729Z
-updated: 2024-05-21T04:41:50.729Z
+date: 2024-06-10T01:12:47.193Z
+updated: 2024-06-11T01:12:47.193Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Catch or Beat Sleeping Snorlax on Pokemon Go For Asus ROG Phone 8 Pro
 excerpt: This article describes Catch or Beat Sleeping Snorlax on Pokemon Go For Asus ROG Phone 8 Pro
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go for ROG Phone 8 Pro,Pokémon Go for ROG Phone 8 Pro,Pokemon Go Joystick for ROG Phone 8 Pro,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/cnbU86cA88gNmLB_6vGsp1ZnxFM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/asian-woman-talking-into-microphone-722208887-5b2a989730371300373a0447.jpg
+thumbnail: https://thmb.techidaily.com/078ec5c6b19df307c3d053f03815c7d21ecece8ed3226ebe1d118a70909568e6.jpg
 ---
 
 ## Catch or Beat Sleeping Snorlax on Pokemon Go For Asus ROG Phone 8 Pro

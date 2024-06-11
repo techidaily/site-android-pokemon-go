@@ -1,7 +1,7 @@
 ---
 title: Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nokia C12 | Dr.fone
-date: 2024-05-20T04:42:59.756Z
-updated: 2024-05-21T04:42:59.756Z
+date: 2024-06-10T01:14:40.978Z
+updated: 2024-06-11T01:14:40.978Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nokia C12
 excerpt: This article describes Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nokia C12
 keywords: Pokemon Go Without Walking,Pokémon Go for C12,Pokémon Go Without Walking,Pokemon Go Joystick for C12,Pokemon Go Joystick Without Walking,Pokemon Go for C12
-thumbnail: https://www.lifewire.com/thmb/hlshSPtDf3zsXAhW4UAOkuNWyQM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-Macys-59e6c3699abed500118af858.jpg
+thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f433cd32ec9f580258b7206c.jpg
 ---
 
 ## Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nokia C12

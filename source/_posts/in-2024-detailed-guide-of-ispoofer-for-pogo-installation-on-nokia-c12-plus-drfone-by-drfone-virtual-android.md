@@ -1,7 +1,7 @@
 ---
 title: In 2024, Detailed guide of ispoofer for pogo installation On Nokia C12 Plus | Dr.fone
-date: 2024-05-20T04:43:03.572Z
-updated: 2024-05-21T04:43:03.572Z
+date: 2024-06-10T01:12:48.180Z
+updated: 2024-06-11T01:12:48.180Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Detailed guide of ispoofer for pogo installation On Nokia C12 Plus
 excerpt: This article describes Detailed guide of ispoofer for pogo installation On Nokia C12 Plus
 keywords: Pokemon Go for C12 Plus,Pokemon Go Joystick for C12 Plus,Pokémon Go for C12 Plus,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/TYGiT5X9QiOC8P7-lx0tWOT-IQI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/airpodbatterylevelonandroid-15c1db7e9fac43248d130a42540c12a6.jpg
+thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
 ---
 
 ## Detailed guide of ispoofer for pogo installation On Nokia C12 Plus

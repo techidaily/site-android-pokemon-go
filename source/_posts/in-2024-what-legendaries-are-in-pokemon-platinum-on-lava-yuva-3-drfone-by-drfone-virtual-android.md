@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Lava Yuva 3? | Dr.fone
-date: 2024-05-20T04:42:17.046Z
-updated: 2024-05-21T04:42:17.046Z
+date: 2024-06-10T01:14:11.497Z
+updated: 2024-06-11T01:14:11.497Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Lava Yuva 3?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Lava Yuva 3?
 keywords: Pokemon Go Joystick for Yuva 3,Pokemon Go for Yuva 3,Pokémon Go for Yuva 3,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/eS1YD0LsEQhVuAP3cxZA8t-_eDU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iPad-Pro_creative-sketch_10302018-5be0773ac9e77c0051d5d51c.jpg
+thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70cf5906bbca11c158a428c514.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Lava Yuva 3?

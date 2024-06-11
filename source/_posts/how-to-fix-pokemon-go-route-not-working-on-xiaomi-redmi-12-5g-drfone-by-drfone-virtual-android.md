@@ -1,7 +1,7 @@
 ---
 title: How to Fix Pokemon Go Route Not Working On Xiaomi Redmi 12 5G? | Dr.fone
-date: 2024-04-30T07:36:16.381Z
-updated: 2024-05-01T07:36:16.381Z
+date: 2024-06-10T01:16:32.637Z
+updated: 2024-06-11T01:16:32.637Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to Fix Pokemon Go Route Not Working On Xiaomi Redmi 12 5G?
 excerpt: This article describes How to Fix Pokemon Go Route Not Working On Xiaomi Redmi 12 5G?
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for Redmi 12 5G,Pokemon Go for Redmi 12 5G,Pokémon Go for Redmi 12 5G,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/Upemm_83fheu5JnASUVL9rXiGqw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TheOscarsStatue-33f6c30d7ffd4694a4dd1d1113de57f5.jpg
+thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6f572fe9945c7d91985d72b7.jpg
 ---
 
 ## How to Fix Pokemon Go Route Not Working On Xiaomi Redmi 12 5G?

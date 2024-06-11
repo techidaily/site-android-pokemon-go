@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Xiaomi Redmi 13C | Dr.fone
-date: 2024-04-07T02:06:41.649Z
-updated: 2024-04-08T02:06:41.649Z
+date: 2024-06-10T01:15:04.162Z
+updated: 2024-06-11T01:15:04.162Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes All You Need To Know About Mega Greninja For Xiaomi Redmi 13C
 excerpt: This article describes All You Need To Know About Mega Greninja For Xiaomi Redmi 13C
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Redmi 13C,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokémon Go for Redmi 13C,Pokemon Go for Redmi 13C
-thumbnail: https://www.lifewire.com/thmb/8693hBAeE81sk6n359fo6i01-Hc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1168002788-1bccccf67a1f4988bd355c09748383ab.jpg
+thumbnail: https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3dbfe57b65bd55e5629cfc57b6.jpg
 ---
 
 ## All You Need To Know About Mega Greninja For Xiaomi Redmi 13C

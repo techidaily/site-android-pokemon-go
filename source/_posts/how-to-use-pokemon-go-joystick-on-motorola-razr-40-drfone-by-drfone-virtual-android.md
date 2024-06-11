@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Motorola Razr 40? | Dr.fone
-date: 2024-05-20T04:42:36.384Z
-updated: 2024-05-21T04:42:36.384Z
+date: 2024-06-10T01:16:26.115Z
+updated: 2024-06-11T01:16:26.115Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use Pokemon Go Joystick on Motorola Razr 40?
 excerpt: This article describes How to use Pokemon Go Joystick on Motorola Razr 40?
 keywords: Pokemon Go for Razr 40,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go for Razr 40,Pokémon Go Without Walking,Pokemon Go Joystick for Razr 40
-thumbnail: https://www.lifewire.com/thmb/AN-vaCH0aY3tX6ZltU1G0m3Htm0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/watch-free-movies-online-1356647-32f79b8cc3ed484ca1f9f898f503e416.png
+thumbnail: https://thmb.techidaily.com/de3aeccba8a1988fe712bc85cebc3af3bc3a21faab0414036ff801745dc15189.png
 ---
 
 ## How to use Pokemon Go Joystick on Motorola Razr 40?

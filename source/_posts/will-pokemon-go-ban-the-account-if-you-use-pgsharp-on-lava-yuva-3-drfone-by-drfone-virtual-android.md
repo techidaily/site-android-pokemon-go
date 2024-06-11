@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 3 | Dr.fone
-date: 2024-05-20T04:42:16.132Z
-updated: 2024-05-21T04:42:16.132Z
+date: 2024-06-10T01:15:56.244Z
+updated: 2024-06-11T01:15:56.244Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 3
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 3
 keywords: Pokémon Go for Yuva 3,Pokemon Go Joystick Without Walking,Pokemon Go for Yuva 3,Pokemon Go Joystick for Yuva 3,Pokémon Go Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/xLyhmkxw8rwSLNhzfV0GfYs8tZc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-watch-tiktok-without-the-app-63a4562e4c4b4bd69477425853809a35.jpg
+thumbnail: https://thmb.techidaily.com/3ce7ce4cef66cdb03e7ac7e019dea8d112e1795f84ca632563f78a12990cc533.jpg
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 3

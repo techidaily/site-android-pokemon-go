@@ -1,7 +1,7 @@
 ---
 title: In 2024, Hacks to do pokemon go trainer battles For Nokia C02 | Dr.fone
-date: 2024-05-20T04:42:54.813Z
-updated: 2024-05-21T04:42:54.813Z
+date: 2024-06-10T01:12:25.736Z
+updated: 2024-06-11T01:12:25.736Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Hacks to do pokemon go trainer battles For Nokia C02
 excerpt: This article describes Hacks to do pokemon go trainer battles For Nokia C02
 keywords: Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go for C02,Pokémon Go Without Walking,Pokemon Go for C02,Pokemon Go Joystick for C02
-thumbnail: https://www.lifewire.com/thmb/ADwMZAl5AjJaezwcgc229Y2W9FU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1558254975-0a8ae81a4cd04f3eba064dd56ba8b030.jpg
+thumbnail: https://thmb.techidaily.com/633e4476d735dff824b3250c253c09c234e7613f83678c9c2635006dd72b341f.jpg
 ---
 
 ## Hacks to do pokemon go trainer battles For Nokia C02

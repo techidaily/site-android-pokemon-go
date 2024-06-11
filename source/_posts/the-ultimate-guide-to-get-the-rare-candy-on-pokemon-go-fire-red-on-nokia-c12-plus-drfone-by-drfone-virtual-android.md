@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia C12 Plus | Dr.fone
-date: 2024-05-20T04:43:02.792Z
-updated: 2024-05-21T04:43:02.792Z
+date: 2024-06-10T01:12:39.000Z
+updated: 2024-06-11T01:12:39.000Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia C12 Plus
 excerpt: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia C12 Plus
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go for C12 Plus,Pokémon Go Without Walking,Pokémon Go for C12 Plus,Pokemon Go Joystick for C12 Plus
-thumbnail: https://www.lifewire.com/thmb/8cntKMhShePwne7YMK1BVkFRlYs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/snork-fa65ca350e2243e1a2deaf6bb7b209b1.jpg
+thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4255ce54480ebe44b63f8c8e.jpg
 ---
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia C12 Plus

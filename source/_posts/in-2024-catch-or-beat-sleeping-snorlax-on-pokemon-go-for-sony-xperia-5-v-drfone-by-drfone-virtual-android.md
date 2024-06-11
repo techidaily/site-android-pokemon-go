@@ -1,7 +1,7 @@
 ---
 title: In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 5 V | Dr.fone
-date: 2024-05-20T04:41:46.969Z
-updated: 2024-05-21T04:41:46.969Z
+date: 2024-06-10T01:16:28.090Z
+updated: 2024-06-11T01:16:28.090Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 5 V
 excerpt: This article describes Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 5 V
 keywords: Pokemon Go for Xperia 5 V,Pokémon Go Without Walking,Pokemon Go Joystick for Xperia 5 V,Pokémon Go for Xperia 5 V,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/YDOkX4KOrU-1Gfk6Kj7DPlg333E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/windows11contextmenu-f4d6ebb14db4444d851b4338aa553e21.png
+thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b903378f876b3f4cc7ee4fa520.png
 ---
 
 ## Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 5 V

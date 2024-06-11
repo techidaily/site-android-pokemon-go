@@ -1,7 +1,7 @@
 ---
 title: In 2024, List of Pokémon Go Joysticks On Lenovo ThinkPhone | Dr.fone
-date: 2024-05-20T04:42:20.240Z
-updated: 2024-05-21T04:42:20.240Z
+date: 2024-06-10T01:14:21.141Z
+updated: 2024-06-11T01:14:21.141Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes List of Pokémon Go Joysticks On Lenovo ThinkPhone
 excerpt: This article describes List of Pokémon Go Joysticks On Lenovo ThinkPhone
 keywords: Pokémon Go Without Walking,Pokemon Go for ThinkPhone,Pokemon Go Joystick for ThinkPhone,Pokemon Go Joystick Without Walking,Pokémon Go for ThinkPhone,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/tog6m8Yd2L1pQ_0Pktyl-fbgcRs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/camera-56e0976d3df78c5ba0566b37.jpg
+thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a94f5e0b261b4ccf5f3207b46.jpg
 ---
 
 ## List of Pokémon Go Joysticks On Lenovo ThinkPhone

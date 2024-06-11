@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C12 Plus | Dr.fone
-date: 2024-05-20T04:43:03.347Z
-updated: 2024-05-21T04:43:03.347Z
+date: 2024-06-10T01:14:21.182Z
+updated: 2024-06-11T01:14:21.182Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C12 Plus
 excerpt: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C12 Plus
 keywords: Pokemon Go for C12 Plus,Pokemon Go Joystick for C12 Plus,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go for C12 Plus
-thumbnail: https://www.lifewire.com/thmb/Gmap6LeMRtADZthm_PJ2lXNY4cM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/copilot-b197f8dd690845d5bf8ebbc082c89c20.jpg
+thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595c634b883b7def7759d3266e.jpg
 ---
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C12 Plus

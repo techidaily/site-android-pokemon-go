@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Asus ROG Phone 7 | Dr.fone
-date: 2024-05-20T04:41:47.397Z
-updated: 2024-05-21T04:41:47.397Z
+date: 2024-06-10T01:13:23.158Z
+updated: 2024-06-11T01:13:23.158Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Asus ROG Phone 7
 excerpt: This article describes Pokémon Go Cooldown Chart On Asus ROG Phone 7
 keywords: Pokémon Go for ROG Phone 7,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for ROG Phone 7,Pokemon Go Without Walking,Pokemon Go for ROG Phone 7
-thumbnail: https://www.lifewire.com/thmb/RZ6a_Dm3h0STkAi4OwMdfZPBurY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DTS-Virtual-X-logo-w-illustration-xxbb-59403d7b3df78c537b1ef6b2.jpg
+thumbnail: https://thmb.techidaily.com/73ab3c04255810df2615a2a01c8a14174dd9b221f2d60ec5b3831dd32989cbba.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Asus ROG Phone 7

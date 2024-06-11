@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Fix Pokemon Go Route Not Working On Lava Yuva 3 Pro? | Dr.fone
-date: 2024-05-20T04:42:14.089Z
-updated: 2024-05-21T04:42:14.089Z
+date: 2024-06-10T01:13:04.130Z
+updated: 2024-06-11T01:13:04.130Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to Fix Pokemon Go Route Not Working On Lava Yuva 3 Pro?
 excerpt: This article describes How to Fix Pokemon Go Route Not Working On Lava Yuva 3 Pro?
 keywords: Pokémon Go Without Walking,Pokémon Go for Yuva 3 Pro,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Yuva 3 Pro,Pokemon Go for Yuva 3 Pro
-thumbnail: https://www.lifewire.com/thmb/0ReomQ5wrb7WSffrn0hDnZKzgPU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5-things-to-consider-before-buying-a-gaming-laptop-5235493-145a8c941b9f46e99d9a90bdee387893.jpg
+thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1ab1cb47d3f2f93a3bce610c.jpg
 ---
 
 ## How to Fix Pokemon Go Route Not Working On Lava Yuva 3 Pro?

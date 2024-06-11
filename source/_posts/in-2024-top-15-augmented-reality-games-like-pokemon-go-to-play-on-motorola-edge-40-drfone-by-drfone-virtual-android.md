@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Edge 40 | Dr.fone
-date: 2024-05-20T04:42:35.858Z
-updated: 2024-05-21T04:42:35.858Z
+date: 2024-06-10T01:13:45.670Z
+updated: 2024-06-11T01:13:45.670Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Edge 40
 excerpt: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Edge 40
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Edge 40,Pokémon Go Without Walking,Pokémon Go for Edge 40,Pokemon Go for Edge 40
-thumbnail: https://www.lifewire.com/thmb/Upemm_83fheu5JnASUVL9rXiGqw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TheOscarsStatue-33f6c30d7ffd4694a4dd1d1113de57f5.jpg
+thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6f572fe9945c7d91985d72b7.jpg
 ---
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Edge 40

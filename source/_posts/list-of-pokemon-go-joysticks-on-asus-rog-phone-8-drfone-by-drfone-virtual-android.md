@@ -1,7 +1,7 @@
 ---
 title: List of Pokémon Go Joysticks On Asus ROG Phone 8 | Dr.fone
-date: 2024-05-20T04:41:51.982Z
-updated: 2024-05-21T04:41:51.982Z
+date: 2024-06-10T01:14:00.505Z
+updated: 2024-06-11T01:14:00.505Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes List of Pokémon Go Joysticks On Asus ROG Phone 8
 excerpt: This article describes List of Pokémon Go Joysticks On Asus ROG Phone 8
 keywords: Pokemon Go Joystick for ROG Phone 8,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go for ROG Phone 8,Pokemon Go for ROG Phone 8
-thumbnail: https://www.lifewire.com/thmb/Y6Usxgxc9PdsrK9dH2LfUO8QJRY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-849896688-6d69f22bcf0a4ff092f444abe6e1c19f.jpg
+thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd2abed16461ddf6c80bb2da9.jpg
 ---
 
 ## List of Pokémon Go Joysticks On Asus ROG Phone 8

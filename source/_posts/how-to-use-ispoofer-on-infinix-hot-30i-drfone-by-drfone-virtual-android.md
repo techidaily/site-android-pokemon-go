@@ -1,7 +1,7 @@
 ---
 title: How to use iSpoofer on Infinix Hot 30i? | Dr.fone
-date: 2024-05-20T04:43:08.430Z
-updated: 2024-05-21T04:43:08.430Z
+date: 2024-06-10T01:15:59.036Z
+updated: 2024-06-11T01:15:59.036Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use iSpoofer on Infinix Hot 30i?
 excerpt: This article describes How to use iSpoofer on Infinix Hot 30i?
 keywords: Pokemon Go for Hot 30i,Pokemon Go Joystick for Hot 30i,Pokémon Go for Hot 30i,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/tP3PGqv5XalObxjPn5UrSpbUwa0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/preaknessstakes-5c804f1b46e0fb00019b8ee0.jpg
+thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be090a3ce22bfc91cc23bb5f7.jpg
 ---
 
 ## How to use iSpoofer on Infinix Hot 30i?

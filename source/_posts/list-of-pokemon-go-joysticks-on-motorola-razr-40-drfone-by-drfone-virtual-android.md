@@ -1,7 +1,7 @@
 ---
 title: List of Pokémon Go Joysticks On Motorola Razr 40 | Dr.fone
-date: 2024-05-20T04:42:36.378Z
-updated: 2024-05-21T04:42:36.378Z
+date: 2024-06-10T01:13:13.283Z
+updated: 2024-06-11T01:13:13.283Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes List of Pokémon Go Joysticks On Motorola Razr 40
 excerpt: This article describes List of Pokémon Go Joysticks On Motorola Razr 40
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for Razr 40,Pokémon Go for Razr 40,Pokemon Go for Razr 40,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/0LHpu91V9jV229cdma0w0BAh3EI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/apple-logo-steering-wheel-25522ee2c5664139948ebfd1cb1df653.jpg
+thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db8bd23e967a3613c122b6663.jpg
 ---
 
 ## List of Pokémon Go Joysticks On Motorola Razr 40

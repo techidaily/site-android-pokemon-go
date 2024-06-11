@@ -1,7 +1,7 @@
 ---
 title: 3 Ways for Android Pokemon Go Spoofing On Nokia C12 Pro | Dr.fone
-date: 2024-05-20T04:43:01.552Z
-updated: 2024-05-21T04:43:01.552Z
+date: 2024-06-10T01:12:38.956Z
+updated: 2024-06-11T01:12:38.956Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes 3 Ways for Android Pokemon Go Spoofing On Nokia C12 Pro
 excerpt: This article describes 3 Ways for Android Pokemon Go Spoofing On Nokia C12 Pro
 keywords: Pokémon Go for C12 Pro,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for C12 Pro,Pokemon Go Joystick Without Walking,Pokemon Go for C12 Pro
-thumbnail: https://www.lifewire.com/thmb/RZ6a_Dm3h0STkAi4OwMdfZPBurY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DTS-Virtual-X-logo-w-illustration-xxbb-59403d7b3df78c537b1ef6b2.jpg
+thumbnail: https://thmb.techidaily.com/73ab3c04255810df2615a2a01c8a14174dd9b221f2d60ec5b3831dd32989cbba.jpg
 ---
 
 ## 3 Ways for Android Pokemon Go Spoofing On Nokia C12 Pro

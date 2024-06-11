@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Nokia C12? | Dr.fone
-date: 2024-05-20T04:42:59.878Z
-updated: 2024-05-21T04:42:59.878Z
+date: 2024-06-10T01:16:20.545Z
+updated: 2024-06-11T01:16:20.545Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Reasons why Pokémon GPS does not Work On Nokia C12?
 excerpt: This article describes Reasons why Pokémon GPS does not Work On Nokia C12?
 keywords: Pokemon Go for C12,Pokemon Go Joystick for C12,Pokémon Go for C12,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/7xkPKaI2xi5sTbIeFjMPxaWn7Gc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/apple-tvos_a-star-is-born_060319-b01aea7d8a1949609359d8d96b1a22e0.jpg
+thumbnail: https://thmb.techidaily.com/3a8d29dc752129bc6cecd890184a07ba60927370b95afc8af67003c49b108b72.jpg
 ---
 
 ## Reasons why Pokémon GPS does not Work On Nokia C12?

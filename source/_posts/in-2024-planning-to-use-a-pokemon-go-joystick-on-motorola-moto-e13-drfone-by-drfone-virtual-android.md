@@ -1,7 +1,7 @@
 ---
 title: In 2024, Planning to Use a Pokemon Go Joystick on Motorola Moto E13? | Dr.fone
-date: 2024-05-20T04:42:24.454Z
-updated: 2024-05-21T04:42:24.454Z
+date: 2024-06-10T01:13:13.305Z
+updated: 2024-06-11T01:13:13.305Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Motorola Moto E13?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Motorola Moto E13?
 keywords: Pokemon Go for Moto E13,Pokémon Go Without Walking,Pokemon Go Joystick for Moto E13,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go for Moto E13
-thumbnail: https://www.lifewire.com/thmb/o9Q9WuSk80JXjgUWGQkyTXmmm-M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1088144728-3a9f1bd54e994bfaa4cabea82414202e.jpg
+thumbnail: https://thmb.techidaily.com/987190b727e8b33f96f25d8586b03d48b4e37202540f48c021987012cc7b2e2e.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Motorola Moto E13?

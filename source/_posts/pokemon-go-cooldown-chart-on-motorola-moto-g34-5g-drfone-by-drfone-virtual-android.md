@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Moto G34 5G | Dr.fone
-date: 2024-05-20T04:42:47.133Z
-updated: 2024-05-21T04:42:47.133Z
+date: 2024-06-10T01:13:16.921Z
+updated: 2024-06-11T01:13:16.921Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Motorola Moto G34 5G
 excerpt: This article describes Pokémon Go Cooldown Chart On Motorola Moto G34 5G
 keywords: Pokémon Go Without Walking,Pokemon Go for Moto G34 5G,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Moto G34 5G,Pokémon Go for Moto G34 5G,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/xDM-B4zVSXt5n027L2C5oNwTDN8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AIrendering_CROPPED_Guillaume_GettyImages-1418477818-d0a9c5ce09584a1099f21a5f1f690a88.jpg
+thumbnail: https://thmb.techidaily.com/5b8a360ae2beb8ae28dded746595b2ec0252b7304ad9ab12b451e3ff69d2619e.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Motorola Moto G34 5G

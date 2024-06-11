@@ -1,7 +1,7 @@
 ---
 title: Full Guide to Catch 100 IV Pokémon Using a Map On Huawei P60 | Dr.fone
-date: 2024-05-20T04:41:58.098Z
-updated: 2024-05-21T04:41:58.098Z
+date: 2024-06-10T01:13:42.679Z
+updated: 2024-06-11T01:13:42.679Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Full Guide to Catch 100 IV Pokémon Using a Map On Huawei P60
 excerpt: This article describes Full Guide to Catch 100 IV Pokémon Using a Map On Huawei P60
 keywords: Pokemon Go Joystick for P60,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go for P60,Pokemon Go for P60,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/kq2_pYjL3lBcvd_iWUGjf8TYdhc=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-PS5-PlayStation-5-Gaming-Console-7-1434c073922c4bf59bca47a33013a6dd.jpg
+thumbnail: https://thmb.techidaily.com/778dacc021ae6d569afd3e62fa61bf15ba6fe429d937373bba78e772659986e3.jpg
 ---
 
 ## Full Guide to Catch 100 IV Pokémon Using a Map On Huawei P60

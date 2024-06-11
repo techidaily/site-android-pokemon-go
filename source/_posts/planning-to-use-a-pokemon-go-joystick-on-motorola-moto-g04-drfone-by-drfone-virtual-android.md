@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Motorola Moto G04? | Dr.fone
-date: 2024-05-20T04:42:49.976Z
-updated: 2024-05-21T04:42:49.976Z
+date: 2024-06-10T01:15:04.199Z
+updated: 2024-06-11T01:15:04.199Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Motorola Moto G04?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Motorola Moto G04?
 keywords: Pokémon Go Without Walking,Pokémon Go for Moto G04,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for Moto G04,Pokemon Go Joystick for Moto G04
-thumbnail: https://www.lifewire.com/thmb/tlifSCFQmwjazjTNLenwCtxlliI=/540x405/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/removerokuchannel-c354faa0f712495384a4d5888017e30c.png
+thumbnail: https://thmb.techidaily.com/f060aa48894ea1b017bf8a4af8da622e4076e35a663f40c627d05eef8a39852a.png
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Motorola Moto G04?

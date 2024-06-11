@@ -1,7 +1,7 @@
 ---
 title: How to Get and Use Pokemon Go Promo Codes On Infinix Smart 8 HD | Dr.fone
-date: 2024-04-30T07:36:22.391Z
-updated: 2024-05-01T07:36:22.391Z
+date: 2024-06-10T01:14:15.182Z
+updated: 2024-06-11T01:14:15.182Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to Get and Use Pokemon Go Promo Codes On Infinix Smart 8 HD
 excerpt: This article describes How to Get and Use Pokemon Go Promo Codes On Infinix Smart 8 HD
 keywords: Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Smart 8 HD,Pokemon Go Joystick for Smart 8 HD,Pokémon Go for Smart 8 HD,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/hfQflvBCf7d-XN3Ks-apahbRORg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/is-audible-worth-it-00616437e29b4d108264ba36057bbdde.jpg
+thumbnail: https://thmb.techidaily.com/99bd3a8517ed5c451f9f836179e6586efe05dbc59db5ea292ed9c7e8afff15a8.jpg
 ---
 
 ## How to Get and Use Pokemon Go Promo Codes On Infinix Smart 8 HD

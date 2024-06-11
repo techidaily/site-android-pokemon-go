@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Infinix GT 10 Pro? | Dr.fone
-date: 2024-04-30T07:36:29.466Z
-updated: 2024-05-01T07:36:29.466Z
+date: 2024-06-10T01:15:34.351Z
+updated: 2024-06-11T01:15:34.351Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Infinix GT 10 Pro?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Infinix GT 10 Pro?
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go for GT 10 Pro,Pokémon Go for GT 10 Pro,Pokémon Go Without Walking,Pokemon Go Joystick for GT 10 Pro
-thumbnail: https://www.lifewire.com/thmb/FWDwuZy1CDGbqb0qwCy_mcmpESI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/best-sports-movies-creed-michael-b-jordan-cbca95120e5243edb7eca00403eaa626.jpg
+thumbnail: https://thmb.techidaily.com/efc3f590fc068b65cc8e4c4fda82884c66683db0be7b320fd391a90a34b6fb91.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Infinix GT 10 Pro?

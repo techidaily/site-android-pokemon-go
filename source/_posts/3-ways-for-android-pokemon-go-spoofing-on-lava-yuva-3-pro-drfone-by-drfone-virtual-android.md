@@ -1,7 +1,7 @@
 ---
 title: 3 Ways for Android Pokemon Go Spoofing On Lava Yuva 3 Pro | Dr.fone
-date: 2024-05-20T04:42:13.405Z
-updated: 2024-05-21T04:42:13.405Z
+date: 2024-06-10T01:14:01.419Z
+updated: 2024-06-11T01:14:01.419Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes 3 Ways for Android Pokemon Go Spoofing On Lava Yuva 3 Pro
 excerpt: This article describes 3 Ways for Android Pokemon Go Spoofing On Lava Yuva 3 Pro
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Yuva 3 Pro,Pokémon Go for Yuva 3 Pro,Pokemon Go for Yuva 3 Pro,Pokémon Go Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/KQEPD1j8h_qKr2PB3tJ6qZQQ508=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-104626001-5c34f065c9e77c00010b8cd5.jpg
+thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39326ff49e8d4fafd11fa0e00.jpg
 ---
 
 ## 3 Ways for Android Pokemon Go Spoofing On Lava Yuva 3 Pro

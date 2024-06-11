@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Edge+ (2023) | Dr.fone
-date: 2024-05-20T04:42:33.370Z
-updated: 2024-05-21T04:42:33.370Z
+date: 2024-06-10T01:15:45.251Z
+updated: 2024-06-11T01:15:45.251Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Motorola Edge+ (2023)
 excerpt: This article describes Pokémon Go Cooldown Chart On Motorola Edge+ (2023)
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go for Edge+ (2023),Pokemon Go Without Walking,Pokémon Go for Edge+ (2023),Pokemon Go Joystick for Edge+ (2023),Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/0FZf3k28kLauMvGO0aGhDI7aaYY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/sb10069770n-003-56a104403df78cafdaa7dd48-ba41d70c51114343aaa38409d9cdfc3f.jpg
+thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad25662873342662329d5363509351a52f0.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Motorola Edge+ (2023)

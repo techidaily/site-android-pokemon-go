@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Sony Xperia 1 V | Dr.fone
-date: 2024-05-20T04:41:42.627Z
-updated: 2024-05-21T04:41:42.627Z
+date: 2024-06-10T01:12:55.754Z
+updated: 2024-06-11T01:12:55.754Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes All You Need To Know About Mega Greninja For Sony Xperia 1 V
 excerpt: This article describes All You Need To Know About Mega Greninja For Sony Xperia 1 V
 keywords: Pokémon Go for Xperia 1 V,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go for Xperia 1 V,Pokemon Go Joystick for Xperia 1 V,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/vmRvggsBE9toSpXM8p1WS8O5Wjc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/6-things-to-consider-before-buying-a-gaming-pc-5221042-8a79710a1e4549edbc357125123fb04e.jpg
+thumbnail: https://thmb.techidaily.com/290af97afad1802ce323c8e9ce6f1c1f031089327fdc749a381a84624fdbd2f2.jpg
 ---
 
 ## All You Need To Know About Mega Greninja For Sony Xperia 1 V

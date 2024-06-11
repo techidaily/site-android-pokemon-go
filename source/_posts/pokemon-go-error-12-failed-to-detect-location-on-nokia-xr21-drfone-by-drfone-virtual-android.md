@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Nokia XR21? | Dr.fone
-date: 2024-05-20T04:43:04.554Z
-updated: 2024-05-21T04:43:04.554Z
+date: 2024-06-10T01:16:06.369Z
+updated: 2024-06-11T01:16:06.369Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Nokia XR21?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Nokia XR21?
 keywords: Pokémon Go for XR21,Pokemon Go Joystick for XR21,Pokemon Go Joystick Without Walking,Pokemon Go for XR21,Pokemon Go Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/Wnjr5d8PWtLhZKZOlT7PSsWhqZ8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/YoungAsianmanusinglaptopandreadingnewspaperonplane-59960904685fbe00103478bd.jpg
+thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c63be7c3be4720f86eba5080f.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Nokia XR21?

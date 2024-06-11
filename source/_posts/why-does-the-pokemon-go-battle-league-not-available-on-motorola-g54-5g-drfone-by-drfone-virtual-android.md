@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Motorola G54 5G | Dr.fone
-date: 2024-05-20T04:42:42.537Z
-updated: 2024-05-21T04:42:42.537Z
+date: 2024-06-10T01:14:06.032Z
+updated: 2024-06-11T01:14:06.032Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why does the pokemon go battle league not available On Motorola G54 5G
 excerpt: This article describes Why does the pokemon go battle league not available On Motorola G54 5G
 keywords: Pokemon Go Without Walking,Pokemon Go for G54 5G,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for G54 5G,Pokémon Go for G54 5G
-thumbnail: https://www.lifewire.com/thmb/Upemm_83fheu5JnASUVL9rXiGqw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TheOscarsStatue-33f6c30d7ffd4694a4dd1d1113de57f5.jpg
+thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6f572fe9945c7d91985d72b7.jpg
 ---
 
 ## Why does the pokemon go battle league not available On Motorola G54 5G

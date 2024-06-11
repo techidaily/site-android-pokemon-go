@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Nokia C12 Pro? | Dr.fone
-date: 2024-05-20T04:43:01.023Z
-updated: 2024-05-21T04:43:01.023Z
+date: 2024-06-10T01:13:45.604Z
+updated: 2024-06-11T01:13:45.604Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Nokia C12 Pro?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Nokia C12 Pro?
 keywords: Pokémon Go for C12 Pro,Pokemon Go for C12 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for C12 Pro,Pokémon Go Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/6UZHTeyuNkJhbDQGbXCRwhK1TEI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1218764238-30613399ad1b4cffab4ab474184b9c88.jpg
+thumbnail: https://thmb.techidaily.com/738343d11636524e97e883ecdfb55ee8c179338e8409002b7334f65b8debc634.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Nokia C12 Pro?

@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C22 | Dr.fone
-date: 2024-05-20T04:42:58.671Z
-updated: 2024-05-21T04:42:58.671Z
+date: 2024-06-10T01:14:17.932Z
+updated: 2024-06-11T01:14:17.932Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C22
 excerpt: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C22
 keywords: Pokemon Go Joystick for C22,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokémon Go for C22,Pokemon Go for C22,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/0zAfKCPSLtJGJZ4s7ICQ5FGmSzY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Verified-badge-on-phone-658ecad4f9104dae97a969bfa2f74eb3.jpg
+thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc8ca952932303c5e2c53ba39.jpg
 ---
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C22

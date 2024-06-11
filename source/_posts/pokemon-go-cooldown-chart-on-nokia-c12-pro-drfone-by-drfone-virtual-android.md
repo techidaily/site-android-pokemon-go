@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Nokia C12 Pro | Dr.fone
-date: 2024-05-20T04:43:01.289Z
-updated: 2024-05-21T04:43:01.289Z
+date: 2024-06-10T01:15:41.910Z
+updated: 2024-06-11T01:15:41.910Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Nokia C12 Pro
 excerpt: This article describes Pokémon Go Cooldown Chart On Nokia C12 Pro
 keywords: Pokémon Go for C12 Pro,Pokemon Go Joystick for C12 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for C12 Pro
-thumbnail: https://www.lifewire.com/thmb/zcmLCaAS2rquyOBmPOs0BcLkssY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5-things-to-consider-before-buying-a-graphics-card-5225912-e71513f30b90445e8c0702a87db6fcdc.jpg
+thumbnail: https://thmb.techidaily.com/7270266df833210c4618ef395558e4a1dd14a566be785a358865debf94836fef.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Nokia C12 Pro

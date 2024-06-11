@@ -1,7 +1,7 @@
 ---
 title: In 2024, Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G73 5G | Dr.fone
-date: 2024-05-20T04:42:30.797Z
-updated: 2024-05-21T04:42:30.797Z
+date: 2024-06-10T01:13:23.246Z
+updated: 2024-06-11T01:13:23.246Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G73 5G
 excerpt: This article describes Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G73 5G
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Moto G73 5G,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokémon Go for Moto G73 5G,Pokemon Go for Moto G73 5G
-thumbnail: https://www.lifewire.com/thmb/v4AbqnTlju8lMmkS1DJOcvntGsY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-839864362-59c51d1daf5d3a0010919ae9.jpg
+thumbnail: https://thmb.techidaily.com/ed1580a633035850affefcaff2905a61682a6fee4ff28b2032ed8b7104437026.jpg
 ---
 
 ## Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G73 5G

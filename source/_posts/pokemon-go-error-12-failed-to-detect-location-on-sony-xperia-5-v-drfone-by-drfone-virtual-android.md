@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Sony Xperia 5 V? | Dr.fone
-date: 2024-05-20T04:41:45.958Z
-updated: 2024-05-21T04:41:45.958Z
+date: 2024-06-10T01:13:38.980Z
+updated: 2024-06-11T01:13:38.980Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Sony Xperia 5 V?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Sony Xperia 5 V?
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for Xperia 5 V,Pokemon Go for Xperia 5 V,Pokemon Go Without Walking,Pokémon Go for Xperia 5 V
-thumbnail: https://www.lifewire.com/thmb/Kum5AgirtoV-H5HQXO5DDyzMKvY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/what-is-bluesky-social-fea29392009e4482b7fd8c5c526f69ab.jpg
+thumbnail: https://thmb.techidaily.com/8131b30173d2b241efc12bf25f704d9229322eedc156666a853f82f3e47dee0b.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Sony Xperia 5 V?

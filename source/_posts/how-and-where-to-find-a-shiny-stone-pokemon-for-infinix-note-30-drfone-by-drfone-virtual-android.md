@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Infinix Note 30? | Dr.fone
-date: 2024-04-12T03:11:38.960Z
-updated: 2024-04-13T03:11:38.960Z
+date: 2024-06-10T01:13:36.197Z
+updated: 2024-06-11T01:13:36.197Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How and Where to Find a Shiny Stone Pokémon For Infinix Note 30?
 excerpt: This article describes How and Where to Find a Shiny Stone Pokémon For Infinix Note 30?
 keywords: Pokemon Go Without Walking,Pokémon Go for Note 30,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Note 30,Pokémon Go Without Walking,Pokemon Go for Note 30
-thumbnail: https://www.lifewire.com/thmb/71reoJ08pe9fxU7SLDHBCk0MgVg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-use-remote-access-on-your-samsung-smart-tv-4688935-01-29c7de5dc77e4747a8070d12f0c3d84c.jpg
+thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641c77398dacbaad68cbaf2be6.jpg
 ---
 
 ## How and Where to Find a Shiny Stone Pokémon For Infinix Note 30?

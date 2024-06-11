@@ -1,7 +1,7 @@
 ---
 title: How to use iSpoofer on Nokia C12 Pro? | Dr.fone
-date: 2024-05-20T04:43:01.105Z
-updated: 2024-05-21T04:43:01.105Z
+date: 2024-06-10T01:13:23.280Z
+updated: 2024-06-11T01:13:23.280Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use iSpoofer on Nokia C12 Pro?
 excerpt: This article describes How to use iSpoofer on Nokia C12 Pro?
 keywords: Pokémon Go for C12 Pro,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for C12 Pro,Pokemon Go Joystick for C12 Pro
-thumbnail: https://www.lifewire.com/thmb/YPMhKL59WGdTUpxCrpaB_OS--cc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-set-up-speech-to-text-on-android-0-928c48ab121248f9aa543a136d971f9a.jpg
+thumbnail: https://thmb.techidaily.com/2e5cadcabaa5bc146e9286cd6ccf5e30c43742afdff538e1080a5add013b39bf.jpg
 ---
 
 ## How to use iSpoofer on Nokia C12 Pro?

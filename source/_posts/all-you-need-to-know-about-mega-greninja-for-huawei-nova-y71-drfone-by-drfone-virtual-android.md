@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Huawei Nova Y71 | Dr.fone
-date: 2024-05-20T04:42:00.821Z
-updated: 2024-05-21T04:42:00.821Z
+date: 2024-06-10T01:13:54.280Z
+updated: 2024-06-11T01:13:54.280Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes All You Need To Know About Mega Greninja For Huawei Nova Y71
 excerpt: This article describes All You Need To Know About Mega Greninja For Huawei Nova Y71
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for Nova Y71,Pokemon Go Joystick for Nova Y71,Pokemon Go Without Walking,Pokémon Go for Nova Y71
-thumbnail: https://www.lifewire.com/thmb/uOuMw8_e1pBrdfuZB3txnHBxmfk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/sofya-NomETWcv2Fo-unsplash-be3fc2855a7e477db0273993fd22e822.jpg
+thumbnail: https://thmb.techidaily.com/f8f467b332b89dbb4d8c51eef116fbbce4476e735f93f6027b47c78945bb4e75.jpg
 ---
 
 ## All You Need To Know About Mega Greninja For Huawei Nova Y71

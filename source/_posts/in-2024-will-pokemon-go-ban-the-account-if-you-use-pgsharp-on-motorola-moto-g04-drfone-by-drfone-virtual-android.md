@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G04 | Dr.fone
-date: 2024-05-20T04:42:51.046Z
-updated: 2024-05-21T04:42:51.046Z
+date: 2024-06-10T01:12:43.549Z
+updated: 2024-06-11T01:12:43.549Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G04
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G04
 keywords: Pokemon Go Joystick for Moto G04,Pokemon Go Joystick Without Walking,Pokemon Go for Moto G04,Pokemon Go Without Walking,Pokémon Go for Moto G04,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/1X3sRGX1kbV-Ydn8ceXfqTlOH6I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/african-american-woman-opening-packages-of-shoes-on-sofa-580503483-5a735094d8fdd50036b63f8a.jpg
+thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01116c41da9ae37331ba659b6.jpg
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G04

@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Motorola Moto G73 5G? | Dr.fone
-date: 2024-05-20T04:42:30.320Z
-updated: 2024-05-21T04:42:30.320Z
+date: 2024-06-10T01:15:42.850Z
+updated: 2024-06-11T01:15:42.850Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Motorola Moto G73 5G?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Motorola Moto G73 5G?
 keywords: Pokemon Go Joystick for Moto G73 5G,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokémon Go for Moto G73 5G,Pokemon Go Joystick Without Walking,Pokemon Go for Moto G73 5G
-thumbnail: https://www.lifewire.com/thmb/hlshSPtDf3zsXAhW4UAOkuNWyQM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-Macys-59e6c3699abed500118af858.jpg
+thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f433cd32ec9f580258b7206c.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Motorola Moto G73 5G?

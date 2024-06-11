@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Motorola G54 5G? | Dr.fone
-date: 2024-05-20T04:42:42.760Z
-updated: 2024-05-21T04:42:42.760Z
+date: 2024-06-10T01:13:52.462Z
+updated: 2024-06-11T01:13:52.462Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Motorola G54 5G?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Motorola G54 5G?
 keywords: Pokemon Go for G54 5G,Pokémon Go Without Walking,Pokemon Go Joystick for G54 5G,Pokémon Go for G54 5G,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/-bcmaokZfvwTgJE1q3LjnihDbBY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-678913139-58a4ece73df78c345bcd781b.jpg
+thumbnail: https://thmb.techidaily.com/7f8f4d19272d4759318cbc88d919ca0c7c48f620077177c71b194a7d51d8ecab.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Motorola G54 5G?

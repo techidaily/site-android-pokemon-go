@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Lava Blaze Pro 5G? | Dr.fone
-date: 2024-05-20T04:42:10.400Z
-updated: 2024-05-21T04:42:10.400Z
+date: 2024-06-10T01:13:19.775Z
+updated: 2024-06-11T01:13:19.775Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Lava Blaze Pro 5G?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Lava Blaze Pro 5G?
 keywords: Pokémon Go Without Walking,Pokemon Go for Blaze Pro 5G,Pokemon Go Joystick for Blaze Pro 5G,Pokemon Go Joystick Without Walking,Pokémon Go for Blaze Pro 5G,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/ebrh4pryk1RCkUBx_N34Im614oA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-14050070541-0fc96b82fdc54287bf3bbce3ba323342.jpg
+thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef3415c454c76fbd282fafbfc.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Lava Blaze Pro 5G?
