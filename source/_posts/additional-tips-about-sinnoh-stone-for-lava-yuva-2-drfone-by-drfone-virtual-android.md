@@ -1,7 +1,7 @@
 ---
 title: Additional Tips About Sinnoh Stone For Lava Yuva 2 | Dr.fone
-date: 2024-05-20T04:42:07.327Z
-updated: 2024-05-21T04:42:07.327Z
+date: 2024-06-19T00:00:20.957Z
+updated: 2024-06-20T00:00:20.957Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Additional Tips About Sinnoh Stone For Lava Yuva 2
 excerpt: This article describes Additional Tips About Sinnoh Stone For Lava Yuva 2
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokémon Go for Yuva 2,Pokemon Go Without Walking,Pokemon Go for Yuva 2,Pokemon Go Joystick for Yuva 2
-thumbnail: https://www.lifewire.com/thmb/TYGiT5X9QiOC8P7-lx0tWOT-IQI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/airpodbatterylevelonandroid-15c1db7e9fac43248d130a42540c12a6.jpg
+thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
 ---
 
 ## Additional Tips About Sinnoh Stone For Lava Yuva 2

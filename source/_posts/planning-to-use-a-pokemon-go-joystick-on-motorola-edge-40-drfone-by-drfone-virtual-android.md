@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Motorola Edge 40? | Dr.fone
-date: 2024-05-20T04:42:34.496Z
-updated: 2024-05-21T04:42:34.496Z
+date: 2024-06-19T00:02:02.131Z
+updated: 2024-06-20T00:02:02.131Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Motorola Edge 40?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Motorola Edge 40?
 keywords: Pokemon Go Without Walking,Pokemon Go for Edge 40,Pokémon Go Without Walking,Pokemon Go Joystick for Edge 40,Pokémon Go for Edge 40,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/xSHtE9tL82nCUVR18o4SkLJaAw8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-962954554-5c338fc146e0fb0001346aec.jpg
+thumbnail: https://thmb.techidaily.com/fff656b551e024a92bec77f08e34169fdbb7972daf3e003aecf76e9fd40fed20.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Motorola Edge 40?

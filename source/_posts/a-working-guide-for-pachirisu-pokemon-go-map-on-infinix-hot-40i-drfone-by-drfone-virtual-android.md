@@ -1,7 +1,7 @@
 ---
 title: A Working Guide For Pachirisu Pokemon Go Map On Infinix Hot 40i | Dr.fone
-date: 2024-04-07T02:06:37.408Z
-updated: 2024-04-08T02:06:37.408Z
+date: 2024-06-19T00:00:02.644Z
+updated: 2024-06-20T00:00:02.644Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes A Working Guide For Pachirisu Pokemon Go Map On Infinix Hot 40i
 excerpt: This article describes A Working Guide For Pachirisu Pokemon Go Map On Infinix Hot 40i
 keywords: Pokemon Go Without Walking,Pokemon Go Joystick for Hot 40i,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for Hot 40i,Pokémon Go for Hot 40i
-thumbnail: https://www.lifewire.com/thmb/2zy8MTQaG4uUA0T7RXXxi-EpxMA=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ps5controller-0d702b25f7fa47b482999811cfc7af39.jpg
+thumbnail: https://thmb.techidaily.com/36cb4ddf3fc78c71836e11f4a803426f35040ec4e34c37b6c57cca04ad1d4891.jpg
 ---
 
 ## A Working Guide For Pachirisu Pokemon Go Map On Infinix Hot 40i

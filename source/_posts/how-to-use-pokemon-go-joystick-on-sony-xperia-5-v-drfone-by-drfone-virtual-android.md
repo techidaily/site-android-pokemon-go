@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Sony Xperia 5 V? | Dr.fone
-date: 2024-05-20T04:41:46.002Z
-updated: 2024-05-21T04:41:46.002Z
+date: 2024-06-19T00:00:02.620Z
+updated: 2024-06-20T00:00:02.620Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use Pokemon Go Joystick on Sony Xperia 5 V?
 excerpt: This article describes How to use Pokemon Go Joystick on Sony Xperia 5 V?
 keywords: Pokémon Go for Xperia 5 V,Pokemon Go for Xperia 5 V,Pokemon Go Joystick for Xperia 5 V,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/2mfMkf9Nh38PrId0xERnppf9iAg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-view-instagram-without-an-account-5271416-505eeceaf0e142ed8674d2ce2244a8be.jpg
+thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1418a5a54e50bbd98af412de.jpg
 ---
 
 ## How to use Pokemon Go Joystick on Sony Xperia 5 V?

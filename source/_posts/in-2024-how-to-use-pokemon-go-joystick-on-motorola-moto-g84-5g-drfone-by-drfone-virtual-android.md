@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Motorola Moto G84 5G? | Dr.fone
-date: 2024-05-20T04:42:41.842Z
-updated: 2024-05-21T04:42:41.842Z
+date: 2024-06-18T23:59:10.725Z
+updated: 2024-06-19T23:59:10.725Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use Pokemon Go Joystick on Motorola Moto G84 5G?
 excerpt: This article describes How to use Pokemon Go Joystick on Motorola Moto G84 5G?
 keywords: Pokemon Go Joystick for Moto G84 5G,Pokemon Go Joystick Without Walking,Pokémon Go for Moto G84 5G,Pokemon Go for Moto G84 5G,Pokémon Go Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/koSaGJ5iVSnQrrvXh53lyy1rSZM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/podcasts-safeforkids-5b2f3dd4eb97de0036d9f87b.jpg
+thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae043dca04e140a16eeec969f.jpg
 ---
 
 ## How to use Pokemon Go Joystick on Motorola Moto G84 5G?

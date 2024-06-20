@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Infinix Note 30 Pro? | Dr.fone
-date: 2024-04-30T07:35:30.113Z
-updated: 2024-05-01T07:35:30.113Z
+date: 2024-06-19T00:01:20.002Z
+updated: 2024-06-20T00:01:20.002Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Infinix Note 30 Pro?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Infinix Note 30 Pro?
 keywords: Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go for Note 30 Pro,Pokemon Go Joystick for Note 30 Pro,Pokémon Go for Note 30 Pro
-thumbnail: https://www.lifewire.com/thmb/7wF4Y8OF7ONJDet9sjTpYolWJ8M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-475157855-5b24021b04d1cf00369d7e11-5c66f1c04cedfd00010a2553.jpg
+thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f64d610e7943b29ad8777b2c6.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Infinix Note 30 Pro?

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Storm 5G | Dr.fone
-date: 2024-05-20T04:42:14.626Z
-updated: 2024-05-21T04:42:14.626Z
+date: 2024-06-18T23:58:53.931Z
+updated: 2024-06-19T23:58:53.931Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Storm 5G
 excerpt: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Storm 5G
 keywords: Pokemon Go Joystick for Storm 5G,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go for Storm 5G,Pokemon Go Without Walking,Pokémon Go for Storm 5G
-thumbnail: https://www.lifewire.com/thmb/eYcaBBIZ1vACwviFbibN_RqgtSY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/man-measuring-tv-size-102761115-getty-5bf8513246e0fb008321de5f.jpg
+thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed98794f1ba27d0b681ad3c785.jpg
 ---
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Storm 5G

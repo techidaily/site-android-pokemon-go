@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Pro 5G | Dr.fone
-date: 2024-05-20T04:42:10.527Z
-updated: 2024-05-21T04:42:10.527Z
+date: 2024-06-19T00:01:49.564Z
+updated: 2024-06-20T00:01:49.564Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Pro 5G
 excerpt: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Pro 5G
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for Blaze Pro 5G,Pokémon Go for Blaze Pro 5G,Pokemon Go Joystick for Blaze Pro 5G,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/VhWXwk4rULRvURLd-ts4rpfPSxw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1250476440-2ff779100e984029aa752236f9791b11.jpg
+thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653067a4110ec11928ef11818a.jpg
 ---
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Pro 5G

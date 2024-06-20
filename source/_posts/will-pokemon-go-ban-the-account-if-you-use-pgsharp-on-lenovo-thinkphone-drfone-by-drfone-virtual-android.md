@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Lenovo ThinkPhone | Dr.fone
-date: 2024-05-20T04:42:19.441Z
-updated: 2024-05-21T04:42:19.441Z
+date: 2024-06-19T00:01:06.892Z
+updated: 2024-06-20T00:01:06.892Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Lenovo ThinkPhone
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Lenovo ThinkPhone
 keywords: Pokémon Go for ThinkPhone,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go for ThinkPhone,Pokemon Go Joystick for ThinkPhone
-thumbnail: https://www.lifewire.com/thmb/wnN-qVO61jMEVKBE1HStiKTk2xY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/lg-channels-guide-1800-x-0f720f6afeb842c299c88baa42f3bd88.jpg
+thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b5686d5a4ad72e83eea7dc08de2.jpg
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Lenovo ThinkPhone
@@ -154,7 +154,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

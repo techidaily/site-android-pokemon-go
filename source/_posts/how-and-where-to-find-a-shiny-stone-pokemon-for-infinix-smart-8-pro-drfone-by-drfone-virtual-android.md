@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8 Pro? | Dr.fone
-date: 2024-04-12T03:11:40.497Z
-updated: 2024-04-13T03:11:40.497Z
+date: 2024-06-19T00:01:03.786Z
+updated: 2024-06-20T00:01:03.786Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8 Pro?
 excerpt: This article describes How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8 Pro?
 keywords: Pokemon Go for Smart 8 Pro,Pokemon Go Without Walking,Pokémon Go for Smart 8 Pro,Pokemon Go Joystick for Smart 8 Pro,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/_JoO871Fn8djNW5YRDt3xrRs7Kg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-see-who-viewed-your-tiktok-5271090-e2cb663541b8484a8a2e80ffbdd98db3.jpg
+thumbnail: https://thmb.techidaily.com/daed1459b71f2c11118ff363b82166df3949711b8db94af4f668119ff4d60331.jpg
 ---
 
 ## How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8 Pro?
@@ -131,7 +131,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

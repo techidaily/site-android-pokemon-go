@@ -1,7 +1,7 @@
 ---
 title: In 2024, Hacks to do pokemon go trainer battles For Sony Xperia 5 V | Dr.fone
-date: 2024-05-20T04:41:47.023Z
-updated: 2024-05-21T04:41:47.023Z
+date: 2024-06-19T00:00:26.840Z
+updated: 2024-06-20T00:00:26.840Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Hacks to do pokemon go trainer battles For Sony Xperia 5 V
 excerpt: This article describes Hacks to do pokemon go trainer battles For Sony Xperia 5 V
 keywords: Pokemon Go Without Walking,Pokémon Go for Xperia 5 V,Pokemon Go Joystick for Xperia 5 V,Pokemon Go for Xperia 5 V,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/eS1YD0LsEQhVuAP3cxZA8t-_eDU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iPad-Pro_creative-sketch_10302018-5be0773ac9e77c0051d5d51c.jpg
+thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70cf5906bbca11c158a428c514.jpg
 ---
 
 ## Hacks to do pokemon go trainer battles For Sony Xperia 5 V

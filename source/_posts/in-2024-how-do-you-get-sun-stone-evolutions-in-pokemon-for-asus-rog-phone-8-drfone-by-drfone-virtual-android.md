@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Asus ROG Phone 8? | Dr.fone
-date: 2024-05-20T04:41:52.344Z
-updated: 2024-05-21T04:41:52.344Z
+date: 2024-06-19T00:00:35.938Z
+updated: 2024-06-20T00:00:35.938Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Asus ROG Phone 8?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Asus ROG Phone 8?
 keywords: Pokémon Go for ROG Phone 8,Pokemon Go for ROG Phone 8,Pokémon Go Without Walking,Pokemon Go Joystick for ROG Phone 8,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/rg8CHiqfntWuiXPLjddFZ1BByCc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gopro-2619915_1920-2ca3364339c348e5ba44afb3fa79458b.jpg
+thumbnail: https://thmb.techidaily.com/76a953455d282504d07d30484b3d441976cd7c068fdbe75a38577d96433ea41b.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Asus ROG Phone 8?

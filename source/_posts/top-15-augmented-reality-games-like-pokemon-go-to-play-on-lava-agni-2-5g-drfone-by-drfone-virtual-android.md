@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Agni 2 5G | Dr.fone
-date: 2024-05-20T04:42:05.975Z
-updated: 2024-05-21T04:42:05.975Z
+date: 2024-06-19T00:01:00.783Z
+updated: 2024-06-20T00:01:00.783Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Agni 2 5G
 excerpt: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Agni 2 5G
 keywords: Pokémon Go Without Walking,Pokemon Go for Agni 2 5G,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Agni 2 5G,Pokémon Go for Agni 2 5G
-thumbnail: https://www.lifewire.com/thmb/hlshSPtDf3zsXAhW4UAOkuNWyQM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-Macys-59e6c3699abed500118af858.jpg
+thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f433cd32ec9f580258b7206c.jpg
 ---
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Agni 2 5G

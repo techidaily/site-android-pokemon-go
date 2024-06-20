@@ -1,7 +1,7 @@
 ---
 title: Hacks to do pokemon go trainer battles For Infinix Smart 8 Plus | Dr.fone
-date: 2024-04-12T03:11:09.942Z
-updated: 2024-04-13T03:11:09.942Z
+date: 2024-06-18T23:58:58.828Z
+updated: 2024-06-19T23:58:58.828Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Hacks to do pokemon go trainer battles For Infinix Smart 8 Plus
 excerpt: This article describes Hacks to do pokemon go trainer battles For Infinix Smart 8 Plus
 keywords: Pokémon Go Without Walking,Pokémon Go for Smart 8 Plus,Pokemon Go for Smart 8 Plus,Pokemon Go Joystick for Smart 8 Plus,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/v4AbqnTlju8lMmkS1DJOcvntGsY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-839864362-59c51d1daf5d3a0010919ae9.jpg
+thumbnail: https://thmb.techidaily.com/ed1580a633035850affefcaff2905a61682a6fee4ff28b2032ed8b7104437026.jpg
 ---
 
 ## Hacks to do pokemon go trainer battles For Infinix Smart 8 Plus

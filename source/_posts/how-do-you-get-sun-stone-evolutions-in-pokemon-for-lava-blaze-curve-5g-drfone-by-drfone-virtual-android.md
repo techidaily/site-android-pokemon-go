@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze Curve 5G? | Dr.fone
-date: 2024-05-20T04:42:17.323Z
-updated: 2024-05-21T04:42:17.323Z
+date: 2024-06-19T00:01:46.574Z
+updated: 2024-06-20T00:01:46.574Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze Curve 5G?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze Curve 5G?
 keywords: Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for Blaze Curve 5G,Pokemon Go for Blaze Curve 5G,Pokemon Go Joystick Without Walking,Pokémon Go for Blaze Curve 5G
-thumbnail: https://www.lifewire.com/thmb/NOc5RCOPURestyDsC5sxK7KzGY8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-971165690-1e0af1d9299f4fdba1225c2d20c739f2.jpg
+thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89ced90101624b46320eed1514.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze Curve 5G?

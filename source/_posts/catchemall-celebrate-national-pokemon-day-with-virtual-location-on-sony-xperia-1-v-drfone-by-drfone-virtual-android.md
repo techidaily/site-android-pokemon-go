@@ -1,7 +1,7 @@
 ---
 title: CatchEmAll Celebrate National Pokémon Day with Virtual Location On Sony Xperia 1 V | Dr.fone
-date: 2024-05-20T04:41:42.656Z
-updated: 2024-05-21T04:41:42.656Z
+date: 2024-06-19T00:00:33.044Z
+updated: 2024-06-20T00:00:33.044Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes CatchEmAll Celebrate National Pokémon Day with Virtual Location On Sony Xperia 1 V
 excerpt: This article describes CatchEmAll Celebrate National Pokémon Day with Virtual Location On Sony Xperia 1 V
 keywords: Pokemon Go Without Walking,Pokémon Go for Xperia 1 V,Pokemon Go Joystick Without Walking,Pokemon Go for Xperia 1 V,Pokemon Go Joystick for Xperia 1 V,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/RHk5CzUskZEHtVQS5Kba30nHhvY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/is-kindle-unlimited-worth-it-fda01dceb923406a8524c64d2b72693e.jpg
+thumbnail: https://thmb.techidaily.com/e4dab8212b61415ab670db2724890039dc218886423e579644f1092e23638fe5.jpg
 ---
 
 ## CatchEmAll Celebrate National Pokémon Day with Virtual Location On Sony Xperia 1 V
@@ -37,9 +37,7 @@ The game is as simple as playing connect-the-dots. Participants who successfully
 
 ### Exclusive Rewards
 
-Winners can enjoy a 33% off coupon on Dr.Fone - Virtual Location to spoof your Pokémon Go GPS! This enables you to catch more and even rare Pokémons at a lower cost. So, are you ready to catch ’em all this Pokémon Day? Let’s find the best ways to do it below!
-
-[![Exclusive Coupon](https://images.wondershare.com/drfone/images2024/pokemon/pokemon-day.png)](https://drfone.wondershare.com/virtual-location/national-pokemon-day.html#pokeman2)
+Winners can enjoy a 33% off coupon on Dr.Fone - Virtual Location to spoof your Pokémon Go GPS! This enables you to catch more and even rare Pokémons at a lower cost. So, are you ready to catch ’em all this Pokémon Day? Let’s find the best ways to do it below![![Exclusive Coupon](https://images.wondershare.com/drfone/images2024/pokemon/pokemon-day.png)](https://drfone.wondershare.com/virtual-location/national-pokemon-day.html#pokeman2)
 
 ## Unlock Exclusive Rewards with Our Connect-the-Dots Game
 

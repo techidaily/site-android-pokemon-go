@@ -1,7 +1,7 @@
 ---
 title: Which Pokémon can Evolve with a Moon Stone For Lava Blaze 2? | Dr.fone
-date: 2024-05-20T04:42:04.530Z
-updated: 2024-05-21T04:42:04.530Z
+date: 2024-06-18T23:58:58.913Z
+updated: 2024-06-19T23:58:58.913Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Which Pokémon can Evolve with a Moon Stone For Lava Blaze 2?
 excerpt: This article describes Which Pokémon can Evolve with a Moon Stone For Lava Blaze 2?
 keywords: Pokémon Go Without Walking,Pokémon Go for Blaze 2,Pokemon Go Without Walking,Pokemon Go Joystick for Blaze 2,Pokemon Go Joystick Without Walking,Pokemon Go for Blaze 2
-thumbnail: https://www.lifewire.com/thmb/GmtX4Dz-IqWNOXpwPIQPNtbYXbk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-174294003-57c6ee043df78cc16eeab260.jpg
+thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625c6e0b9ad212abd473aa163b.jpg
 ---
 
 ## Which Pokémon can Evolve with a Moon Stone For Lava Blaze 2?

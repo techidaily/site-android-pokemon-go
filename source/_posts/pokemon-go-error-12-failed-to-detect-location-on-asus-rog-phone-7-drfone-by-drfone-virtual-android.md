@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Asus ROG Phone 7? | Dr.fone
-date: 2024-05-20T04:41:47.436Z
-updated: 2024-05-21T04:41:47.436Z
+date: 2024-06-19T00:01:38.195Z
+updated: 2024-06-20T00:01:38.195Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Asus ROG Phone 7?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Asus ROG Phone 7?
 keywords: Pokemon Go for ROG Phone 7,Pokémon Go for ROG Phone 7,Pokemon Go Joystick for ROG Phone 7,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/5m3PFyS3dMrqXFE2iOSfA4BUn2Y=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tiktok-smart-tv-12dcac76114b4747b9b3db8bb3551ddc.jpg
+thumbnail: https://thmb.techidaily.com/85e69845f10f793c5b081e6eac45cea976095820d8ff765825e636a33b833fec.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Asus ROG Phone 7?

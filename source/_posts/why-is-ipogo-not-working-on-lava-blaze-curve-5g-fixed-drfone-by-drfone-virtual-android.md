@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Lava Blaze Curve 5G? Fixed | Dr.fone
-date: 2024-05-20T04:42:17.353Z
-updated: 2024-05-21T04:42:17.353Z
+date: 2024-06-19T00:01:46.489Z
+updated: 2024-06-20T00:01:46.489Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why is iPogo not working On Lava Blaze Curve 5G? Fixed
 excerpt: This article describes Why is iPogo not working On Lava Blaze Curve 5G? Fixed
 keywords: Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Blaze Curve 5G,Pokemon Go for Blaze Curve 5G,Pokémon Go for Blaze Curve 5G,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/aqzoJvuc7HUCTQdUzpa5GXlHCac=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iPad-Mini-Splash-ef002ffe8db643d2a2b4de772ff46790.jpg
+thumbnail: https://thmb.techidaily.com/5a88545795b5ca3ae26e7c947a2bcf90d0830b425a670680d043fc15ab445500.jpg
 ---
 
 ## Why is iPogo not working On Lava Blaze Curve 5G? Fixed

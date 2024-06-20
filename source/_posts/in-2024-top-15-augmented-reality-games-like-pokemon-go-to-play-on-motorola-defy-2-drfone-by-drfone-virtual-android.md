@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Defy 2 | Dr.fone
-date: 2024-05-20T04:42:29.857Z
-updated: 2024-05-21T04:42:29.857Z
+date: 2024-06-18T23:59:39.993Z
+updated: 2024-06-19T23:59:39.993Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Defy 2
 excerpt: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Defy 2
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Defy 2,Pokemon Go Without Walking,Pokemon Go for Defy 2,Pokémon Go for Defy 2
-thumbnail: https://www.lifewire.com/thmb/IOefl4e_6Yr9ZAczXaVDoLd0G88=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1365158534-d6952b03afff43f7a1c5f0405f31dc92.jpg
+thumbnail: https://thmb.techidaily.com/470729e2db7d552929f896fede9bd2112971e2401fbcd66ce15df928f6be58b2.jpg
 ---
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Defy 2

@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On ZTE Blade A73 5G? | Dr.fone
-date: 2024-05-20T04:43:06.997Z
-updated: 2024-05-21T04:43:06.997Z
+date: 2024-06-19T00:00:16.343Z
+updated: 2024-06-20T00:00:16.343Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On ZTE Blade A73 5G?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On ZTE Blade A73 5G?
 keywords: Pokemon Go Joystick for Blade A73 5G,Pokémon Go for Blade A73 5G,Pokemon Go for Blade A73 5G,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/xk4sG4I9EUDVvTCEXSRMmg2yPjw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/superbowl_dmytroAksonov_Getty-5a775189119fa8003752b313.jpg
+thumbnail: https://thmb.techidaily.com/6d060e78cf4821c16957dc0af5764350800050d4c706e3284222e7ce2389a41f.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On ZTE Blade A73 5G?

@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Itel P55T | Dr.fone
-date: 2024-06-10T01:15:26.144Z
-updated: 2024-06-11T01:15:26.144Z
+date: 2024-06-18T23:59:30.025Z
+updated: 2024-06-19T23:59:30.025Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -65,7 +65,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Motorola Razr 40 Ultra | Dr.fone
-date: 2024-05-20T04:42:38.743Z
-updated: 2024-05-21T04:42:38.743Z
+date: 2024-06-18T23:59:28.106Z
+updated: 2024-06-19T23:59:28.106Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Motorola Razr 40 Ultra
 excerpt: This article describes Pokémon Go Cooldown Chart On Motorola Razr 40 Ultra
 keywords: Pokémon Go for Razr 40 Ultra,Pokemon Go Joystick for Razr 40 Ultra,Pokemon Go Without Walking,Pokemon Go for Razr 40 Ultra,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/Qyfd5yWYmuBE75uyOeLeSQxzUMY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_best-movies-on-hulu-right-now-5025149-3c80b5664f6541b4a0698333fc447251.jpg
+thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3f338f8c86d6f5318d22c5f4.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Motorola Razr 40 Ultra
@@ -229,7 +229,7 @@ Apart from the above-listed tips, you can also use a **100 IV Pokémon Go map** 
 
 Here are some of these reliable 100 IV Pokémon Go trackers that you can use.
 
-### 1\. [The Silph Road](https://drfone.wondershare.com/virtual-location/pokemon-go-silph-road-shut-down.html)
+### 1\. The Silph Road
 
 The Silph Road is the most extensive crowd-sourced resource for Pokémon Go that you can easily use on any device. Just visit its website and use the inbuilt filters to access its 100 IV Pokémon Go tracker. It will display the estimated IV for the Pokémon so that you can decide if it is worth the effort or not. Besides being a Pokémon Go 100 IV map, you can also use it to look for nests, raids, gyms, etc.
 
@@ -281,7 +281,7 @@ Using a 100 IV Pokémon Go map, you can easily know their spawning locations and
 
 
 
-### [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
+### Dr.Fone - Virtual Location
 
 Catch 100 IV Pokémon without moving!
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Lava Yuva 2 Pro? | Dr.fone
-date: 2024-05-20T04:42:03.585Z
-updated: 2024-05-21T04:42:03.585Z
+date: 2024-06-19T00:00:54.058Z
+updated: 2024-06-20T00:00:54.058Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Lava Yuva 2 Pro?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Lava Yuva 2 Pro?
 keywords: Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go for Yuva 2 Pro,Pokemon Go Joystick for Yuva 2 Pro,Pokémon Go for Yuva 2 Pro,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/UtN0GE8QhLupWXrar0DikfJdamQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/cq5dam.web.1280.1280-3-5c2a5dc746e0fb0001d115f0.jpeg
+thumbnail: https://thmb.techidaily.com/4d13682289fd093707f3e488098e8b68b405e6325695bb2b5c751424b8cb1104.jpeg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Lava Yuva 2 Pro?

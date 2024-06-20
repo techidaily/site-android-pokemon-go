@@ -1,7 +1,7 @@
 ---
 title: All You Need To Know About Mega Greninja For Lava Blaze 2 Pro | Dr.fone
-date: 2024-05-20T04:42:08.571Z
-updated: 2024-05-21T04:42:08.571Z
+date: 2024-06-18T23:59:09.753Z
+updated: 2024-06-19T23:59:09.753Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes All You Need To Know About Mega Greninja For Lava Blaze 2 Pro
 excerpt: This article describes All You Need To Know About Mega Greninja For Lava Blaze 2 Pro
 keywords: Pokemon Go Joystick for Blaze 2 Pro,Pokémon Go for Blaze 2 Pro,Pokemon Go Joystick Without Walking,Pokemon Go for Blaze 2 Pro,Pokemon Go Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/sujrBq1SN6zkmNgqHTSAbFbTvKk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/18-Hidden-Snapchat-Features-efa75dca521e4cf6bb321dc960276deb.jpg
+thumbnail: https://thmb.techidaily.com/f1294d51d8e0560c6776b360116bd819890055c0bb65c23b15603692f6dffac9.jpg
 ---
 
 ## All You Need To Know About Mega Greninja For Lava Blaze 2 Pro

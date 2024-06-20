@@ -1,7 +1,7 @@
 ---
 title: Catch or Beat Sleeping Snorlax on Pokemon Go For Itel A05s | Dr.fone
-date: 2024-04-07T23:19:19.923Z
-updated: 2024-04-08T23:19:19.923Z
+date: 2024-06-19T00:00:08.599Z
+updated: 2024-06-20T00:00:08.599Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Catch or Beat Sleeping Snorlax on Pokemon Go For Itel A05s
 excerpt: This article describes Catch or Beat Sleeping Snorlax on Pokemon Go For Itel A05s
 keywords: Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for A05s,Pokemon Go for A05s,Pokémon Go for A05s
-thumbnail: https://www.lifewire.com/thmb/n7XTjADWmcwt2P_LF7WoPjqi8O4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-538600261-56c643115f9b5879cc3d6bde.jpg
+thumbnail: https://thmb.techidaily.com/5f19d12263b1224bd46b49560f2a184a0c0f8c0d56bb43f9e5c26e9a6768a6cd.jpg
 ---
 
 ## Catch or Beat Sleeping Snorlax on Pokemon Go For Itel A05s
@@ -317,7 +317,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

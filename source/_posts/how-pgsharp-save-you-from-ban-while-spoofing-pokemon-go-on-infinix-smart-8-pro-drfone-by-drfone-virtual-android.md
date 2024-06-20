@@ -1,7 +1,7 @@
 ---
 title: How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Smart 8 Pro? | Dr.fone
-date: 2024-04-30T07:35:52.224Z
-updated: 2024-05-01T07:35:52.224Z
+date: 2024-06-19T00:01:38.154Z
+updated: 2024-06-20T00:01:38.154Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Smart 8 Pro?
 excerpt: This article describes How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Smart 8 Pro?
 keywords: Pokemon Go Without Walking,Pokemon Go Joystick for Smart 8 Pro,Pokémon Go for Smart 8 Pro,Pokemon Go Joystick Without Walking,Pokemon Go for Smart 8 Pro,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/Lt7EML2RrB2kJWs-oE5VbZxnlNo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_the-best-kids-movies-on-disney-plus-june-2023-5112564-37245acf2e6840ba8319f0e13985e04a.jpg
+thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec05c10e1ad65882453b11db44.jpg
 ---
 
 ## How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Smart 8 Pro?
@@ -170,7 +170,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

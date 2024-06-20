@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze 2 | Dr.fone
-date: 2024-05-20T04:42:04.082Z
-updated: 2024-05-21T04:42:04.082Z
+date: 2024-06-19T00:02:02.237Z
+updated: 2024-06-20T00:02:02.237Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze 2
 excerpt: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze 2
 keywords: Pokémon Go Without Walking,Pokémon Go for Blaze 2,Pokemon Go for Blaze 2,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Blaze 2
-thumbnail: https://www.lifewire.com/thmb/fZAyW_q2RrCH4bIuVh-tO15AFts=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/patch-tuesday-2625783-d6bcf232b3c64fc5958037ad31299bd9.png
+thumbnail: https://thmb.techidaily.com/3322edcb2b3700ce4baa5c0677a8f300e23dbf74c5228f8bd6ca0d33294791ed.png
 ---
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze 2
@@ -289,7 +289,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

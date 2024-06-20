@@ -1,7 +1,7 @@
 ---
 title: Detailed guide of ispoofer for pogo installation On Xiaomi Redmi 12 5G | Dr.fone
-date: 2024-04-12T03:10:57.863Z
-updated: 2024-04-13T03:10:57.863Z
+date: 2024-06-19T00:00:03.646Z
+updated: 2024-06-20T00:00:03.646Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Detailed guide of ispoofer for pogo installation On Xiaomi Redmi 12 5G
 excerpt: This article describes Detailed guide of ispoofer for pogo installation On Xiaomi Redmi 12 5G
 keywords: Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Redmi 12 5G,Pokemon Go Joystick for Redmi 12 5G,Pokémon Go for Redmi 12 5G,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/LSRhv9V0PxzBAHOqiakqf0M89LI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1302402871-ea3debd2e3c64ec5a78a99e580b6a8d1.jpg
+thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a96b142f6b85654b12ef9f8e.jpg
 ---
 
 ## Detailed guide of ispoofer for pogo installation On Xiaomi Redmi 12 5G
@@ -301,7 +301,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

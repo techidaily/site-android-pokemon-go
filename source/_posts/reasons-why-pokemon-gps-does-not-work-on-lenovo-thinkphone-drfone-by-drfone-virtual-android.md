@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Lenovo ThinkPhone? | Dr.fone
-date: 2024-05-20T04:42:19.509Z
-updated: 2024-05-21T04:42:19.509Z
+date: 2024-06-19T00:01:21.010Z
+updated: 2024-06-20T00:01:21.010Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Reasons why Pokémon GPS does not Work On Lenovo ThinkPhone?
 excerpt: This article describes Reasons why Pokémon GPS does not Work On Lenovo ThinkPhone?
 keywords: Pokemon Go Joystick for ThinkPhone,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go for ThinkPhone,Pokemon Go Without Walking,Pokemon Go for ThinkPhone
-thumbnail: https://www.lifewire.com/thmb/R4hO61lalLOqraKCRcJdmU6HWfQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/0010_21-best-teen-movies-on-netflix-5104880-b0e9832746854cabb4f33cafef96214b.jpg
+thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d9b87e9c40850a4f81b5f21f.jpg
 ---
 
 ## Reasons why Pokémon GPS does not Work On Lenovo ThinkPhone?

@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Lava Blaze Curve 5G? | Dr.fone
-date: 2024-05-20T04:42:17.257Z
-updated: 2024-05-21T04:42:17.257Z
+date: 2024-06-19T00:01:31.067Z
+updated: 2024-06-20T00:01:31.067Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Lava Blaze Curve 5G?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Lava Blaze Curve 5G?
 keywords: Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go for Blaze Curve 5G,Pokemon Go Joystick Without Walking,Pokémon Go for Blaze Curve 5G,Pokemon Go Joystick for Blaze Curve 5G
-thumbnail: https://www.lifewire.com/thmb/yPXnCagYB7bKT7uol-AGPozLSS0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iPad-Air-5-e11857a8d117450e9e09d770e300a872.jpg
+thumbnail: https://thmb.techidaily.com/1b6976e6cb0861a8e856af8d9b91eb1dc370f068cc6322414a1134e31c0876a0.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Lava Blaze Curve 5G?
@@ -149,7 +149,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

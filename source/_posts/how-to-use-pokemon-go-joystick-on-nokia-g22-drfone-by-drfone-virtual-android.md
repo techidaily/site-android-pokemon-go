@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Nokia G22? | Dr.fone
-date: 2024-05-20T04:42:56.782Z
-updated: 2024-05-21T04:42:56.782Z
+date: 2024-06-19T00:01:50.748Z
+updated: 2024-06-20T00:01:50.748Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use Pokemon Go Joystick on Nokia G22?
 excerpt: This article describes How to use Pokemon Go Joystick on Nokia G22?
 keywords: Pokémon Go for G22,Pokemon Go Joystick Without Walking,Pokemon Go for G22,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for G22
-thumbnail: https://www.lifewire.com/thmb/q3inw24-h4v92CyIU7_fxjPM1JU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tiktok-messages-889fef4cdfac41babb84770288f32cf2.jpg
+thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a3dc9eccb9055a4b28f7166a.jpg
 ---
 
 ## How to use Pokemon Go Joystick on Nokia G22?

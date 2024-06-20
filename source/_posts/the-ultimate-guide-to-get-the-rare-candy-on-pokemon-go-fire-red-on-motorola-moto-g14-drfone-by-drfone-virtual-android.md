@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G14 | Dr.fone
-date: 2024-05-20T04:42:39.443Z
-updated: 2024-05-21T04:42:39.443Z
+date: 2024-06-18T23:59:54.436Z
+updated: 2024-06-19T23:59:54.436Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G14
 excerpt: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G14
 keywords: Pokémon Go for Moto G14,Pokemon Go for Moto G14,Pokemon Go Joystick for Moto G14,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/AN-vaCH0aY3tX6ZltU1G0m3Htm0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/watch-free-movies-online-1356647-32f79b8cc3ed484ca1f9f898f503e416.png
+thumbnail: https://thmb.techidaily.com/de3aeccba8a1988fe712bc85cebc3af3bc3a21faab0414036ff801745dc15189.png
 ---
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G14

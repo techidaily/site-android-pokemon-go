@@ -1,7 +1,7 @@
 ---
 title: Here are Some of the Best Pokemon Discord Servers to Join On Infinix Hot 30i | Dr.fone
-date: 2024-04-12T03:11:15.564Z
-updated: 2024-04-13T03:11:15.564Z
+date: 2024-06-19T00:01:39.280Z
+updated: 2024-06-20T00:01:39.280Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Here are Some of the Best Pokemon Discord Servers to Join On Infinix Hot 30i
 excerpt: This article describes Here are Some of the Best Pokemon Discord Servers to Join On Infinix Hot 30i
 keywords: Pokemon Go Joystick for Hot 30i,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go for Hot 30i,Pokémon Go Without Walking,Pokemon Go for Hot 30i
-thumbnail: https://www.lifewire.com/thmb/iQjRSYdl3d8RlM-9oprGSEgt6gU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-667603173-fac0b8f4b1d9453c866d332dc73821f8.jpg
+thumbnail: https://thmb.techidaily.com/f47c079fa1fce90a8221b9c2c003a393b4231e2fbb42dbd4e99eb8971ba63ab6.jpg
 ---
 
 ## Here are Some of the Best Pokemon Discord Servers to Join On Infinix Hot 30i

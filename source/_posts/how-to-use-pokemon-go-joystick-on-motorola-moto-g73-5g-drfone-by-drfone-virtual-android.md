@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Motorola Moto G73 5G? | Dr.fone
-date: 2024-05-20T04:42:30.399Z
-updated: 2024-05-21T04:42:30.399Z
+date: 2024-06-19T00:01:28.038Z
+updated: 2024-06-20T00:01:28.038Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use Pokemon Go Joystick on Motorola Moto G73 5G?
 excerpt: This article describes How to use Pokemon Go Joystick on Motorola Moto G73 5G?
 keywords: Pokemon Go Joystick for Moto G73 5G,Pokemon Go for Moto G73 5G,Pokémon Go for Moto G73 5G,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/BEu1dTImTgj-gj19IMN4njOxWDE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/set-top-dvr-1130767-f2aa7f11e3d2442b966d53b8aa2d25fd.png
+thumbnail: https://thmb.techidaily.com/70a221261e83ff3179ef93192d51afbff1f7257579ffa960f9e7a085032e4b04.png
 ---
 
 ## How to use Pokemon Go Joystick on Motorola Moto G73 5G?
