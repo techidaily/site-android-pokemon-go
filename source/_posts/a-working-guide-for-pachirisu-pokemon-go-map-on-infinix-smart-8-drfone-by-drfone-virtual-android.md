@@ -1,7 +1,7 @@
 ---
 title: A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 8 | Dr.fone
-date: 2024-04-07T02:06:37.428Z
-updated: 2024-04-08T02:06:37.428Z
+date: 2024-06-26T18:43:45.897Z
+updated: 2024-06-27T18:43:45.897Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 8
 excerpt: This article describes A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 8
 keywords: Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for Smart 8,Pokemon Go for Smart 8,Pokémon Go for Smart 8,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/hTKYwh0v7qXo9k56663KdHBIHZ4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-fix-a-critical-process-dies-windows-11-error-952a1ad6325f455aaef36516fb3f7120.jpg
+thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa481cdc60b824492075830e06.jpg
 ---
 
 ## A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 8

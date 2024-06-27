@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Infinix GT 10 Pro? | Dr.fone
-date: 2024-06-10T01:15:34.351Z
-updated: 2024-06-11T01:15:34.351Z
+date: 2024-06-26T18:42:08.508Z
+updated: 2024-06-27T18:42:08.508Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -26,9 +26,7 @@ Following are the additional evolution items observed in Pokémon Go:
 - Sinnoh Stone
 - Sun Stone
 - Unova Stone
-- Upgrade
-
-![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
+- Upgrade ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
 
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
 
@@ -209,9 +207,7 @@ Now, while some of your Pokémon in the game can evolve with the utmost ease, ot
 
 The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glowing bright red and orange, it is effortless to recognize in the game, immediately catching your eye even in the busiest of environments. Consider yourself lucky if you come across one casually.
 
-## Part 2. Pokémon Go Sun Stone Evolutions Explained
-
-![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
+## Part 2. Pokémon Go Sun Stone Evolutions Explained ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
@@ -237,9 +233,7 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
 
-## Part 4. How to Acquire Sun Stones on Pokémon Go
-
-![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
+## Part 4. How to Acquire Sun Stones on Pokémon Go ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
 
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
 
@@ -281,9 +275,7 @@ While you’ll usually get a more common evolution item after your 7-day streak,
 
 Usually, it’s in your best interest to go to more popular areas with more PokéStops, as you’ll be able to make more spins faster.
 
-## Part 5. How to Gather Sun Stones Efficiently
-
-![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
+## Part 5. How to Gather Sun Stones Efficiently ![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
 
 Field research, special research, and spinning gyms and PokéStops are the only ways you could acquire the Sun Stone in Pokémon Go. However, that doesn’t mean you’ll need to grind day in and day out, trying to explore as much of your neighborhood as possible while playing. You can always make things a bit more efficient than that.
 

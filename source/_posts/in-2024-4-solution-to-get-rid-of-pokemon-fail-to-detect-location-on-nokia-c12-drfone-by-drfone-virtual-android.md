@@ -1,7 +1,7 @@
 ---
 title: In 2024, 4 solution to get rid of pokemon fail to detect location On Nokia C12 | Dr.fone
-date: 2024-05-20T04:43:00.314Z
-updated: 2024-05-21T04:43:00.314Z
+date: 2024-06-26T18:42:30.737Z
+updated: 2024-06-27T18:42:30.737Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes 4 solution to get rid of pokemon fail to detect location On Nokia C12
 excerpt: This article describes 4 solution to get rid of pokemon fail to detect location On Nokia C12
 keywords: Pokemon Go Without Walking,Pokémon Go Without Walking,Pokémon Go for C12,Pokemon Go Joystick for C12,Pokemon Go for C12,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/0zAfKCPSLtJGJZ4s7ICQ5FGmSzY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Verified-badge-on-phone-658ecad4f9104dae97a969bfa2f74eb3.jpg
+thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc8ca952932303c5e2c53ba39.jpg
 ---
 
 ## 4 solution to get rid of pokemon fail to detect location On Nokia C12
@@ -60,13 +60,9 @@ If the right permissions are not given to the application then it can also lead 
 
 ### Solution 3: Clear Cache
 
-**i.** Go to the Settings of your device
+**i.** Go to the Settings of your device ![Pokemon failed to detect location 5](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_5.jpg)
 
-![Pokemon failed to detect location 5](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_5.jpg)
-
-**ii.** Click on the app's icon on the next screen
-
-![Pokemon failed to detect location 6](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_6.jpg)
+**ii.** Click on the app's icon on the next screen ![Pokemon failed to detect location 6](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_6.jpg)
 
 **iii.** Click on the storage option.
 

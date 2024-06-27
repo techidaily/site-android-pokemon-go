@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Moto E13 | Dr.fone
-date: 2024-05-20T04:42:24.044Z
-updated: 2024-05-21T04:42:24.044Z
+date: 2024-06-26T18:43:17.801Z
+updated: 2024-06-27T18:43:17.801Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Motorola Moto E13
 excerpt: This article describes Pokémon Go Cooldown Chart On Motorola Moto E13
 keywords: Pokémon Go for Moto E13,Pokemon Go Joystick for Moto E13,Pokémon Go Without Walking,Pokemon Go for Moto E13,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/vwXY4ZVwcerLrMyrYuIV0bJij5Y=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/google-logo-dbc6703838ab40ffac436f7f360b79f7.png
+thumbnail: https://thmb.techidaily.com/c225407e5eb523ea35626965d7952f3e8eff461a435028604a3c634507f598f5.png
 ---
 
 ## Pokémon Go Cooldown Chart On Motorola Moto E13

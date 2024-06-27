@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Infinix Note 30 VIP Racing Edition? | Dr.fone
-date: 2024-04-12T03:11:39.391Z
-updated: 2024-04-13T03:11:39.391Z
+date: 2024-06-26T18:42:00.293Z
+updated: 2024-06-27T18:42:00.293Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How and Where to Find a Shiny Stone Pokémon For Infinix Note 30 VIP Racing Edition?
 excerpt: This article describes How and Where to Find a Shiny Stone Pokémon For Infinix Note 30 VIP Racing Edition?
 keywords: Pokemon Go Joystick for Note 30 VIP Racing Edition,Pokémon Go for Note 30 VIP Racing Edition,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for Note 30 VIP Racing Edition,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/D7l9wVfRkR02O_cphLk2NQX7Fjw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-12-08at3.04.00PM-5c0c23f6c9e77c00018eae4e.png
+thumbnail: https://thmb.techidaily.com/cec958dbb28e58c65e080cad326f07d4e7cdd67a50648dc244def701160f50d9.png
 ---
 
 ## How and Where to Find a Shiny Stone Pokémon For Infinix Note 30 VIP Racing Edition?

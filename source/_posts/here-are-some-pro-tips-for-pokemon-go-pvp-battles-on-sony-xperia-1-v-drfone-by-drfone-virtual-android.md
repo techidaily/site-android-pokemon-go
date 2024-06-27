@@ -1,7 +1,7 @@
 ---
 title: Here are Some Pro Tips for Pokemon Go PvP Battles On Sony Xperia 1 V | Dr.fone
-date: 2024-06-10T01:15:28.837Z
-updated: 2024-06-11T01:15:28.837Z
+date: 2024-06-26T18:42:27.468Z
+updated: 2024-06-27T18:42:27.468Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -31,9 +31,7 @@ As you know, there are three different leagues to participate in Pokemon Go PvP 
 
 - **Great League:** Max 1500 CP (per Pokemon)
 - **Ultra League:** Max 2500 CP (per Pokemon)
-- **Master League:** No CP limit
-
-![leagues in pokemon pvp](https://images.wondershare.com/drfone/2020/leagues-in-pokemon-pvp.jpg)
+- **Master League:** No CP limit ![leagues in pokemon pvp](https://images.wondershare.com/drfone/2020/leagues-in-pokemon-pvp.jpg)
 
 The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
 

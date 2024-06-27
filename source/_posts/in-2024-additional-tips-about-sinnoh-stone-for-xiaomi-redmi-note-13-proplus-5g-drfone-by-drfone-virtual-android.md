@@ -1,7 +1,7 @@
 ---
 title: In 2024, Additional Tips About Sinnoh Stone For Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone
-date: 2024-06-10T01:17:29.918Z
-updated: 2024-06-11T01:17:29.918Z
+date: 2024-06-26T18:44:02.455Z
+updated: 2024-06-27T18:44:02.455Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -107,9 +107,7 @@ Following are the additional evolution items observed in Pokémon Go:
 - Sinnoh Stone
 - Sun Stone
 - Unova Stone
-- Upgrade
-
-![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
+- Upgrade ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
 
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
 

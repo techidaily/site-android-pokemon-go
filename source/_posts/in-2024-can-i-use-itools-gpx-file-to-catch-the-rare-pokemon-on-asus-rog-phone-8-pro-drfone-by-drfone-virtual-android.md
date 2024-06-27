@@ -1,7 +1,7 @@
 ---
 title: In 2024, Can I use iTools gpx file to catch the rare Pokemon On Asus ROG Phone 8 Pro | Dr.fone
-date: 2024-05-20T04:41:50.914Z
-updated: 2024-05-21T04:41:50.914Z
+date: 2024-06-26T18:43:55.217Z
+updated: 2024-06-27T18:43:55.217Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Can I use iTools gpx file to catch the rare Pokemon On Asus ROG Phone 8 Pro
 excerpt: This article describes Can I use iTools gpx file to catch the rare Pokemon On Asus ROG Phone 8 Pro
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for ROG Phone 8 Pro,Pokemon Go Without Walking,Pokemon Go for ROG Phone 8 Pro,Pokémon Go for ROG Phone 8 Pro
-thumbnail: https://www.lifewire.com/thmb/s_49EdazIwlAKelLWFU8LSaOlMk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-585151372-a659baf0c7b441b9b7e7896716b12784.jpg
+thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326cf6eb9f144fb267795cd5a9a.jpg
 ---
 
 ## Can I use iTools gpx file to catch the rare Pokemon On Asus ROG Phone 8 Pro
@@ -65,7 +65,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

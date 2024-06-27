@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Pokémon Evolve with A Dawn Stone For Nokia C12 Pro? | Dr.fone
-date: 2024-05-20T04:43:01.842Z
-updated: 2024-05-21T04:43:01.842Z
+date: 2024-06-26T18:42:20.825Z
+updated: 2024-06-27T18:42:20.825Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Pokémon Evolve with A Dawn Stone For Nokia C12 Pro?
 excerpt: This article describes What Pokémon Evolve with A Dawn Stone For Nokia C12 Pro?
 keywords: Pokémon Go for C12 Pro,Pokemon Go for C12 Pro,Pokémon Go Without Walking,Pokemon Go Joystick for C12 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/qNtT0Vit1jn8RftUFX6Xcsv5x4o=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5-best-texting-apps-for-android-tablets-in-2023-a5a6329d6b744167acf0a02f6a413ff2.jpg
+thumbnail: https://thmb.techidaily.com/a1f466c594234ad34f641e87364869a2929ae1aee45db635b3f848c5daefbda2.jpg
 ---
 
 ## What Pokémon Evolve with A Dawn Stone For Nokia C12 Pro?

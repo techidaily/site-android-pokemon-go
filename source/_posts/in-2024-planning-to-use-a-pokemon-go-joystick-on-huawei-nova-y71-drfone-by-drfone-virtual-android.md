@@ -1,7 +1,7 @@
 ---
 title: In 2024, Planning to Use a Pokemon Go Joystick on Huawei Nova Y71? | Dr.fone
-date: 2024-05-20T04:42:01.396Z
-updated: 2024-05-21T04:42:01.396Z
+date: 2024-06-26T18:43:40.587Z
+updated: 2024-06-27T18:43:40.587Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Huawei Nova Y71?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Huawei Nova Y71?
 keywords: Pokémon Go Without Walking,Pokemon Go for Nova Y71,Pokemon Go Joystick Without Walking,Pokémon Go for Nova Y71,Pokemon Go Without Walking,Pokemon Go Joystick for Nova Y71
-thumbnail: https://www.lifewire.com/thmb/DHxaJkZu-_13cCciVcRs3Mq0nj4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/012_how-to-make-video-call-on-android-bd93ab594aa648c7977f4c1ecf42c85b.jpg
+thumbnail: https://thmb.techidaily.com/502b1cdc938497dc65859bd4dea7388cbc83b5388aae8627911832c708fd7626.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Huawei Nova Y71?

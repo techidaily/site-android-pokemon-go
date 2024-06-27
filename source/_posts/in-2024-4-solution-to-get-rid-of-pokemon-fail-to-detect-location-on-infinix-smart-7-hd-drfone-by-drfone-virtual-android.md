@@ -1,7 +1,7 @@
 ---
 title: In 2024, 4 solution to get rid of pokemon fail to detect location On Infinix Smart 7 HD | Dr.fone
-date: 2024-05-20T04:44:21.575Z
-updated: 2024-05-21T04:44:21.575Z
+date: 2024-06-26T18:42:43.802Z
+updated: 2024-06-27T18:42:43.802Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes 4 solution to get rid of pokemon fail to detect location On Infinix Smart 7 HD
 excerpt: This article describes 4 solution to get rid of pokemon fail to detect location On Infinix Smart 7 HD
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go for Smart 7 HD,Pokemon Go Without Walking,Pokemon Go Joystick for Smart 7 HD,Pokémon Go Without Walking,Pokemon Go for Smart 7 HD
-thumbnail: https://www.lifewire.com/thmb/Gmap6LeMRtADZthm_PJ2lXNY4cM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/copilot-b197f8dd690845d5bf8ebbc082c89c20.jpg
+thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595c634b883b7def7759d3266e.jpg
 ---
 
 ## 4 solution to get rid of pokemon fail to detect location On Infinix Smart 7 HD
@@ -60,13 +60,9 @@ If the right permissions are not given to the application then it can also lead 
 
 ### Solution 3: Clear Cache
 
-**i.** Go to the Settings of your device
+**i.** Go to the Settings of your device ![Pokemon failed to detect location 5](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_5.jpg)
 
-![Pokemon failed to detect location 5](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_5.jpg)
-
-**ii.** Click on the app's icon on the next screen
-
-![Pokemon failed to detect location 6](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_6.jpg)
+**ii.** Click on the app's icon on the next screen ![Pokemon failed to detect location 6](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_6.jpg)
 
 **iii.** Click on the storage option.
 

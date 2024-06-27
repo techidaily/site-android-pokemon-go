@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Motorola Defy 2? | Dr.fone
-date: 2024-06-10T01:14:12.458Z
-updated: 2024-06-11T01:14:12.458Z
+date: 2024-06-26T18:43:01.635Z
+updated: 2024-06-27T18:43:01.635Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,9 +29,7 @@ Now, while some of your Pokémon in the game can evolve with the utmost ease, ot
 
 The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glowing bright red and orange, it is effortless to recognize in the game, immediately catching your eye even in the busiest of environments. Consider yourself lucky if you come across one casually.
 
-## Part 2. Pokémon Go Sun Stone Evolutions Explained
-
-![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
+## Part 2. Pokémon Go Sun Stone Evolutions Explained ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
@@ -57,9 +55,7 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
 
-## Part 4. How to Acquire Sun Stones on Pokémon Go
-
-![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
+## Part 4. How to Acquire Sun Stones on Pokémon Go ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
 
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
 
@@ -101,9 +97,7 @@ While you’ll usually get a more common evolution item after your 7-day streak,
 
 Usually, it’s in your best interest to go to more popular areas with more PokéStops, as you’ll be able to make more spins faster.
 
-## Part 5. How to Gather Sun Stones Efficiently
-
-![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
+## Part 5. How to Gather Sun Stones Efficiently ![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
 
 Field research, special research, and spinning gyms and PokéStops are the only ways you could acquire the Sun Stone in Pokémon Go. However, that doesn’t mean you’ll need to grind day in and day out, trying to explore as much of your neighborhood as possible while playing. You can always make things a bit more efficient than that.
 
@@ -299,9 +293,7 @@ The recommended moves for Zacian (Hero) are Snarl and Play Rough, offering a sol
 | --- | --- | --- |
 | Fairy | Dragon, Bug, Dark, Fighting | Poison, Steel |
 
-### 3\. Shadow Machamp
-
-![shadow machamp pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-5.jpg)
+### 3\. Shadow Machamp ![shadow machamp pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-5.jpg)
 
 Shadow Machamp is also one of the strongest and **best Pokémon for PvP in Pokémon GO**. It's vulnerable to Fairy, Flying, and Psychic moves, as the recognized type is "Fighting." It can reach a maximum of 3455 CP, which makes it a legendary Pokémon. This Pokémon belongs to the Kanto region and gets a boost in Cloudy weather. It can be threatening because it has access to fast and relevant coverage against a large portion of the meta.
 
@@ -311,9 +303,7 @@ The best moves of Shadow Machamp are Counter and Dynamic Punch, which deliver hi
 | --- | --- | --- |
 | Fighting | Bug, Dark, Rock | Fairy, Flying, Psychic |
 
-### 4\. Lickitung
-
-![lickitung pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-6.jpg)
+### 4\. Lickitung ![lickitung pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-6.jpg)
 
 Discovered in the Kanto region, Lickitung is a Normal-type Pokémon found in Pokémon GO. Its weaknesses include fighting-type moves, and it reaches a maximum CP of 1595. The weather that boosts Lickitung is partly cloudy. Shiny Lickitung is also available for those looking to add a special variant to their collection in Pokemon GO.
 
@@ -323,9 +313,7 @@ This **is the best Pokémon in Pokémon GO PvP** and is known for its unique pre
 | --- | --- | --- |
 | Normal | Ghost | Fighting |
 
-### 5\. Eternatus
-
-![eternatus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-7.jpg)
+### 5\. Eternatus ![eternatus pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-7.jpg)
 
 Eternatus is a powerful legendary Pokemon with a type of Poison and Dragon. It is believed to be discovered in the Galar region and is the main antagonist in Pokémon Sword and Shield. Vulnerabilities of this Pokémon are Dragon, Ground, Ice, and Psychic-type moves. With an impressive max CP of 5007, it receives a boost in cloudy and windy weather.
 
@@ -335,9 +323,7 @@ The top moves for Eternatus are Dragon Tail and Dragon Pulse, delivering a stron
 | --- | --- | --- |
 | Poison and Dragon | Grass, Bug, Electric, Fire, Fighting, Poison, Water | Dragon, Ice, Ground, Psychic |
 
-### 6\. Steelix
-
-![steelix pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-8.jpg)
+### 6\. Steelix ![steelix pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-8.jpg)
 
 You can find Steelix as a very strong Steel and Ground-type Pokémon to play within Pokémon GO. Originating from the Johto region, it has vulnerabilities to Fighting, Fire, Ground, and Water-type moves. With a max CP of 2729, Steelix gets a boost in snow and sunny weather. Shiny Steelix is also available, adding a special variant to the collection. Moreover, Steelix can evolve into Mega Steelix using the Steelixite.
 
@@ -347,9 +333,7 @@ The recommended moveset for Steelix includes Iron Tail and Heavy Slam, providing
 | --- | --- | --- |
 | Steel and Ground | Dragon, Bug, Rock, Fairy, Psychic, Steel, Electric, Flying, Normal, Poison | Fighting, Fire, Ground, Water |
 
-### 7\. Gligar
-
-![gligar pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-9.jpg)
+### 7\. Gligar ![gligar pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-9.jpg)
 
 Gligar is a Ground and Flying-type Pokémon in Pokémon GO, originally from the Johto region. Gligar is believed to have a max CP of 2099 and gets boosted in sunny and windy weather. Shiny Gligar is also available for enthusiastic collectors.
 
@@ -359,9 +343,7 @@ Gligar uses its clawed hind legs and large pincers to grab onto its prey's face,
 | --- | --- | --- |
 | Ground and Flying | Electric, Bug, Ground, Fighting, Poison | Ice, Water |
 
-### 8\. Carbink
-
-![carbink pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-10.jpg)
+### 8\. Carbink ![carbink pokemon go pvp league](https://images.wondershare.com/drfone/article/2024/02/everything-to-know-about-pvp-10.jpg)
 
 Carbink is a Rock and Fairy-type Pokémon in Pokémon GO, originating from the Kalos region. It's weak against Steel, Grass, Ground, and Water-type moves and has a max CP of 1658. The weather conditions that boost this Pokémon include partly cloudy and cloudy. This **best PvP Pokémon** is also known as Jewel Pokémon due to its ability to create diamonds within its body.
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Asus ROG Phone 8 Pro? | Dr.fone
-date: 2024-05-20T04:41:51.387Z
-updated: 2024-05-21T04:41:51.387Z
+date: 2024-06-26T18:42:10.890Z
+updated: 2024-06-27T18:42:10.890Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Asus ROG Phone 8 Pro?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Asus ROG Phone 8 Pro?
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for ROG Phone 8 Pro,Pokémon Go for ROG Phone 8 Pro,Pokemon Go Without Walking,Pokemon Go Joystick for ROG Phone 8 Pro
-thumbnail: https://www.lifewire.com/thmb/R4hO61lalLOqraKCRcJdmU6HWfQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/0010_21-best-teen-movies-on-netflix-5104880-b0e9832746854cabb4f33cafef96214b.jpg
+thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d9b87e9c40850a4f81b5f21f.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Asus ROG Phone 8 Pro?
