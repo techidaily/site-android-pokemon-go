@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Infinix Hot 30 5G? | Dr.fone
-date: 2024-04-30T07:36:29.661Z
-updated: 2024-05-01T07:36:29.661Z
+date: 2024-07-06T12:19:11.634Z
+updated: 2024-07-07T12:19:11.634Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Infinix Hot 30 5G?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Infinix Hot 30 5G?
 keywords: Pokemon Go for Hot 30 5G,Pokemon Go Joystick for Hot 30 5G,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokémon Go for Hot 30 5G
-thumbnail: https://www.lifewire.com/thmb/p0ylhoIohfzUUD_zptkk_cS1LaE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zenbook-17-fold-oled-72de5601b7334834a2962b7a8c7b4e9b-16fb2ba97f414911a71ffd37c82c541e.png
+thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32ba37267dd79e6e802f121e2.png
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Infinix Hot 30 5G?

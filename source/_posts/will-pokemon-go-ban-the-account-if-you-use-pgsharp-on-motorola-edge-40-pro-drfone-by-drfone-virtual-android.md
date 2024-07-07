@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Edge 40 Pro | Dr.fone
-date: 2024-05-20T04:42:31.753Z
-updated: 2024-05-21T04:42:31.753Z
+date: 2024-07-06T12:20:33.227Z
+updated: 2024-07-07T12:20:33.227Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Edge 40 Pro
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Edge 40 Pro
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go for Edge 40 Pro,Pokemon Go Joystick for Edge 40 Pro,Pokemon Go for Edge 40 Pro,Pokemon Go Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/fZAyW_q2RrCH4bIuVh-tO15AFts=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/patch-tuesday-2625783-d6bcf232b3c64fc5958037ad31299bd9.png
+thumbnail: https://thmb.techidaily.com/3322edcb2b3700ce4baa5c0677a8f300e23dbf74c5228f8bd6ca0d33294791ed.png
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Edge 40 Pro

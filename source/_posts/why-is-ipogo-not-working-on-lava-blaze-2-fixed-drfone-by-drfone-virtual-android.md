@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Lava Blaze 2? Fixed | Dr.fone
-date: 2024-05-20T04:42:03.900Z
-updated: 2024-05-21T04:42:03.900Z
+date: 2024-07-06T12:20:53.201Z
+updated: 2024-07-07T12:20:53.201Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why is iPogo not working On Lava Blaze 2? Fixed
 excerpt: This article describes Why is iPogo not working On Lava Blaze 2? Fixed
 keywords: Pokemon Go Joystick for Blaze 2,Pokémon Go Without Walking,Pokemon Go for Blaze 2,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go for Blaze 2
-thumbnail: https://www.lifewire.com/thmb/upymkFD17829BoXqvYndmLQPGU4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/safari-photo--canon-and-nikon-digital-cameras-and-lenses--masai-mara-game-reserve--kenya--769713645-5bde071546e0fb0026a2c012.jpg
+thumbnail: https://thmb.techidaily.com/85be9153d8c81024583588a94ed9e00fc880777ac2a8c7cff5efd5d21044d91c.jpg
 ---
 
 ## Why is iPogo not working On Lava Blaze 2? Fixed

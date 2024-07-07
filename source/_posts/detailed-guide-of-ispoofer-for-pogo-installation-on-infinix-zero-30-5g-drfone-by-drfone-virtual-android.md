@@ -1,7 +1,7 @@
 ---
 title: Detailed guide of ispoofer for pogo installation On Infinix Zero 30 5G | Dr.fone
-date: 2024-04-12T03:10:55.137Z
-updated: 2024-04-13T03:10:55.137Z
+date: 2024-07-06T12:20:41.395Z
+updated: 2024-07-07T12:20:41.395Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Detailed guide of ispoofer for pogo installation On Infinix Zero 30 5G
 excerpt: This article describes Detailed guide of ispoofer for pogo installation On Infinix Zero 30 5G
 keywords: Pokémon Go Without Walking,Pokémon Go for Zero 30 5G,Pokemon Go for Zero 30 5G,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Zero 30 5G
-thumbnail: https://www.lifewire.com/thmb/emyPhVf3B4VLTCj8T835W3AqyOU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-93420821-0ce0b19097fb47d78dec8dbc039c1260.jpg
+thumbnail: https://thmb.techidaily.com/1e0694b6112d675bbb8f0d747ab36517f01502f4062f523abbe17fcfc5ae5fc7.jpg
 ---
 
 ## Detailed guide of ispoofer for pogo installation On Infinix Zero 30 5G

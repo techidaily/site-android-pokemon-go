@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Lava Agni 2 5G? | Dr.fone
-date: 2024-05-20T04:42:06.385Z
-updated: 2024-05-21T04:42:06.385Z
+date: 2024-07-06T12:19:46.484Z
+updated: 2024-07-07T12:19:46.484Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Lava Agni 2 5G?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Lava Agni 2 5G?
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go for Agni 2 5G,Pokemon Go for Agni 2 5G,Pokemon Go Without Walking,Pokemon Go Joystick for Agni 2 5G,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/koSaGJ5iVSnQrrvXh53lyy1rSZM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/podcasts-safeforkids-5b2f3dd4eb97de0036d9f87b.jpg
+thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae043dca04e140a16eeec969f.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Lava Agni 2 5G?

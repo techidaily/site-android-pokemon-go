@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G23 | Dr.fone
-date: 2024-05-20T04:42:27.825Z
-updated: 2024-05-21T04:42:27.825Z
+date: 2024-07-06T12:19:33.281Z
+updated: 2024-07-07T12:19:33.281Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G23
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G23
 keywords: Pokémon Go for Moto G23,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Moto G23,Pokemon Go Joystick for Moto G23,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/U4MhHoz9AdQJe4tEoeV-ONBuCas=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/sony-ps5-d3975e63d2ff47e6ac4e81768b79801c.jpg
+thumbnail: https://thmb.techidaily.com/0aeedb6f0e08290ddfa4945f77d0426cb986cac7f0c8ef179d1c62c13237705d.jpg
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G23

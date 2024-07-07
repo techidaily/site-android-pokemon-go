@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Meizu 21 Pro? | Dr.fone
-date: 2024-05-20T04:42:22.399Z
-updated: 2024-05-21T04:42:22.399Z
+date: 2024-07-06T12:20:54.232Z
+updated: 2024-07-07T12:20:54.232Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Meizu 21 Pro?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Meizu 21 Pro?
 keywords: Pokemon Go for 21 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for 21 Pro,Pokémon Go for 21 Pro,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/b7hSKwI9Oajpbwr32n5Vsf7fcds=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/operationcouldnotcomplete-95695abe458d4062a2c2f7e46e656b08.png
+thumbnail: https://thmb.techidaily.com/21ec111232ea695810b8b161c545d6d8dc411e7eef6880dc4b8d8fa008ddde2f.png
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Meizu 21 Pro?

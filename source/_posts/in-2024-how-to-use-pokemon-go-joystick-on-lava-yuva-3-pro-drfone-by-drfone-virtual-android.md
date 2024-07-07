@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Lava Yuva 3 Pro? | Dr.fone
-date: 2024-05-20T04:42:14.024Z
-updated: 2024-05-21T04:42:14.024Z
+date: 2024-07-06T12:20:44.597Z
+updated: 2024-07-07T12:20:44.597Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use Pokemon Go Joystick on Lava Yuva 3 Pro?
 excerpt: This article describes How to use Pokemon Go Joystick on Lava Yuva 3 Pro?
 keywords: Pokemon Go Joystick for Yuva 3 Pro,Pokémon Go Without Walking,Pokémon Go for Yuva 3 Pro,Pokemon Go for Yuva 3 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/eS1YD0LsEQhVuAP3cxZA8t-_eDU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iPad-Pro_creative-sketch_10302018-5be0773ac9e77c0051d5d51c.jpg
+thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70cf5906bbca11c158a428c514.jpg
 ---
 
 ## How to use Pokemon Go Joystick on Lava Yuva 3 Pro?

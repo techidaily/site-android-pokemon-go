@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Nokia C12? | Dr.fone
-date: 2024-05-20T04:43:00.582Z
-updated: 2024-05-21T04:43:00.582Z
+date: 2024-07-06T12:20:49.666Z
+updated: 2024-07-07T12:20:49.666Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Nokia C12?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Nokia C12?
 keywords: Pokemon Go Without Walking,Pokemon Go for C12,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go for C12,Pokemon Go Joystick for C12
-thumbnail: https://www.lifewire.com/thmb/oixs9Iru3DkbJ5qQpMfNaiErF04=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/woman-with-remote-cropped-getty-169707531-5b2ebd5943a1030036b1eb56.jpg
+thumbnail: https://thmb.techidaily.com/48dc7fa7b04b0f7445d8755963cdda5ac93794a2c8dd3de60bc0fcf279454931.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Nokia C12?

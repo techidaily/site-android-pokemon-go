@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Motorola Razr 40? Fixed | Dr.fone
-date: 2024-05-20T04:42:36.044Z
-updated: 2024-05-21T04:42:36.044Z
+date: 2024-07-06T12:19:00.429Z
+updated: 2024-07-07T12:19:00.429Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why is iPogo not working On Motorola Razr 40? Fixed
 excerpt: This article describes Why is iPogo not working On Motorola Razr 40? Fixed
 keywords: Pokemon Go for Razr 40,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Razr 40,Pokémon Go for Razr 40,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/1X3sRGX1kbV-Ydn8ceXfqTlOH6I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/african-american-woman-opening-packages-of-shoes-on-sofa-580503483-5a735094d8fdd50036b63f8a.jpg
+thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01116c41da9ae37331ba659b6.jpg
 ---
 
 ## Why is iPogo not working On Motorola Razr 40? Fixed

@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Sony Xperia 5 V | Dr.fone
-date: 2024-05-20T04:41:45.952Z
-updated: 2024-05-21T04:41:45.952Z
+date: 2024-07-06T12:20:53.170Z
+updated: 2024-07-07T12:20:53.170Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Where Is the Best Place to Catch Dratini On Sony Xperia 5 V
 excerpt: This article describes Where Is the Best Place to Catch Dratini On Sony Xperia 5 V
 keywords: Pokemon Go Joystick for Xperia 5 V,Pokemon Go Without Walking,Pokémon Go for Xperia 5 V,Pokemon Go for Xperia 5 V,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/ynTHMRKHlmkgnPU-C-PjPaOI_vk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1345967858-4e7ba42433504ee899e05ceb500f3b68.jpg
+thumbnail: https://thmb.techidaily.com/c44b3c2a949ed90a1a74d6b8f5c0458cbf8a943f8d64ce0fc757b91844bd2888.jpg
 ---
 
 ## Where Is the Best Place to Catch Dratini On Sony Xperia 5 V

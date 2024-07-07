@@ -1,7 +1,7 @@
 ---
 title: CatchEmAll Celebrate National Pokémon Day with Virtual Location On Asus ROG Phone 8 | Dr.fone
-date: 2024-05-20T04:41:51.781Z
-updated: 2024-05-21T04:41:51.781Z
+date: 2024-07-06T12:19:37.303Z
+updated: 2024-07-07T12:19:37.303Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes CatchEmAll Celebrate National Pokémon Day with Virtual Location On Asus ROG Phone 8
 excerpt: This article describes CatchEmAll Celebrate National Pokémon Day with Virtual Location On Asus ROG Phone 8
 keywords: Pokémon Go for ROG Phone 8,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go for ROG Phone 8,Pokemon Go Joystick for ROG Phone 8,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/jNpQ-FANgbEnW9RjbyV2cn6aRhs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/the-10-best-password-managers-of-2022-6543213-7650bf3ab2eb41a08dbee8713ce811e3.jpg
+thumbnail: https://thmb.techidaily.com/0f5fc285546b265c973fbaa96cd3591b73387ac3a0f71577bc77fa3f28f478c0.jpg
 ---
 
 ## CatchEmAll Celebrate National Pokémon Day with Virtual Location On Asus ROG Phone 8

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Reasons why Pokémon GPS does not Work On Lava Yuva 2? | Dr.fone
-date: 2024-05-20T04:42:07.831Z
-updated: 2024-05-21T04:42:07.831Z
+date: 2024-07-06T12:20:17.335Z
+updated: 2024-07-07T12:20:17.335Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Reasons why Pokémon GPS does not Work On Lava Yuva 2?
 excerpt: This article describes Reasons why Pokémon GPS does not Work On Lava Yuva 2?
 keywords: Pokémon Go for Yuva 2,Pokemon Go Joystick for Yuva 2,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Yuva 2,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/sujrBq1SN6zkmNgqHTSAbFbTvKk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/18-Hidden-Snapchat-Features-efa75dca521e4cf6bb321dc960276deb.jpg
+thumbnail: https://thmb.techidaily.com/f1294d51d8e0560c6776b360116bd819890055c0bb65c23b15603692f6dffac9.jpg
 ---
 
 ## Reasons why Pokémon GPS does not Work On Lava Yuva 2?

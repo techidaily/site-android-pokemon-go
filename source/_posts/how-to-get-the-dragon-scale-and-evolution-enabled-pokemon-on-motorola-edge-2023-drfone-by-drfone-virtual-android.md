@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Motorola Edge 2023? | Dr.fone
-date: 2024-05-20T04:42:45.679Z
-updated: 2024-05-21T04:42:45.679Z
+date: 2024-07-06T12:19:07.537Z
+updated: 2024-07-07T12:19:07.537Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Motorola Edge 2023?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Motorola Edge 2023?
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go for Edge 2023,Pokemon Go Without Walking,Pokemon Go Joystick for Edge 2023,Pokemon Go for Edge 2023
-thumbnail: https://www.lifewire.com/thmb/LQMb1e3-Mg4L1lN_8a1V_-CacMg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-155096051-5b1bf60d43a1030036cfac94.jpg
+thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec47ad22d2523d6d2404f16cd1.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Motorola Edge 2023?
@@ -222,7 +222,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

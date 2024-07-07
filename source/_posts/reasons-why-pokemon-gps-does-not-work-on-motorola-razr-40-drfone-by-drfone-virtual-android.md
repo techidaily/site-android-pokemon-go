@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Motorola Razr 40? | Dr.fone
-date: 2024-05-20T04:42:36.359Z
-updated: 2024-05-21T04:42:36.359Z
+date: 2024-07-06T12:20:09.288Z
+updated: 2024-07-07T12:20:09.288Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Reasons why Pokémon GPS does not Work On Motorola Razr 40?
 excerpt: This article describes Reasons why Pokémon GPS does not Work On Motorola Razr 40?
 keywords: Pokémon Go for Razr 40,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Razr 40,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Razr 40
-thumbnail: https://www.lifewire.com/thmb/emyPhVf3B4VLTCj8T835W3AqyOU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-93420821-0ce0b19097fb47d78dec8dbc039c1260.jpg
+thumbnail: https://thmb.techidaily.com/1e0694b6112d675bbb8f0d747ab36517f01502f4062f523abbe17fcfc5ae5fc7.jpg
 ---
 
 ## Reasons why Pokémon GPS does not Work On Motorola Razr 40?

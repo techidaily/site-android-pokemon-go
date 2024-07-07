@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Motorola Moto G13? | Dr.fone
-date: 2024-05-20T04:42:25.221Z
-updated: 2024-05-21T04:42:25.221Z
+date: 2024-07-06T12:19:40.352Z
+updated: 2024-07-07T12:19:40.352Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Motorola Moto G13?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Motorola Moto G13?
 keywords: Pokémon Go for Moto G13,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Moto G13,Pokemon Go for Moto G13,Pokémon Go Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/NgJyQBGFmsrhkEXhA5pREWNGnoI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/photo-editor-working-on-computer-at-desk-in-office-946928370-5b85791746e0fb0025b40d84.jpg
+thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0043bb6ffedd07e36277b4e8.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Motorola Moto G13?

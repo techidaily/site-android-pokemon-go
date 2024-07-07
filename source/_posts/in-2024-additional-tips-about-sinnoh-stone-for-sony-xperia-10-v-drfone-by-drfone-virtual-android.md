@@ -1,7 +1,7 @@
 ---
 title: In 2024, Additional Tips About Sinnoh Stone For Sony Xperia 10 V | Dr.fone
-date: 2024-05-20T04:41:45.464Z
-updated: 2024-05-21T04:41:45.464Z
+date: 2024-07-06T12:19:19.254Z
+updated: 2024-07-07T12:19:19.254Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Additional Tips About Sinnoh Stone For Sony Xperia 10 V
 excerpt: This article describes Additional Tips About Sinnoh Stone For Sony Xperia 10 V
 keywords: Pokemon Go Joystick for Xperia 10 V,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokémon Go for Xperia 10 V,Pokemon Go for Xperia 10 V
-thumbnail: https://www.lifewire.com/thmb/DkM9pHd1hq5V02UbKX94h0TfJkQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/duetinslides-fd2c11f1a91a4d7388cc25f2f4719cca.jpg
+thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c40f79ad9e48ab602a74cd56.jpg
 ---
 
 ## Additional Tips About Sinnoh Stone For Sony Xperia 10 V

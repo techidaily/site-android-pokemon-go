@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On HTC U23 Pro? | Dr.fone
-date: 2024-05-20T04:41:57.283Z
-updated: 2024-05-21T04:41:57.283Z
+date: 2024-07-06T12:19:29.155Z
+updated: 2024-07-07T12:19:29.155Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On HTC U23 Pro?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On HTC U23 Pro?
 keywords: Pokémon Go Without Walking,Pokémon Go for U23 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for U23 Pro,Pokemon Go for U23 Pro
-thumbnail: https://www.lifewire.com/thmb/XF8XZEIjsJng0yh72ZnUp_8O804=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/young-muslim-woman-using-phone-1137305438-75947aa7fb484506bf9da8c38fc68a03.jpg
+thumbnail: https://thmb.techidaily.com/2453bc5c0249af0de921ee166f14d8e128b375913b07ba9cca730be764e6c410.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On HTC U23 Pro?

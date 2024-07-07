@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Asus ROG Phone 8 Pro? Fixed | Dr.fone
-date: 2024-05-20T04:41:50.220Z
-updated: 2024-05-21T04:41:50.220Z
+date: 2024-07-06T12:19:59.161Z
+updated: 2024-07-07T12:19:59.161Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why is iPogo not working On Asus ROG Phone 8 Pro? Fixed
 excerpt: This article describes Why is iPogo not working On Asus ROG Phone 8 Pro? Fixed
 keywords: Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for ROG Phone 8 Pro,Pokemon Go Joystick Without Walking,Pokemon Go for ROG Phone 8 Pro,Pokémon Go for ROG Phone 8 Pro
-thumbnail: https://www.lifewire.com/thmb/UgZFn1LjdiPD7yj2MRRWCGpAQWY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/d-link-default-password-list-2619152-d6281a924f45426f879c8707220ce92d.png
+thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01fc1cf31d37490fb679a3c33d.png
 ---
 
 ## Why is iPogo not working On Asus ROG Phone 8 Pro? Fixed

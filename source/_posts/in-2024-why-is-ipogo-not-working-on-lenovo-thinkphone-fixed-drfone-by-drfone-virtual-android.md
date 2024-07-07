@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why is iPogo not working On Lenovo ThinkPhone? Fixed | Dr.fone
-date: 2024-05-20T04:42:19.959Z
-updated: 2024-05-21T04:42:19.959Z
+date: 2024-07-06T12:20:09.338Z
+updated: 2024-07-07T12:20:09.338Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why is iPogo not working On Lenovo ThinkPhone? Fixed
 excerpt: This article describes Why is iPogo not working On Lenovo ThinkPhone? Fixed
 keywords: Pokemon Go Joystick for ThinkPhone,Pokémon Go for ThinkPhone,Pokémon Go Without Walking,Pokemon Go for ThinkPhone,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/RZ6a_Dm3h0STkAi4OwMdfZPBurY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DTS-Virtual-X-logo-w-illustration-xxbb-59403d7b3df78c537b1ef6b2.jpg
+thumbnail: https://thmb.techidaily.com/73ab3c04255810df2615a2a01c8a14174dd9b221f2d60ec5b3831dd32989cbba.jpg
 ---
 
 ## Why is iPogo not working On Lenovo ThinkPhone? Fixed

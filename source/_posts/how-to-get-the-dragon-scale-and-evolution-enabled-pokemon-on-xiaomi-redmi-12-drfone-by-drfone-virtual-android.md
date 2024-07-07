@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi 12? | Dr.fone
-date: 2024-04-30T07:36:36.922Z
-updated: 2024-05-01T07:36:36.922Z
+date: 2024-07-06T12:20:47.655Z
+updated: 2024-07-07T12:20:47.655Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi 12?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi 12?
 keywords: Pokemon Go Joystick for Redmi 12,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go for Redmi 12,Pokémon Go for Redmi 12,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/is45Yw-eZ0hbBH1GVSPPw-e8Duo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-smart-tv-lifestyle-alt-5c89160046e0fb00013365c2.jpg
+thumbnail: https://thmb.techidaily.com/a7150b4ff2ea7550c12f390526178357d28d5879ccd1eca0b9ed1b9c559e12d9.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi 12?

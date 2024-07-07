@@ -1,7 +1,7 @@
 ---
 title: In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Motorola Defy 2 | Dr.fone
-date: 2024-05-20T04:42:29.912Z
-updated: 2024-05-21T04:42:29.912Z
+date: 2024-07-06T12:20:38.378Z
+updated: 2024-07-07T12:20:38.378Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Motorola Defy 2
 excerpt: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Motorola Defy 2
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go for Defy 2,Pokemon Go Without Walking,Pokemon Go Joystick for Defy 2,Pokémon Go for Defy 2
-thumbnail: https://www.lifewire.com/thmb/EfVcCvt847EIyGogkSGXl-6NCV8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1139785112-76d1d0f975934233883a19f33b8cd813.jpg
+thumbnail: https://thmb.techidaily.com/9f62d3731a8382b4f3dd399792beace27de12660de659b232891d22eb2e884d9.jpg
 ---
 
 ## Unova Stone Pokémon Go Evolution List and How Catch Them For Motorola Defy 2

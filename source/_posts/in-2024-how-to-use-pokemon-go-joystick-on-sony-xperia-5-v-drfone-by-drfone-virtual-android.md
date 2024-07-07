@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Sony Xperia 5 V? | Dr.fone
-date: 2024-05-20T04:41:46.750Z
-updated: 2024-05-21T04:41:46.750Z
+date: 2024-07-06T12:19:30.258Z
+updated: 2024-07-07T12:19:30.258Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use Pokemon Go Joystick on Sony Xperia 5 V?
 excerpt: This article describes How to use Pokemon Go Joystick on Sony Xperia 5 V?
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick for Xperia 5 V,Pokemon Go Without Walking,Pokémon Go for Xperia 5 V,Pokemon Go Joystick Without Walking,Pokemon Go for Xperia 5 V
-thumbnail: https://www.lifewire.com/thmb/Dl9yEfjLblLLqaUBxpcE0bOUpF4=/540x405/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_2654847-5b99b903c9e77c005077d0d8.jpg
+thumbnail: https://thmb.techidaily.com/e1e53d68e6a8bd97bb49ce774576b58cc661b7caf15fc6fdb1157408db40b882.jpg
 ---
 
 ## How to use Pokemon Go Joystick on Sony Xperia 5 V?
@@ -210,7 +210,7 @@ However, there’s also an alternative to traveling and trading, as countless vi
 
 Using Dr.Fone to change your virtual location is remarkably straightforward and can be done in a few steps. Here’s how:
 
-1. Download the app from [<u>the official website</u>](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/)and install it on your computer.
+1. Download the app from [<u>the official website</u>](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/) and install it on your computer.
 
 
 

@@ -1,7 +1,7 @@
 ---
 title: A Working Guide For Pachirisu Pokemon Go Map On Infinix Zero 30 5G | Dr.fone
-date: 2024-04-07T02:06:37.433Z
-updated: 2024-04-08T02:06:37.433Z
+date: 2024-07-06T12:20:09.238Z
+updated: 2024-07-07T12:20:09.238Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes A Working Guide For Pachirisu Pokemon Go Map On Infinix Zero 30 5G
 excerpt: This article describes A Working Guide For Pachirisu Pokemon Go Map On Infinix Zero 30 5G
 keywords: Pokémon Go Without Walking,Pokemon Go Without Walking,Pokémon Go for Zero 30 5G,Pokemon Go for Zero 30 5G,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Zero 30 5G
-thumbnail: https://www.lifewire.com/thmb/21o2y5NdnwK9g8j7z_eUWi12JAw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-504331578-cheering-football-on-tv-5a231ffdaad52b00372ae2a6.jpg
+thumbnail: https://thmb.techidaily.com/264f7e50d992f10f22f440e035402650c9e912cde2fed4f7c2aee477f6b93402.jpg
 ---
 
 ## A Working Guide For Pachirisu Pokemon Go Map On Infinix Zero 30 5G
