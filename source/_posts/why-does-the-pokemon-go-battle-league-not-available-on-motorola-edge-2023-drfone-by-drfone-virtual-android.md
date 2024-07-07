@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Motorola Edge 2023 | Dr.fone
-date: 2024-05-20T04:42:45.661Z
-updated: 2024-05-21T04:42:45.661Z
+date: 2024-07-06T03:45:52.633Z
+updated: 2024-07-07T03:45:52.633Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why does the pokemon go battle league not available On Motorola Edge 2023
 excerpt: This article describes Why does the pokemon go battle league not available On Motorola Edge 2023
 keywords: Pokémon Go for Edge 2023,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Edge 2023,Pokemon Go Joystick for Edge 2023,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/qiktAkdIlSu9VsdFjM1R46-msZU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/editing-5c8a53d446e0fb0001336621.png
+thumbnail: https://thmb.techidaily.com/dfd36bdece1f9de4c3b950ac0cec685d6ee5d1281721c2dd1a2340c4240b4f62.png
 ---
 
 ## Why does the pokemon go battle league not available On Motorola Edge 2023

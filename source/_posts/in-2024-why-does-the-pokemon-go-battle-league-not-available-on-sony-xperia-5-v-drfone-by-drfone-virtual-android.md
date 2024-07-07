@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why does the pokemon go battle league not available On Sony Xperia 5 V | Dr.fone
-date: 2024-05-20T04:41:46.653Z
-updated: 2024-05-21T04:41:46.653Z
+date: 2024-07-06T03:45:09.630Z
+updated: 2024-07-07T03:45:09.630Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why does the pokemon go battle league not available On Sony Xperia 5 V
 excerpt: This article describes Why does the pokemon go battle league not available On Sony Xperia 5 V
 keywords: Pokemon Go for Xperia 5 V,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go Joystick for Xperia 5 V,Pokemon Go Joystick Without Walking,Pokémon Go for Xperia 5 V
-thumbnail: https://www.lifewire.com/thmb/nkL-0VwZC4rZHc_IxhqFzu82L6A=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ps6-concept-trailer-64aac5b7323041ad93d7535eccf7df40.png
+thumbnail: https://thmb.techidaily.com/a69a15798572265a2574284260281ddf651b6e2edc67c914e7a3a40f4a1feb7f.png
 ---
 
 ## Why does the pokemon go battle league not available On Sony Xperia 5 V

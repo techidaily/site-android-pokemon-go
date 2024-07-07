@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Lava Storm 5G? | Dr.fone
-date: 2024-05-20T04:42:15.143Z
-updated: 2024-05-21T04:42:15.143Z
+date: 2024-07-06T03:47:23.899Z
+updated: 2024-07-07T03:47:23.899Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Lava Storm 5G?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Lava Storm 5G?
 keywords: Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go for Storm 5G,Pokemon Go for Storm 5G,Pokemon Go Joystick for Storm 5G
-thumbnail: https://www.lifewire.com/thmb/jkTzGxTQj6GZdoRByOnef64Ubf0=/540x405/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/windows_search-56aa11bd3df78cf772ac3ea5.jpg
+thumbnail: https://thmb.techidaily.com/650f46c8db195bf984ecb592d4a15814bfd7afa085c1775706e382ffb2952424.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Lava Storm 5G?

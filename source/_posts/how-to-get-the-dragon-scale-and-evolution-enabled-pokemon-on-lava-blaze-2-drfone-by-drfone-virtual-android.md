@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Lava Blaze 2? | Dr.fone
-date: 2024-05-20T04:42:04.160Z
-updated: 2024-05-21T04:42:04.160Z
+date: 2024-07-06T03:47:18.114Z
+updated: 2024-07-07T03:47:18.114Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Lava Blaze 2?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Lava Blaze 2?
 keywords: Pokemon Go for Blaze 2,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Blaze 2,Pokémon Go for Blaze 2,Pokemon Go Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/Gmap6LeMRtADZthm_PJ2lXNY4cM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/copilot-b197f8dd690845d5bf8ebbc082c89c20.jpg
+thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595c634b883b7def7759d3266e.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Lava Blaze 2?
@@ -150,7 +150,7 @@ However, there’s also an alternative to traveling and trading, as countless vi
 
 Using Dr.Fone to change your virtual location is remarkably straightforward and can be done in a few steps. Here’s how:
 
-1. Download the app from [<u>the official website</u>](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/)and install it on your computer.
+1. Download the app from [<u>the official website</u>](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/) and install it on your computer.
 
 
 

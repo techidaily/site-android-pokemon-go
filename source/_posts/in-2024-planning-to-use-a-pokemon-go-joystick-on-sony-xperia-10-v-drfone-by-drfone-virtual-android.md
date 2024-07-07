@@ -1,7 +1,7 @@
 ---
 title: In 2024, Planning to Use a Pokemon Go Joystick on Sony Xperia 10 V? | Dr.fone
-date: 2024-05-20T04:41:44.820Z
-updated: 2024-05-21T04:41:44.820Z
+date: 2024-07-06T03:45:24.693Z
+updated: 2024-07-07T03:45:24.693Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Sony Xperia 10 V?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Sony Xperia 10 V?
 keywords: Pokémon Go Without Walking,Pokemon Go for Xperia 10 V,Pokemon Go Without Walking,Pokémon Go for Xperia 10 V,Pokemon Go Joystick for Xperia 10 V,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/hfQflvBCf7d-XN3Ks-apahbRORg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/is-audible-worth-it-00616437e29b4d108264ba36057bbdde.jpg
+thumbnail: https://thmb.techidaily.com/99bd3a8517ed5c451f9f836179e6586efe05dbc59db5ea292ed9c7e8afff15a8.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Sony Xperia 10 V?

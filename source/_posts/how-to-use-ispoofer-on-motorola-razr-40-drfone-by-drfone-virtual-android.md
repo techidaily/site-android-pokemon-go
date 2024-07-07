@@ -1,7 +1,7 @@
 ---
 title: How to use iSpoofer on Motorola Razr 40? | Dr.fone
-date: 2024-05-20T04:42:36.098Z
-updated: 2024-05-21T04:42:36.098Z
+date: 2024-07-06T03:46:57.882Z
+updated: 2024-07-07T03:46:57.882Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use iSpoofer on Motorola Razr 40?
 excerpt: This article describes How to use iSpoofer on Motorola Razr 40?
 keywords: Pokemon Go Joystick for Razr 40,Pokemon Go Without Walking,Pokemon Go for Razr 40,Pokémon Go for Razr 40,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/8ROImJcMy0nz5unlY1bdTJLi7tk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/dns-wordcloud-lifewire-2-0c92c02113cb4832870891ac0e13ccbc.png
+thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de65b71eab7da2ab3371e3a0f.png
 ---
 
 ## How to use iSpoofer on Motorola Razr 40?

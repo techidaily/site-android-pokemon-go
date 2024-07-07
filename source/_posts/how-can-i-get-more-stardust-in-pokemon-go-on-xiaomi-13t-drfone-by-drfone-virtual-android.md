@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Xiaomi 13T? | Dr.fone
-date: 2024-04-30T07:35:24.071Z
-updated: 2024-05-01T07:35:24.071Z
+date: 2024-07-06T03:44:51.999Z
+updated: 2024-07-07T03:44:51.999Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How can I get more stardust in pokemon go On Xiaomi 13T?
 excerpt: This article describes How can I get more stardust in pokemon go On Xiaomi 13T?
 keywords: Pokemon Go Joystick for 13T,Pokémon Go Without Walking,Pokémon Go for 13T,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for 13T
-thumbnail: https://www.lifewire.com/thmb/td12YpTj-yP7iyxYOnjHj9dHoA4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/streamfreesportsonline-5b1994178023b900364a81e5.jpg
+thumbnail: https://thmb.techidaily.com/0cd373a6b0eece48a6e2d5d0248da5d1df8fff3f71196cdaae4af6176a3b33bf.jpg
 ---
 
 ## How can I get more stardust in pokemon go On Xiaomi 13T?

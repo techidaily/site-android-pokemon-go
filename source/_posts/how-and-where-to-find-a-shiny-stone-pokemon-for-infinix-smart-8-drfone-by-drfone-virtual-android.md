@@ -1,7 +1,7 @@
 ---
 title: How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8? | Dr.fone
-date: 2024-04-12T03:11:40.067Z
-updated: 2024-04-13T03:11:40.067Z
+date: 2024-07-06T03:44:42.537Z
+updated: 2024-07-07T03:44:42.537Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8?
 excerpt: This article describes How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8?
 keywords: Pokémon Go for Smart 8,Pokémon Go Without Walking,Pokemon Go Joystick for Smart 8,Pokemon Go for Smart 8,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/kSmIkt41HTX2fBvFrYUa0wu300k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TikTok-vs-YouTube-a42ac0c72a4f4b1d9da8b7ae85b4205e.jpg
+thumbnail: https://thmb.techidaily.com/e9711d2ba9e06d496671fabcb5c03dc2cfd9b4b1eb26d7f5f5a9a68662ceb542.jpg
 ---
 
 ## How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8?

@@ -1,7 +1,7 @@
 ---
 title: CatchEmAll Celebrate National Pokémon Day with Virtual Location On Infinix Smart 8 HD | Dr.fone
-date: 2024-04-08T04:27:40.165Z
-updated: 2024-04-09T04:27:40.165Z
+date: 2024-07-06T03:46:30.945Z
+updated: 2024-07-07T03:46:30.945Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes CatchEmAll Celebrate National Pokémon Day with Virtual Location On Infinix Smart 8 HD
 excerpt: This article describes CatchEmAll Celebrate National Pokémon Day with Virtual Location On Infinix Smart 8 HD
 keywords: Pokémon Go for Smart 8 HD,Pokemon Go Without Walking,Pokemon Go for Smart 8 HD,Pokemon Go Joystick for Smart 8 HD,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/_JoO871Fn8djNW5YRDt3xrRs7Kg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-see-who-viewed-your-tiktok-5271090-e2cb663541b8484a8a2e80ffbdd98db3.jpg
+thumbnail: https://thmb.techidaily.com/daed1459b71f2c11118ff363b82166df3949711b8db94af4f668119ff4d60331.jpg
 ---
 
 ## CatchEmAll Celebrate National Pokémon Day with Virtual Location On Infinix Smart 8 HD

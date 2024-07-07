@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Get and Use Pokemon Go Promo Codes On Sony Xperia 10 V | Dr.fone
-date: 2024-05-20T04:41:45.280Z
-updated: 2024-05-21T04:41:45.280Z
+date: 2024-07-06T03:46:34.574Z
+updated: 2024-07-07T03:46:34.574Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to Get and Use Pokemon Go Promo Codes On Sony Xperia 10 V
 excerpt: This article describes How to Get and Use Pokemon Go Promo Codes On Sony Xperia 10 V
 keywords: Pokemon Go Joystick for Xperia 10 V,Pokémon Go for Xperia 10 V,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go for Xperia 10 V,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/ebrh4pryk1RCkUBx_N34Im614oA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-14050070541-0fc96b82fdc54287bf3bbce3ba323342.jpg
+thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef3415c454c76fbd282fafbfc.jpg
 ---
 
 ## How to Get and Use Pokemon Go Promo Codes On Sony Xperia 10 V
@@ -300,7 +300,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

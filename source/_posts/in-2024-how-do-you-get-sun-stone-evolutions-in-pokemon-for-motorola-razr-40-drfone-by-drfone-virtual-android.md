@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Motorola Razr 40? | Dr.fone
-date: 2024-05-20T04:42:36.767Z
-updated: 2024-05-21T04:42:36.767Z
+date: 2024-07-06T03:46:16.534Z
+updated: 2024-07-07T03:46:16.534Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Motorola Razr 40?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Motorola Razr 40?
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Razr 40,Pokemon Go Without Walking,Pokémon Go for Razr 40,Pokémon Go Without Walking,Pokemon Go for Razr 40
-thumbnail: https://www.lifewire.com/thmb/YPMhKL59WGdTUpxCrpaB_OS--cc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-set-up-speech-to-text-on-android-0-928c48ab121248f9aa543a136d971f9a.jpg
+thumbnail: https://thmb.techidaily.com/2e5cadcabaa5bc146e9286cd6ccf5e30c43742afdff538e1080a5add013b39bf.jpg
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Motorola Razr 40?

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Motorola Defy 2 | Dr.fone
-date: 2024-05-20T04:42:28.852Z
-updated: 2024-05-21T04:42:28.852Z
+date: 2024-07-06T03:45:21.614Z
+updated: 2024-07-07T03:45:21.614Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Motorola Defy 2
 excerpt: This article describes Pokémon Go Cooldown Chart On Motorola Defy 2
 keywords: Pokemon Go for Defy 2,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for Defy 2,Pokémon Go for Defy 2
-thumbnail: https://www.lifewire.com/thmb/x5hFLtVYVUkR-_nqhbxS_f11j5E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/netgear-default-password-list-2619154-b581fdcf136848d29e944638cd2ad444.png
+thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe2bd45f2ec6f3eb305fb3d58.png
 ---
 
 ## Pokémon Go Cooldown Chart On Motorola Defy 2

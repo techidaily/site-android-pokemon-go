@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Motorola Razr 40? | Dr.fone
-date: 2024-05-20T04:42:37.099Z
-updated: 2024-05-21T04:42:37.099Z
+date: 2024-07-06T03:46:37.641Z
+updated: 2024-07-07T03:46:37.641Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Motorola Razr 40?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Motorola Razr 40?
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick for Razr 40,Pokemon Go Without Walking,Pokemon Go for Razr 40,Pokémon Go for Razr 40
-thumbnail: https://www.lifewire.com/thmb/XFPs7ukKGYkDLjHUDiAKej05X4I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cleaningrobotonlaptop_HuberandStarke_GettyImages-1448733073_EVANCROP-8ed67f08b9c4430db8e47c51fde78feb.jpg
+thumbnail: https://thmb.techidaily.com/09fee241173a4d75afd314bc2889ac10d1158fd98dc41bc3885e34ece3467540.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Motorola Razr 40?

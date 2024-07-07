@@ -1,7 +1,7 @@
 ---
 title: 3 Ways for Android Pokemon Go Spoofing On Nokia C02 | Dr.fone
-date: 2024-05-20T04:42:53.874Z
-updated: 2024-05-21T04:42:53.874Z
+date: 2024-07-06T03:47:16.011Z
+updated: 2024-07-07T03:47:16.011Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes 3 Ways for Android Pokemon Go Spoofing On Nokia C02
 excerpt: This article describes 3 Ways for Android Pokemon Go Spoofing On Nokia C02
 keywords: Pokemon Go Joystick for C02,Pokémon Go Without Walking,Pokemon Go for C02,Pokémon Go for C02,Pokemon Go Without Walking,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/bJZjivkvkiXSPidjAhZPdQz2Xu8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-545995058-58ed21243df78cadab023f3c.jpg
+thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3680cebd2f9e48a956c136d3.jpg
 ---
 
 ## 3 Ways for Android Pokemon Go Spoofing On Nokia C02

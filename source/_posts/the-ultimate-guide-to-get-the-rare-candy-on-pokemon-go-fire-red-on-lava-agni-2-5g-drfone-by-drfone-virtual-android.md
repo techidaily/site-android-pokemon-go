@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Agni 2 5G | Dr.fone
-date: 2024-05-20T04:42:05.548Z
-updated: 2024-05-21T04:42:05.548Z
+date: 2024-07-06T03:45:32.952Z
+updated: 2024-07-07T03:45:32.952Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Agni 2 5G
 excerpt: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Agni 2 5G
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokemon Go for Agni 2 5G,Pokemon Go Joystick for Agni 2 5G,Pokémon Go for Agni 2 5G
-thumbnail: https://www.lifewire.com/thmb/BPYPQrXsNWygpcoCT-Bo8NlAS2Y=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1094009490-2694d308001d46049e0755f4dd7fdf4c.jpg
+thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f07504ad9ddbf600b0c76aae.jpg
 ---
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Agni 2 5G

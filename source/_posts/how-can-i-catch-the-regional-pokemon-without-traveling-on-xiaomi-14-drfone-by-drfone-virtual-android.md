@@ -1,7 +1,7 @@
 ---
 title: How Can I Catch the Regional Pokémon without Traveling On Xiaomi 14 | Dr.fone
-date: 2024-04-12T03:11:50.507Z
-updated: 2024-04-13T03:11:50.507Z
+date: 2024-07-06T03:45:11.773Z
+updated: 2024-07-07T03:45:11.773Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Can I Catch the Regional Pokémon without Traveling On Xiaomi 14
 excerpt: This article describes How Can I Catch the Regional Pokémon without Traveling On Xiaomi 14
 keywords: Pokemon Go Joystick Without Walking,Pokémon Go Without Walking,Pokemon Go Without Walking,Pokémon Go for 14,Pokemon Go for 14,Pokemon Go Joystick for 14
-thumbnail: https://www.lifewire.com/thmb/FFBWrSKUv10PDo1VV6r976n9RLQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/linksys-default-password-list-2619153-5fccecc7c0b04133b2202a1fa9e8d37a.png
+thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a3a5a4a6ed566b778061c9ff.png
 ---
 
 ## How Can I Catch the Regional Pokémon without Traveling On Xiaomi 14

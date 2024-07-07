@@ -1,7 +1,7 @@
 ---
 title: How to use iSpoofer on Infinix Note 30 Pro? | Dr.fone
-date: 2024-05-20T04:43:10.057Z
-updated: 2024-05-21T04:43:10.057Z
+date: 2024-07-06T03:45:22.634Z
+updated: 2024-07-07T03:45:22.634Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use iSpoofer on Infinix Note 30 Pro?
 excerpt: This article describes How to use iSpoofer on Infinix Note 30 Pro?
 keywords: Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Note 30 Pro,Pokémon Go for Note 30 Pro,Pokemon Go for Note 30 Pro,Pokémon Go Without Walking,Pokemon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/KrjxcoVkV9vT3cQ3C-URm7mlpcM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-917461864-7141ebd3ec944ce6a431b8d485cc9cdb.jpg
+thumbnail: https://thmb.techidaily.com/c71f8b11a9475a90b96c899fdeade9228f855c7ed46c02973b8fefdc10e6507c.jpg
 ---
 
 ## How to use iSpoofer on Infinix Note 30 Pro?

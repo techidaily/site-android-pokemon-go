@@ -1,7 +1,7 @@
 ---
 title: In 2024, Planning to Use a Pokemon Go Joystick on Lava Blaze 2 Pro? | Dr.fone
-date: 2024-05-20T04:42:09.132Z
-updated: 2024-05-21T04:42:09.132Z
+date: 2024-07-06T03:45:22.657Z
+updated: 2024-07-07T03:45:22.657Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Lava Blaze 2 Pro?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Lava Blaze 2 Pro?
 keywords: Pokemon Go Joystick for Blaze 2 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Blaze 2 Pro,Pokémon Go for Blaze 2 Pro
-thumbnail: https://www.lifewire.com/thmb/JVF5j2ixNkw6YsOsj4P4vtZrB-4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/connect-tv-to-stereo-system-3135127-83ec0f315fa54c1290555169d689ad88.jpg
+thumbnail: https://thmb.techidaily.com/6d6520e192a843298c5f3fb60d79f701e9d849b7c957109090842f5892749c79.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Lava Blaze 2 Pro?

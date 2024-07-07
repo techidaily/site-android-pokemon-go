@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Lava Yuva 3 | Dr.fone
-date: 2024-05-20T04:42:16.176Z
-updated: 2024-05-21T04:42:16.176Z
+date: 2024-07-06T03:45:32.927Z
+updated: 2024-07-07T03:45:32.927Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Where Is the Best Place to Catch Dratini On Lava Yuva 3
 excerpt: This article describes Where Is the Best Place to Catch Dratini On Lava Yuva 3
 keywords: Pokémon Go for Yuva 3,Pokemon Go Joystick for Yuva 3,Pokemon Go for Yuva 3,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokémon Go Without Walking
-thumbnail: https://www.lifewire.com/thmb/eyPEW_zh-5Xw0J7hoJ-kChdCQ1M=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_how-to-transfer-data-from-ps4-to-ps5-3392eb400af3482fabad65cabb2a1a91.jpg
+thumbnail: https://thmb.techidaily.com/4413b601ad195439beff9581253d1c8f619535fc721b43b4dca709d022c56e41.jpg
 ---
 
 ## Where Is the Best Place to Catch Dratini On Lava Yuva 3

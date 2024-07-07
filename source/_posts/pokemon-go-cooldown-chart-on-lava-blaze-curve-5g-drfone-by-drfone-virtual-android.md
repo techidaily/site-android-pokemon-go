@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Lava Blaze Curve 5G | Dr.fone
-date: 2024-05-20T04:42:17.605Z
-updated: 2024-05-21T04:42:17.605Z
+date: 2024-07-06T03:46:13.472Z
+updated: 2024-07-07T03:46:13.472Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Lava Blaze Curve 5G
 excerpt: This article describes Pokémon Go Cooldown Chart On Lava Blaze Curve 5G
 keywords: Pokemon Go Joystick for Blaze Curve 5G,Pokemon Go Without Walking,Pokemon Go for Blaze Curve 5G,Pokémon Go Without Walking,Pokémon Go for Blaze Curve 5G,Pokemon Go Joystick Without Walking
-thumbnail: https://www.lifewire.com/thmb/-m_9JJb4F4y8I0dYVcJrZSeVFcs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Unlockedphone_mikkelwilliam_Getty_Eplus-bd0f806b392b4069ab6618d3b520f5b7.jpg
+thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7ab947e877cf6636c606146d.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Lava Blaze Curve 5G

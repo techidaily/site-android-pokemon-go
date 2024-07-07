@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Motorola Moto G23? | Dr.fone
-date: 2024-05-20T04:42:27.189Z
-updated: 2024-05-21T04:42:27.189Z
+date: 2024-07-06T03:46:23.704Z
+updated: 2024-07-07T03:46:23.704Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to use Pokemon Go Joystick on Motorola Moto G23?
 excerpt: This article describes How to use Pokemon Go Joystick on Motorola Moto G23?
 keywords: Pokemon Go Without Walking,Pokemon Go Joystick for Moto G23,Pokémon Go for Moto G23,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go for Moto G23
-thumbnail: https://www.lifewire.com/thmb/x14UrRTf3--IfQ99R_ewwR4TwWY=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-104288650-cd3f369f8ead449f94d1a1ce6f55c9de.jpg
+thumbnail: https://thmb.techidaily.com/ab68550bed8939ff878aaece9b28e90d8b0465006aaa80a48dab2ef20ecc47cd.jpg
 ---
 
 ## How to use Pokemon Go Joystick on Motorola Moto G23?

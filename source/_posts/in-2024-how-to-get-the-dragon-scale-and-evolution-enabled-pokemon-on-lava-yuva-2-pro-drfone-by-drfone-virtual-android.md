@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 2 Pro? | Dr.fone
-date: 2024-05-20T04:42:03.406Z
-updated: 2024-05-21T04:42:03.406Z
+date: 2024-07-06T03:46:28.925Z
+updated: 2024-07-07T03:46:28.925Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 2 Pro?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 2 Pro?
 keywords: Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go for Yuva 2 Pro,Pokémon Go for Yuva 2 Pro,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Yuva 2 Pro
-thumbnail: https://www.lifewire.com/thmb/lwyffvP10dLE4EinuE3HUVO38bo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1342255561-483b636ee00f40a1b3d91d1969b1aaf6.jpg
+thumbnail: https://thmb.techidaily.com/4286d1d9e7f9f222d6b24d7259e18b93ce578dc75aedffe72b83d7d3b1179de6.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 2 Pro?
