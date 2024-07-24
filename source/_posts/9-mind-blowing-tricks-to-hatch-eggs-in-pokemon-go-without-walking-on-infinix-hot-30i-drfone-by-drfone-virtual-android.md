@@ -1,7 +1,7 @@
 ---
 title: 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Hot 30i | Dr.fone
-date: 2024-04-07T02:06:35.819Z
-updated: 2024-04-08T02:06:35.819Z
+date: 2024-07-23T04:25:58.966Z
+updated: 2024-07-24T04:25:58.966Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Hot 30i
 excerpt: This article describes 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Hot 30i
 keywords: Pokemon Go Without Walking,Pokémon Go Without Walking,Pokemon Go Joystick Without Walking,Pokémon Go for Hot 30i,Pokemon Go Joystick for Hot 30i,Pokemon Go for Hot 30i
-thumbnail: https://www.lifewire.com/thmb/lKoxPMpdBOHt8yxn5M8d3rrvNWY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iOS-wwdc-7d655ca37a3b43b99fd9dac09bec13c4.jpg
+thumbnail: https://thmb.techidaily.com/d8f58ce885808b79b129b3a2207409d6b0df7e72b7b5c93436a642cc91c8c39d.jpg
 ---
 
 ## 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Hot 30i
@@ -28,6 +28,9 @@ If you are also going through a similar situation with Pokemon Go, then this wou
 
  _Click "Try It Free" to Download Dr.Fone and Hatch Eggs in Pokemon Go Without Walking Now!_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Way 1: Use an iOS Location Spoofer
 
 An iOS location spoofer is one of the best ways to learn Pokemon Go hatch eggs without walking. If you own an iOS device, then I would recommend using [Dr.Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), which provides excellent location spoofing solutions. With just one click, you can mock your location to anywhere else in the world. Furthermore, you can also simulate your movement between different spots.
@@ -59,6 +62,9 @@ As the interface would be launched, you can see five different modes in the top-
 
 Now you can just select the number of times you wish to move and complete other settings, such as enabling the realistic and fluctuation mode. After that, click on the "Move Here" button.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![confirm marching](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
 _**Tips:**  
@@ -67,16 +73,34 @@ _**Tips:**
 
 This will just start the simulation, and you can even adjust the speed from a slider at the bottom.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![start the simulation](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 **_Step 3: Move along multiple spots_**
 
 Using Dr.Fone – Virtual Location (iOS), you can also simulate an entire route between multiple spots as well. To do this, just click on the "Multi-stop route" which is the fourth option in the top-right corner of the interface.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![route between multiple spots](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
 Now, you can mark multiple spots on the map and can also select the number of times you wish to take this route. Click on the "Start Moving" button to start **Pokemon Go hatch eggs without walking**.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![start walking](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
 In the end, your location would be changed as the simulation would make Pokemon Go believe that you are taking the subsequent route. You can also change your walking speed from a slider as well.
@@ -101,10 +125,16 @@ While changing your location, make sure that you do it tactfully. For instance, 
 
 3. That’s it! Now you can just launch the fake GPS app and manually change your location to a few meters away to trick Pokemon Go. Do the same a few times to cover a prominent distance.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
     ![change your location to a few meters away](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-4.jpg)
 
 Just be sure that Pokemon Go won’t detect that you are using a GPS spoofer to hatch eggs. The regular use of an app like this might result in your account ban.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Way 3: Fix Your Infinix Hot 30i on a Drone and Play Pokemon Go
 
 Apart from a location spoofing app, there are a handful of other ways to learn how to hatch eggs without walking in Pokemon Go. Most of the eggs in Pokemon Go would need you to walk 2, 5, or 10 kilometers. The good news is that an average drone can easily cover this distance. Firstly, get a working drone on which you can easily place your phone. It is recommended to get a lock so that your device won’t fall while it is on a drone. Once your phone is successfully attached to a drone, just use it to cover a substantial distance. Make sure that the speed is minimal so that Pokemon Go would believe that you are walking instead.
@@ -118,17 +148,27 @@ Apart from a location spoofing app, there are a handful of other ways to learn h
 - Enable the Find My Infinix Hot 30i service on your Infinix Hot 30i or iPhone so that you can locate your phone if it is lost.
 - Move your drone slowly so that Pokemon Go would not detect that you are using a drone or playing the game while driving.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Way 4: Exchange the Friend Code of Other Pokemon Go Users
 
 A while back, Pokemon Go enabled the option to add friends on the app and send them gifts. Presently, we can send gifts to 20 other friends from our account in a day. Therefore, if you have a lot of friends, then you can send them eggs, including the exclusive 7 km egg. There are tons of online sources and forums for people to exchange their friend codes for Pokemon Go.
 
 1. Firstly, Launch Pokemon Go on your phone and go to your profile. Adjacent to the “Me” section, tap on the “Friends” section instead.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
     ![go to your profile](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-6.jpg)
 
 2. Here, you can see a list of your friends and an option to add more friends on Pokemon Go. To add a friend, you need to enter their code which can be obtained from any dedicated forum or even Reddit.
 3. That’s it! Once you have added a friend, go to their profile, and choose to trade or send them a gift. For instance, you can send them an exclusive egg and help them hack eggs without walking.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
     ![help friends hack eggs](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-7.jpg)
 
 **Pro-Tip**
@@ -161,20 +201,32 @@ Just make sure that you stay safe while riding your bike or skateboard. Don’t 
 
 If you have a Roomba or any other robotic cleaner in the house, then you can also take its assistance to hack Pokemon Go eggs. All you got to do is place your phone on the Roomba and let it move around in your house. Since the robotic cleaner would move slowly, it will make Pokemon Go believe that you are walking instead. Just be sure that your phone will stay safe and protected. I would recommend placing it in a waterproof lock to further protect it from any wear and tear.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![play Pokemon Go with Roomba](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## Way 8: Create a Model Railroad to Play Pokemon Go
 
 If you are already into model railroads, then you won’t face any issues playing Pokemon Go. It would be the replica of a big railroad with miniature trains. Simply place your phone on a miniature train and let it revolve around the railroad to cover the distance. Just keep your phone safe and regulate the speed of the train to make sure that Pokemon Go won’t detect any fast movement. You would have to drive your train for a while to cover the distance, but you don’t have to walk to do it.
 
 ![Model Railroad](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Way 9: Use A Turntable to Hatch Eggs without Walking Pokemon Go
 
 Do you have a turntable? If yes, you are lucky! You can use it that you used to listen to music to trick Pokemon Go that you're walking and hatch the eggs. Because the turntable creates enough motion in a wide enough circle that it will trick your phone's internal sensors into thinking you're walking. This trick is for anyone who wants to be a quick hatch in Pokemon Go! Here are the steps:
 
 Place your phone on the outermost edge of the turntable > Turn on the turntable > Confirm if your eggs are starting to hatch. If not, readjust your device and try again.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![play pokemon go with turntable](https://images.wondershare.com/drfone/article/2023/05/hatch-pokemon-eggs-without-walking.jpg)
 
 _**Tips:** Tired of walking to hatch eggs? Using Dr.Fone - Virtual Location to hatch Pokémon Go eggs without taking a step. Explore the world of Pokémon from the comfort of your home. Try it now and level up your Pokémon Go adventure!_
@@ -200,16 +252,25 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## Ultimate guide to get the meltan box pokemon go For Infinix Hot 30i
 
 If you are a huge Pokemon fan and loves to play pokemon go, you will definitely be aware of the latest addition to this family- meltan. It’s the only 8th generation pokemon. The first appearance of this pokemon was via Pokemon Go, as a mysterious silhouette. There are a huge hue and cry among the pokemon lovers about this mystery box pokemon. With its unannounced entry, it has sent the internet raving mad. It’s not an easy task to catch this pokemon, though. Let us take you through an ultimate guide regarding how you can get the meltan box pokemon go in 2020. Stay tuned and keep reading!
 
 ![meltan mystery box](https://images.wondershare.com/drfone/2020/meltan-mystery-box.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## Part 1: What is the meltan box and how does it work?
 
 Meltan, the mythical Pokemon is also described as a Hex Nut Pokemon. A major part of its body is built from liquid metal and its shape is fluid. It generates electricity using the metal that it absorbs from the outside sources. The pokemon uses its arms and legs to corrode metal and absorb it into its own body.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![meltan pokemon](https://images.wondershare.com/drfone/2020/meltan-pokemon.jpg)
 
 The meltan box is actually a mystery box that you cannot receive through the traditional method. It requires you to make an unconventional move to get this box and catch this different pokemon. The process involved to get the meltan box pokemon go include the following:
@@ -244,6 +305,9 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 
 **Step 8:** Then choose the “Connect to Nintendo Switch”.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pokemon switch pair2](https://images.wondershare.com/drfone/2020/pokemon-switch-pair2.jpg)
 
 **Step 9:** This will allow Pokemon Go to search for a Nintendo Switch game to connect with.
@@ -260,6 +324,10 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 **Step 2:** In Fuschia City, talk to the Go Park Complex Attendant and select the “Bring Pokemon” option.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ![bring pokemon](https://images.wondershare.com/drfone/2020/bring-pokemon.jpg)
 
 **Step 3:** Open Pokemon Go.
@@ -286,6 +354,9 @@ There is a lot of confusion among the Pokemon trainers regarding how to get melt
 
 With the help of pairing and connecting your Pokemon Go to the Nintendo Switch, you can actually get the opportunity to transfer the Pokemon and win a mystery box for yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Tip No.2: Transfer Pokemon to Friend’s Switch
 
 If you cannot establish a pair with your Nintendo Switch, you can always look for your friends. In case you don’t have a Nintendo Switch with a copy of Let’s Go Pikachu, do not worry. You can still obtain a shiny meltan pokemon go mystery box. You can send Pokemon to your friend’s Nintendo switch and bang… you get the chance to catch the mythical pokemon.
@@ -308,6 +379,9 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## What Legendaries Are In Pokemon Platinum On Infinix Hot 30i?
 
 Pokemon Platinum is an engaging role-playing video game introduced by Nintendo and Game Freak. Released in 2008 in Japan, Platinum is an enhanced version of Pokemon Pearl and Diamond.
@@ -318,6 +392,9 @@ In the game, players control a female or male character. It starts with three Po
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
@@ -328,6 +405,9 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **2\. Uxie:** Found in found in Acuity Cavern in the middle of Lake Acuity, Uxie is one of the three legendary Pokemon scattered around Sinnoh after you have battled and qwelled Giratina. The Level 50 Pokemon is reachable by walking or riding up without any fear of attack. This is one of the popular platinum legendaries.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![Platinum legendaries 3](https://images.wondershare.com/drfone/Platinum-legendaries-3.png)
 
 **3\. Azelf:** Located in Valor Cavern, in the middle of Lake Valor, Azelf is the Blue Pokemon in the trio. The Level 50 Pokemon does not attack you as you walk or ride up to it. Spray Super Repels as you move towards the Pokemon and surf onto the rocky island housing a cave to catch it.
@@ -338,6 +418,9 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
@@ -356,6 +439,9 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **13\. Regirock:** Located in Rock Peak Ruins, Regirock is a level 30 legendary Pokemon in the Platinum version. Transfer the Regigigas obtained from the 11th movie and team up with it. After that, you can access a special cave in Route 228, where you will find another cave. Go there with Regigigas Platinum and enter a new cave. You will find a status in the cave. Go up to it and Regirock will attack you.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
@@ -380,6 +466,9 @@ There are many action replay codes available on the Internet. Using these codes,
 
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -396,14 +485,23 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
@@ -414,6 +512,9 @@ Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level 
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
@@ -424,6 +525,9 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
@@ -447,3 +551,68 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-15-podcast-hosting-sites-and-platforms/"><u>[New] 15 Podcast Hosting Sites & Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-is-insta-snap-verification-worth-it-for-2024/"><u>[New] Is Insta-Snap Verification Worth It for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-perfecting-the-art-of-ppt-delivery-via-google-meet-any-device/"><u>[New] Perfecting the Art of PPT Delivery via Google Meet (Any Device)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-5-quick-filming-diy-hacks-to-try-at-home/"><u>[New] Top 5 Quick Filming DIY Hacks to Try at Home</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unlock-the-power-of-beginnings-with-imovies-creative-tools/"><u>[New] Unlock the Power of Beginnings with iMovie's Creative Tools</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-core-elements-of-virtual-tale-transmission/"><u>[Updated] Core Elements of Virtual Tale Transmission</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-experts-top-10-fcp-plugin-selection/"><u>[Updated] Expert's Top 10 FCP Plugin Selection</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-audio-diminishment-in-lumafusion/"><u>2024 Approved  Mastering Audio Diminishment in Lumafusion</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-overcome-blurred-images-the-best-online-enhancers-listed/"><u>2024 Approved  Overcome Blurred Images  The Best Online Enhancers Listed</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-style-sleuths-influential-beauty-creators/"><u>2024 Approved  Style Sleuths  Influential Beauty Creators</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-leading-range-expanders-a-comprehensive-review-of-voice-modification-software/"><u>2024 Approved Leading Range Expanders A Comprehensive Review of Voice Modification Software</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-the-ultimate-3gp-video-cutter-tutorial-2023-edition/"><u>2024 Approved The Ultimate 3GP Video Cutter Tutorial 2023 Edition</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-the-language-of-asmr-videos-for-2024/"><u>Decoding the Language of ASMR Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tifying-the-mechanics-of-youtube-studio-for-2024/"><u>Demystifying the Mechanics of YouTube Studio for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Oppo Find X7? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-find-n3-flip-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Find N3 Flip PIN</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-creativity-in-ar-a-comprehensive-guide-to-lut-tools/"><u>In 2024, Unleashing Creativity in AR  A Comprehensive Guide to LUT Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/mastering-the-art-of-minecraft-gameplay-capture-for-2024/"><u>Mastering the Art of Minecraft Gameplay Capture for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-from-concept-to-reality-best-stop-motion-apps-for-ios-and-android-devices/"><u>New In 2024, From Concept to Reality Best Stop Motion Apps for iOS and Android Devices</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-video-to-audio-conversion-made-easy-a-step-by-step-guide-to-choosing-the-right-app/"><u>New In 2024, Video to Audio Conversion Made Easy A Step-by-Step Guide to Choosing the Right App</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Oppo Find X7? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-s18-pro-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo S18 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-virtual-sound-editor-with-cut-and-join-features-for-2024/"><u>Updated Virtual Sound Editor with Cut & Join Features for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/use-of-analytics/"><u>Use of Analytics</u></a></li>
+</ul></div>
