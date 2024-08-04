@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Sony Xperia 10 V | Dr.fone
-date: 2024-07-22T22:49:06.971Z
-updated: 2024-07-23T22:49:06.971Z
+date: 2024-08-03T13:32:12.136Z
+updated: 2024-08-04T13:32:12.136Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -463,3 +463,74 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-elevate-your-photo-grids-on-ig-with-these-premium-tools/"><u>[New] 2024 Approved  Elevate Your Photo Grids on IG with These Premium Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-master-your-audience-smooth-screen-sharing-on-social-livestreams/"><u>[New] 2024 Approved  Master Your Audience  Smooth Screen Sharing on Social Livestreams</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-streamlined-method-keeping-and-capturing-twitters-videomedia/"><u>[New] 2024 Approved  Streamlined Method  Keeping and Capturing Twitters Video/Media</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-enhance-team-engagement-with-microsoft-teams-snap-camera-feature/"><u>[New] Enhance Team Engagement with Microsoft Teams' Snap Camera Feature</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-evaluating-inshot-is-it-truly-top-notch/"><u>[New] Evaluating InShot  Is It Truly Top-Notch?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-creating-impressive-slideshows-with-video-delays-in-snapchat/"><u>[New] In 2024, Creating Impressive Slideshows with Video Delays in Snapchat</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-exciting-quests-selecting-the-top-10-adventure-gaming-treasures/"><u>[New] In 2024, Exciting Quests  Selecting the Top 10 Adventure Gaming Treasures</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-expert-techniques-for-capturing-and-recording-streamed-content/"><u>[New] In 2024, Expert Techniques for Capturing & Recording Streamed Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-inspire-audiences-with-these-high-quality-free-sound-files/"><u>[New] In 2024, Inspire Audiences with These High-Quality, Free Sound Files</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-modify-twitter-video-screenshot/"><u>[New] In 2024, Modify Twitter Video Screenshot</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-evolved-2023-samsung-bd-j5900-a-deep-dive-for-2024/"><u>[New] The Evolved 2023 Samsung BD-J5900  A Deep Dive for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-list-of-5-youtube-competitor-editors/"><u>[New] The Ultimate List of 5 YouTube Competitor Editors</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-banish-blurry-footage-keeping-your-gopro-crisp/"><u>[Updated] Banish Blurry Footage  Keeping Your GoPro Crisp</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-flashsnap-firefox-tools-for-2024/"><u>[Updated] FlashSnap Firefox Tools for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-8-virtual-vision-composition-program/"><u>[Updated] Prime 8 Virtual Vision Composition Program</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-7-high-impact-workout-videos-that-engage-and-energize-audiences/"><u>2024 Approved  7 High-Impact Workout Videos That Engage and Energize Audiences</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-vivo-y100i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-nubia-z50s-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Nubia Z50S Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Oppo Reno 8T? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-realme-12-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-nord-n30-5g-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock OnePlus Nord N30 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Motorola G24 Power? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-motorola-moto-g84-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Motorola Moto G84 5GFRP Lock</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premier-plot-discourse-analysis/"><u>In 2024, Premier Plot Discourse Analysis</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oneplus-nord-ce-3-5g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On OnePlus Nord CE 3 5G Device</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Samsung Galaxy F04? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-motorola-defy-2-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Motorola Defy 2? Fixed | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/optimal-team-chats-secrets-to-success-4-steps-for-2024/"><u>Optimal Team Chats  Secrets to Success, #4 Steps for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/revolutionizing-the-joy-of-packet-opening/"><u>Revolutionizing the Joy of Packet Opening</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/secrets-to-compelling-presentations-ppt-on-mobile-and-desktop-gmeet/"><u>Secrets to Compelling Presentations  PPT on Mobile & Desktop GMeet</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-reno-11-pro-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Oppo Reno 11 Pro 5G Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Asus ROG Phone 8? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Nokia C32? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+</ul></div>
