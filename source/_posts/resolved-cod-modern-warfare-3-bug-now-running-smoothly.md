@@ -1,0 +1,207 @@
+---
+title: Resolved COD Modern Warfare 3 Bug - Now Running Smoothly!
+date: 2024-08-25T05:21:01.594Z
+updated: 2024-08-26T05:21:01.594Z
+tags:
+  - win11
+  - win10
+  - win7
+categories:
+  - ProgramIssues
+description: This Article Describes Resolved COD Modern Warfare 3 Bug - Now Running Smoothly!
+excerpt: This Article Describes Resolved COD Modern Warfare 3 Bug - Now Running Smoothly!
+thumbnail: https://thmb.techidaily.com/d2f76001c4f2646491c0fc840a81d8218602e492050e0d16896d960da5c49a16.png
+---
+
+## Troubleshooting OBS - Screen Recording Issue Resolved Now
+
+Many Windows users have been reporting the OBS not recording screen issue lately. If you’re one of them, don’t worry. Although this problem can be caused by a variety of reasons, you can fix it in easy steps.
+
+## Try these fixes
+
+ Here are 5 simple solutions for you to troubleshoot the OBS not recording screen issue. You may not try them all. Just work your way down the list until you find the one that does the trick.
+
+1. [**Turn off the preview window**](https://tools.techidaily.com/drivereasy/download/)
+2. [**Run OBS as an administrator**](https://tools.techidaily.com/drivereasy/download/)
+3. [**Close unnecessary background programs**](https://tools.techidaily.com/drivereasy/download/)
+4. [**Change the graphics settings**](https://tools.techidaily.com/drivereasy/download/)
+5. **[Update your device drivers](https://tools.techidaily.com/drivereasy/download/)**
+
+### Fix 1 – Turn off the preview window
+
+ According to many users, a simple workaround to OBS not recording screen is to disable the preview window. What you need to do is to launch OBS and untick the**Studio Mode** at the bottom right corner of the main screen. Then the preview window should be closed and you could check if the problem goes away. If the problem occurs while you’re recording a game, try to**minimize OBS** to the system tray.
+
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/disable-preview-obs.jpg)
+
+ Turning off OBS preview should also mitigate the FPS drops while recording. But if this doesn’t help your case, have a look at the second method below.
+
+### Fix 2 – Run OBS as an administrator
+
+ If OBS doesn’t have proper administrator privileges, it will fail to record your screen as expected, but you could run it as an administrator to fix the issue.
+
+1. Right-click the**OBS icon** on your desktop and select**Properties** .  
+![](https://images.drivereasy.com/wp-content/uploads/2021/03/run-as-administrator-1.jpg)
+2. Select the**Compatibility** tab, tick**Run this program as an administrator** and click**OK** .  
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/run-obs-as-administrator.jpg)
+
+ Now OBS should be working with full access and recording your screen properly. If not so, there are a few more fixes to try.
+
+### Fix 3 – Close unnecessary background programs
+
+ Software conflicts can also be a cause. To avoid this, you should shut down all unneeded programs running in the background before using OBS. Here are the steps:
+
+1. Right-click any empty area of the taskbar and click**Task Manager** .  
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/ta-1.jpg)
+2. Right-click a program you’d like to close and click **End task** .  
+ Don’t end any programs you’re unfamiliar with, as they may be critical for the functioning of your computer.  
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/ta-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
+ Once done, restart OBS to test. If the OBS not recording problem persists, continue to the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
+### Fix 4 – Change the graphics settings
+
+ For users who are running OBS on a laptop or a multi-GPU system, using the wrong graphics card will trigger performance issues with the specific capture type. So OBS may not capture your screen. To fix this, you can select the dedicated graphics card manually via Windows settings.
+
+1. Click the**Start** button and click**Settings** .  
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/change-graphics-settings-0.jpg)
+2. Select**System** .
+3. Select the**Display** tab on the left pane and click**Graphics** **settings** .  
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/change-graphics-settings-1.jpg)
+4. Choose**Desktop app** from the drop-down list and click**Browse** .  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/change-graphics-settings-2.jpg)
+5. Locate your**OBS executable file** , which is usually located at_C:\\Program Files\\obs-studio\\bin\\64bit\\obs64.exe_ , and add this file.
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+6. Click**OBS Studio** and click**Options** .  
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/change-graphics-settings-3.jpg)
+7. If you intend to use_Display Captur_ e, select**Power saving** and click**Save** . If you’re using_Window capture_ or_Game capture_ , select**High performance** and**Save** .  
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/change-graphics-settings-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+ See if OBS works without trouble. If you’re still unable to use screen capture, there might be something wrong with your device drivers. Check out Fix 5 to solve it.
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Fix 5 – Update your device drivers
+
+ If none of the methods above resolves your problem, the cause can be driver-related. If your device drivers are missing, faulty or outdated, you may run into the OBS black screen issue and it won’t be able to record the screen properly. To update your device drivers, here are two ways for you:
+
+**Option 1 – Manually** : You can update the drivers manually by going to the hardware or PC manufacturer’s website and then searching for the most recent correct driver. Be sure to choose only drivers that are compatible with your Windows version.
+
+**Option 2 – Automatically** : If you don’t have the time, patience or computer skills to update your device drivers manually, you can, instead, do it automatically with **[Driver Easy](https://tools.techidaily.com/drivereasy/download/)**  . Driver Easy will automatically recognize your system and find the correct drivers for your exact devices, and your Windows version, and it will download and install them correctly:
+
+1. **[Download](https://tools.techidaily.com/drivereasy/download/)**  and install Driver Easy.
+2. Run Driver Easy and click the**Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
+![](https://images.drivereasy.com/wp-content/uploads/2021/04/de-borderless.jpg)
+3. Click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click**Update All** ). Or you can click**Update** next to the flagged device driver to do it for free, but it’s partly manual.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
+![](https://images.drivereasy.com/wp-content/uploads/2021/02/update-all-de.jpg)
+
+**The Pro version of Driver Easy** comes with full technical support.  
+ If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
+
+ If driver update doesn’t give you luck, try reinstalling OBS to get rid of the in-depth bugs during the installation and see how things go.
+
+---
+
+ Hopefully one of the fixes gets your OBS screen recording back to work. If you have any questions or suggestions, please feel free to leave a comment below.
+
+* [program](https://tools.techidaily.com/drivereasy/download/)
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-interlinking-platforms-twitch-to-facebook-transfer/"><u>[New] 2024 Approved  Interlinking Platforms  Twitch to Facebook Transfer</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-easy-steps-to-archive-vimeo-video-recordings/"><u>[New] Easy Steps to Archive Vimeo Video Recordings</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-facebook-fam-bites-in-snapchat-spotlight/"><u>[New] Facebook Fam Bites in Snapchat Spotlight</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-highest-rated-10-apps-to-watch-golf-and-soccer-in-the-moment/"><u>[New] Highest Rated 10 Apps to Watch Golf & Soccer in the Moment</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-only-guide-youll-need-to-know-about-instagram-reels/"><u>[New] In 2024, The Only Guide You'll Need to Know About Instagram Reels</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Tecno Spark Go (2024) | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/diy-tips-for-affordable-youtube-introend-videos/"><u>DIY Tips for Affordable YouTube Intro/End Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-htc-u23-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Itel P55 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Nokia C300? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/improve-online-experience-with-easy-dns-clearing-techniques-for-windows-1011/"><u>Improve Online Experience with Easy DNS Clearing Techniques for Windows 10/11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-an-engaging-online-presence-the-complete-guide-to-youtube-submissions/"><u>In 2024, Crafting an Engaging Online Presence  The Complete Guide to YouTube Submissions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Lava Storm 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-t2-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Vivo T2 5G?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snapchat-boomerangs-unveiled-your-how-to-guide/"><u>In 2024, SnapChat Boomerangs Unveiled – Your How-To Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Nokia C110? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/master-iphoneipad-video-posting-to-youtube/"><u>Master iPhone/iPad Video Posting to YouTube</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Nokia 150 (2023)? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-nokia-xr21-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Nokia XR21? Fixed | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Tecno Pop 8 | Dr.fone</u></a></li>
+</ul></div>

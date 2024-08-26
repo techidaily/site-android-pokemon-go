@@ -1,0 +1,476 @@
+---
+title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Xiaomi 14? | Dr.fone
+date: 2024-08-25T05:10:04.266Z
+updated: 2024-08-26T05:10:04.266Z
+tags: 
+  - virtual location change
+  - pokemon-go
+categories:
+  - ios
+description: This article describes Pokemon Go Error 12 Failed to Detect Location On Xiaomi 14?
+excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Xiaomi 14?
+keywords: Pokemon Go Joystick for 14,Pokemon Go Joystick Without Walking,Pokemon Go Without Walking,Pokemon Go for 14,Pokémon Go Without Walking,Pokémon Go for 14
+thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6f572fe9945c7d91985d72b7.jpg
+---
+
+## Pokemon Go Error 12 Failed to Detect Location On Xiaomi 14?
+
+Pokemon Go is a popular game that has taken the world by storm. It is an augmented reality game that allows players to catch Pokemon in the real world using their smartphones. However, many players have reported encountering the "Failed to detect location (12)" error while playing the game. This error can be frustrating as it prevents players from playing the game properly. In this article, we will discuss what causes the "Failed to detect location (12)" error in Pokemon Go and how you can fix it on your Xiaomi 14.
+
+Pokémon Go has been on the nerves of its players and this is all because of the AR notion that it presents. The failed to detect location 12 is one of the most common errors that are faced by the players while playing this game. You might not believe but the GPS signals and the location settings on iPhone or Android are the two main reasons for this error. It can be resolved with ease and this article has been written to get the work done with ease. Applying the methods explained will ensure that you get the best results overall.
+
+
+## Part 1: Why is Location Important in Pokémon Go?
+
+The best part of this game is that it has been compiled keeping in view the location mechanics. The location analytics of the game has made sure that it becomes the overnight sensation. Three main attributes are associated with the location framework of the game. These attributes also show how important the location is for the game. Understanding these attributes will also make sure that the user can overcome the errors such as failed to detect location 12 GPS joystick 2019.
+
+### i. Physical World Attribute
+
+The best part of this attribute is that it is the center of the user experience of the game. The second part is the fact that this map has evolved and there are no shortcuts to its success. Ingress was the previous game that was developed by Niantic and the crowdsourcing of this map started with the evolution of this application. This was developed by the same team that is working on the core of Google Earth.
+
+### ii. Real World Gestures
+
+The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
+
+### iii. Place Attribution
+
+The system within the system that has been designed by the game developers makes sure that the location inaccuracies are accounted for. This also means that the 4-meter accuracy of the GPS is further enhanced to deal with the perfect location identification of each player.
+
+## Part 2: Ways to Fix Error 12 on Pokémon Go
+
+Several ways can be used to make sure that the subject error is resolved with ease. This section of the article will deal with all such ways that can be used to get the work done with ease and perfection.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+### Method 1: Enable Mock Locations
+
+As the name suggests it is to set the fake location using the build-in iPhone feature. It will also make sure that the feature of the game continues to work perfectly.
+
+**Step 1.** Go to the developer options of your device. To get to the developer options simply head over to the settings > About Phone > Software Info > Build number and tap it 7 times to enable the mock locations.
+
+![pokemon error 12 1](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 2.** Install the Fake GPS that is a free application and can easily be found on the Play Store.
+
+![pokemon error 12 2](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 3.** Launch the application and you can easily enjoy Pokémon Go without any hassle and trouble and resolve the Pokémon go failed to detect location 12 fake GPS error.
+
+![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+### Method 2: Location Activation
+
+This is another important and easy way to make sure that the Pokémon failed to detect location 12 error is resolved with ease and perfection. To execute the process the steps are mentioned as follows:
+
+**Step 1.** Open the settings on your Phone to start with:
+
+![pokemon error 12 4](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+**Step 2.** Tap on the passwords and security to proceed with the process:
+
+![pokemon error 12 5](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_5.jpg)
+
+**Step 3.** Tap to turn on the location to finish the process and eliminate the failed to detect location 12 Pokémon Go errors.
+
+![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 3: Reboot the Xiaomi 14 device
+
+This might seems weird but this trick has been working to quiet some time now and has been proven to eliminate the failed location 12 Pokémon Go issue. There is a possibility that the server location is not synced with the Xiaomi 14 device. Restarting the Xiaomi 14 device will make sure that both the locations are sync and the problem is resolved with ease.
+
+Just long-press the power button and choose the reboot option from the menu that appears to complete the process in full.
+
+![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
+
+<iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
+
+[Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best tool to overcome issues such as failure to detect location 12 Pokémon go on iPhone. The program has been designed to make sure that the GPS location is spoofed and you get the perfect outcome in resolving the error under discussion.
+
+
+
+### The Process
+
+**Step 1: Program Installation**
+
+To begin the process, download and install the program to get going with the process.
+
+![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+**Step 2: Enable Virtual Location**
+
+Connect your iPhone and enable virtual location from the options of the program. Hit get started to begin the spoof.
+
+![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
+**Step 3: Locate yourself**
+
+The center on the button on the next screen is to be clicked to get the accurate location.
+
+![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+**Step 4: Teleportation**
+
+On the upper right corner click the icon on the third to begin teleportation or spoofing to be precise. Enter the name of the place where you want to teleport to.
+
+![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
+**Step 5: Move to the teleported location**
+
+Click on move here and the system will move you to the location that has been entered.
+
+![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+**Step 6: Validate and Completion**
+
+The location will be locked by the program and your iPhone will also show the same location as on Dr. Fone. This also completes the process in full:
+
+![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+[Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the state-of-the-art program to overcome Pokémon go unable to detect location 12 on iOS devices. It has an intuitive interface and it also allows the users to overcome the issues that traditional spoofing programs present. It is being updated constantly which also means that you will be able to get the best results. There is no program on the internet that can resolve the error that failed to detect location 12 in Pokémon go as easily as this one does.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Why is iPogo not working On Xiaomi 14? Fixed
+
+The popular iPogo app is one of the best free apps you can use to spoof on your device while playing Pokémon Go. It is equipped with an abundance of features that allows players to get way ahead in the game by spotting spawns early, catching gym raids, discovering nests and quest events, and so on. If you spot a Pokémon which is way too far from your location, you can use iPogo to fake your virtual coordinates and trick Pokémon Go to think you are nearby that area. Sounds like an amazing app to use right? But, there is a downside to it too as users of the app have repeatedly reported of iPogo not working. The app seems to overload and malfunction after a few hours of repeated usage. This issue is preventing users from harnessing the full potential of their gaming experience.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Why Users download iPogo?
+
+iPogo is a free to use Pokémon Go++ mod which can be downloaded as an APK file for your iOS devices. It features tools that can be used by players to play the game virtually anywhere in the world while also enhancing the gameplay experience. Few of these exclusive features have been mentioned in the list below;
+
+- The Spin and Auto-cash feature can be used to capture Pokémon and throw a spinning ball without requiring a physical device.
+- With just one click you can manage your collection of stored items. It removes the cumbersome ordeal of the game to manually select and delete items when you can erase all un-required items with just one tap.
+- If you are on the hunt for special shiny Pokémon, you can do so without having to go through dozens of non-shiny one’s. On activating the Auto-Runaway feature on your iPogo, you can skip through the time consuming animations of all non-shiny Pokémon.
+- You can augment the game to let your avatar walk continuously at a desired pace. The speed of your avatar’s movement can be adjusted using iPogo.
+- If there are unnecessary elements crowding up your screen, you can hide them temporarily.
+- You keep track of Pokémon spawns, quests and raids using the feed on your iPogo.
+
+With all these amazing benefits at hand, it seems almost unfair to not be able to make the best of it if iPogo keeps crashing or stops working. Let’s look into the probable reasons why your iPogo is not working and explore methods to solve this dilemma.
+
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
+## Part 1: Common problem that iPogo is not working
+
+Pokémon Go players have made several reports of how iPogo is not functioning normally on their devices. For instance, while using the Plus mod on Pokémon Go, the Xiaomi 14 device screen goes completely black and unresponsive making the game inaccessible. Also, devices that run Pokémon Go with iPogo seems to be running slower than those which do not use any helper or spoofing support.
+
+Even if your device is able to withstand the load of using iPogo, it may still be possible to face other app related performance issues like ipogo enhanced-throw not working, ipogo joystick not working and ipogo feeds not working either. All these symptoms sums up the fact that the iPogo app is faltering on your device.
+
+Read on to understand the reasons why your device is unable to run the iPogo mod smoothly;
+
+- One of the root causes which explains why iPogo is crashing could be because you are utilizing too much of your phone’s system resource capacity. This means you have too many tabs or other applications opened on your device that is making the resource distribution falter leading to an automatic shutdown.
+- Another plausible reason could be that your iPogo application has not been properly installed. It is widely agreed upon that iPogo is a difficult app to install as it involves going through complex steps making it easier for mistakes to be made, eventually leading to a complete breakdown of the software.
+- Since installing iPogo is a cumbersome process, players would often resort to using downloading hacks to get the job done faster. However, not all such hacks can be relied upon as they may end up jail breaking your device or make your version of the app even more unstable.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
+### Some Easy Solutions for fixing the “iPogo not working” issue
+
+It is often said that short cuts can cut you short or in this case, hacked! Disrupting the framework of your device is not price you should pay for enjoying the game at its best. Although, there are other safer and more reliable solutions to making the iPogo app run better on your iOS device. Let’s take a brief peak at some of them.
+
+- **Limiting the usage of System Resources:** Let’s keep in mind that it is unwise to keep too much on your plate and rightfully so. In this case, the more applications you keep active on your shortcut bar, the lesser resources your CPU has left to allocate to the iPogo app. Therefore, close off all other unnecessary applications before launching iPogo as it is already a heavy enough application to run on its own.
+- **Too many Items opened:** Keep a tight check on your list of inventory while playing Pokémon Go using iPogo. Remember to delete all un-required collected items as it may be taking up too much space and wasting precious system resources.
+- **Keep you Device Clean:** Not essentially in the literal sense but yes, it is indeed important to clean up your device often. Use a cleaner app that deletes and clears all those extra cache files that becomes the primary reason of system lag on your iOS device.
+- **Install the Official Version:** It may be tempting for anyone to install the app using shortcut hacks, but that’s all they are – just hacks! Installing iPogo seem like the long way but it is the right way on all accounts. There are three methods you can use to integrate the official iPogo app, all of which has been made more simplified.
+
+**Method 1:** Use the three-step app installation method which is direct and free to use.
+
+**Method 2:** If you are opting for a matrix installation, in which case you will need a PC installed with either Windows, LINUX or MacOS.
+
+**Method 3:** The Signulous method is a premium mod that gives the player access to additional features.
+
+**Note:** All of these installation methods have specific varied requirements which must be checked appropriately.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
+## Part 2: A better alternative for iPogo - virtual location
+
+If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
+### Primary Features of Dr. Fone
+
+- Adjust the speed of travel with three speed modes, like walking, cycling or even driving.
+- Manually move your GPS on the map freely using a virtual joystick in a 360 degree direction.
+- Simulate your avatar’s movements to travel on a determined route of your choice.
+
+### Step by Step Tutorial
+
+You can follow these easy steps to teleport to anywhere in the world with the help of drfone Virtual Location.
+
+**Step 1: Run the Program**
+
+Begin with downloading Dr.Fone – Virtual Location (iOS) on your PC. Then, install and launch it. To proceed, make sure to choose “Virtual Location” tab given on the main screen.
+
+![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+**Step 2: Plug iPhone**
+
+Now, grab your iPhone and get it connected with the PC using the lightening cable. Once done, hit on “Get Started” to begin spoofing.
+
+![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 3: Check Location**
+
+You will notice a map on the screen now. As it comes, you got to click on ‘Centre On’ to accurately pin point the GPS to your location.
+
+![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+**Step 4: Enable Teleport Mode**
+
+Now, you are required to turn on the ‘teleport mode’. To do this, simply click on the first icon on the upper right hand corner. After that, enter the location you want on the upper right field and then hit ‘Go’.
+
+![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
+**Step 5: Start Teleporting**
+
+Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
+
+![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+Now, the location is changed. You can now open any location based app on your iPhone and check the location. It will show the location you have selected.
+
+## Conclusion
+
+Pokémon Go Plus mods like iPogo involves a certain degree of care in order to have a healthy game experience. Be sure to take pre-emptive measures suggested in this article and you would notice your device running smoothly in no time.
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Fix Pokemon Go Route Not Working On Xiaomi 14?
+
+Pokemon Go Routes has been here for quite some time now. By far, it’s still the favorite in-game feature of many trainers all around the world. The reason is pretty obvious. You can collect tons of special rewards by doing nothing complicated other than following and completing a Route nearby. On top of that, Pokemon Go Routes can also be of great help if you’re searching for new walking paths around your location. Simply put, this particular addition to the game’s already amazing roster has many real-life and virtual benefits for the players.
+
+However, it’s perhaps safe to say that Pokemon Go Routes is still far from perfect. There have been a few complaints from users about **Pokemon Go Route not working.** While this issue is fairly common among the players, the root cause differs depending on the given situation. But don’t worry. If you experience similar issues, there are many tutorials you can try to fix **Pokemon Go Routes not working.**
+
+In this article, we will discuss how Pokemon Go Routes basically work. We will also talk about the main reasons why **Pokemon Go Routes is not showing up** sometimes. Lastly, we will provide some helpful tips to fix this kind of problem. Continue reading below to learn more.
+
+## Part 1. How Do Routes in Pokemon Go Work?
+
+The logic behind the Pokemon Go Routes is very simple. There are only two things you need to remember about it. First, you can record a walking path anywhere and submit it for review. Your Route will immediately appear on the Pokemon Go map once it receives approval from the game developer. Of course, the quality and safety of the Route must be checked thoroughly before it becomes available to the public. Another thing about the Route is that you can use it to discover and explore new walking paths near you. All you need to do is pick your preferred Route and finish the entire trail. Afterward, you can obtain special rewards and extra bonus points upon its completion.
+
+Do you want to try Pokemon Go Routes now? Here’s a quick guide for you on how to access it on your mobile device.
+
+- **Step 1:** Launch the Pokemon Go application on your smartphone.
+- **Step 2:** On the map view, find and click the **Nearby** icon at the bottom-right corner of your screen.
+
+![nearby option](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-1.jpg)
+
+- **Step 3:** Then, click **Route.**
+
+![pokemon go route](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-2.jpg)
+
+- **Step 4:** From there, decide if you wish to discover nearby Routes or create your own.
+
+**NOTE:** The Create New Route feature is only available to selected Pokemon Go players. If Pokemon Go Routes is not showing up on your end, it’s probably because you’re not yet eligible.
+
+## Part 2. Why is Pokemon Go Routes Not Showing Up?
+
+As previously mentioned, the root causes of the Pokemon Go Routes glitch vary from one trainer to another. It’s possible that the Pokemon Go Routes are not showing up because your Trainer Level is not high enough. Yes. This option is only available to players who reach the required level. However, the player’s respective rank is not always the culprit for this issue. There are other factors that might also result in the same problem. Check out the list below to understand it better.
+
+![pokemon go route missing](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-4.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
+### There are no recorded Routes near your location
+
+It’s possible that the Pokemon Routes are not showing up because you’re too far from them. Try to move around and see if the walking paths will finally appear on your radar. In this case, all you need to do is find the perfect spot where Routes are recorded.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
+### The Pokemon Go application has no adequate location access on your smartphone
+
+![pokemon go location access](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-5.JPG)
+
+Is Pokemon Go Route not working on your end? Well, it’s possibly because the application has limited or restricted access to GPS on your smartphone. Don’t worry. It’s nothing serious. You can easily fix this kind of misconfiguration by adjusting your privacy settings.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Your internet connection is unstable while playing Pokemon Go
+
+Pokemon Go Routes and most of the game’s main features require a reliable internet connection. If you’re connected to slow and unstable internet access, the Pokemon Go app will not load up properly. That’s probably the reason why Pokemon Go Routes are not completing or working at all on your end.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### You’re using an outdated Pokemon Go app version
+
+![update pokemon go app](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-6.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
+Keep in mind that the Pokemon Go Routes is an additional game feature. That’s why you first need to update your existing Pokemon Go app before you can access it. The Routes is definitely not available to old versions of Pokemon Go mobile software.
+
+### The current software version of your smartphone is not compatible with the Pokemon Go Routes feature
+
+Android 6.0 and iOS 14 or higher are the main system requirements of the Pokemon Go application. The Pokemon Go Routes are not working, or perhaps the whole application malfunctions because your software version is too old. Don’t worry. A simple OS update might resolve this problem once and for all.
+
+## Part 3. Tips on How to Fix Pokemon Go Routes Not Showing Up
+
+Is Pokemon Go Route not working on your mobile device? Don’t sweat it. There are lots of troubleshooting methods you can try to fix this issue with just the snap of a finger. Check out the list below and find the best solution that works in your current situation.
+
+- Switch to another internet connection that is much stronger and more reliable. You cannot enjoy much of the Pokemon Go Routes features if you’re connected to faulty internet access. If Pokemon Go Routes are not showing up, it probably has something to do with your internet connectivity.
+- Don’t hesitate to update your Pokemon Go application regularly. It’s one great way to maintain the functionality of the Routes and other Pokemon Go features.
+- Grant the Pokemon Go app all the necessary permission on your smartphone. Make sure it has adequate access to location services and other required mobile functions.
+- Try to use a newer mobile device when playing Pokemon Go. It’s possible that the Pokemon Go Route is not working because your old smartphone is not compatible with the feature.
+- Visit other locations near you. Who knows? Pokemon Go Routes might finally show up when you travel to a different neighborhood.
+
+## Part 4. [<u>Wondershare Dr.Fone</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/): The Best Alternative When Pokemon Go DeFit is Not Working
+
+In simple terms, DeFit is a third-party application that allows trainers to play Pokemon Go without moving physically. You can walk the required distance for egg hatching or explore Routes from the comfort of your own home. However, there have been reports recently about Pokemon Go DeFit not working. Is there a substitute for this software? The short answer is absolutely yes. Wondershare Dr.Fone has a powerful Virtual Location feature that works exactly like DeFit. It can also simulate GPD movement to complete Pokemon Go Routes without going outdoors. Do you want to try it? Here’s a short guide for you.
+
+
+
+- **Step 1:** Download Wondershare Dr.Fone from its [<u>official website.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) Right after, install it on your computer.
+- **Step 2:** Open the newly installed software on your desktop. Once it fully loads up, connect your smartphone immediately using a data cable. Follow the on-screen instructions to establish a secure connection between the computer and your device.
+- **Step 3:** Access the left-side panel and then click **Toolbox.** Navigate to the main dashboard afterward and then click **Virtual Location.** If it’s your first time using this feature, let Wondershare Dr.Fone download the additional resources needed.
+- **Step 4:** After the successful download, the Virtual Location feature will then appear in a separate window. Head over to the menu bar at the top-right corner of your screen and then click **One-Stop Route.** The starting point for the simulation will be designated based on your current location. If you wish to change it, go back to the menu bar again and then click **Teleport Mode** to assign your preferred starting point. As for the destination, you can search for your desired location or tap anywhere around the map.
+
+![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
+
+- **Step 5:** Calibrate the necessary settings according to your liking. Start by choosing your preferred type and number of trips. Right after, adjust the movement speed by moving the slider from left to write. Then, click **Move Here** to commence the simulation. If you wish to reset your inputs, click **Clear** instead.
+
+![movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
+- **Step 6:** The simulation will then begin immediately. Refer to the map for the real-time progress. If you wish to halt the movement for a little while, click **Pause.** On the one hand, click **Clear** if you want to start all over again.
+
+![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+## Conclusion
+
+Pokemon Go players must try the Routes and explore this feature. It’s indeed an incredible development that can certainly take your game experience to a whole new level. Is Pokemon Go Route not working on your end? Don’t worry. It’s not a big problem. Refer to the troubleshooting tips listed above. One of them can surely help you a lot in this regard. If you need a substitute for the Pokemon Go DeFit that’s not working on your smartphone, try [<u>Wondershare Dr.Fone.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It has a potent Virtual Location feature that is capable of simulating GPS movements needed in Pokemon Go. Download it for free.
+
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-top-tier-hd-screen-recording-technology/"><u>[New] 2024 Approved  Top-Tier HD Screen Recording Technology</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-windows-movie-maker-your-gateway-into-the-world-of-digital-cartoons/"><u>[New] 2024 Approved  Windows Movie Maker  Your Gateway Into the World of Digital Cartoons</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-direct-from-instagram-masterful-techniques-for-igtv-video-transferring-for-2024/"><u>[New] Direct From Instagram  Masterful Techniques for IGTV Video Transferring for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/actics-for-avoiding-a-youtube-sanction/"><u>[New] Tactics for Avoiding a YouTube Sanction</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-obs-configurations-on-frugal-devices-for-2024/"><u>[New] Top OBS Configurations on Frugal Devices for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-filmmakers-companion-filmora-for-youtube-trailers/"><u>[Updated] In 2024, Filmmaker's Companion  Filmora for YouTube Trailers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-unraveling-triller-its-distinctive-place-in-the-world-of-online-videos/"><u>2024 Approved  Unraveling Triller  Its Distinctive Place in the World of Online Videos</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unraveling-youtubes-vision-for-a-thriving-ecosystem-of-short-form-video/"><u>2024 Approved  Unraveling YouTube's Vision for a Thriving Ecosystem of Short-Form Video</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/discover-the-best-deals-on-high-quality-sports-watches-from-fossil-expert-opinions-and-ratings/"><u>Discover the Best Deals on High-Quality Sports Watches From Fossil: Expert Opinions & Ratings</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-new-dolby-sound-drivers-now-compatible-with-windows-11-and-earlier-versions/"><u>Download New Dolby Sound Drivers Now – Compatible with Windows 11 & Earlier Versions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-your-writing-game-wins-finest-tools/"><u>Elevate Your Writing Game – Win's Finest Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-advice-correcting-ieframedll-errors-on-your-pc/"><u>Expert Advice: Correcting Ieframe.dll Errors on Your PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-de-alegria-e-felicidade-em-portugal/"><u>Expressões De Alegria E Felicidade Em Portugal</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/graphic-wizardry-from-novice-to-industry-success-story/"><u>Graphic Wizardry  From Novice to Industry Success Story</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-itel-a60s-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Oppo A1x 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-y78plus-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo Y78+ Phone that is Locked?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-vivo-v29e-easily-by-drfone-android/"><u>How To Unlock a Vivo V29e Easily?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Tecno Spark 10 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Best Phone Monitoring Apps for Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Nokia C12 Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-vivo-t2-5g-easily-by-drfone-android/"><u>In 2024, How To Unlock a Vivo T2 5G Easily?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Nokia C210? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Motorola Moto G73 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/legal-means-to-elevate-your-youtube-popularity-by-one-million/"><u>Legal Means to Elevate Your YouTube Popularity by One Million</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-nokia-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Nokia FRP</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/streamline-your-system-update-intel-3000-win11-driver/"><u>Streamline Your System: Update Intel 3000 Win11 Driver</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Oppo A78 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Nokia C12 Plus? | Dr.fone</u></a></li>
+</ul></div>
