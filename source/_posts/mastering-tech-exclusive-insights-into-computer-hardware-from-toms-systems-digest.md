@@ -1,0 +1,107 @@
+---
+title: "Mastering Tech: Exclusive Insights Into Computer Hardware From Tom's Systems Digest"
+date: 2024-08-30T02:28:41.153Z
+updated: 2024-08-31T02:28:41.153Z
+tags:
+  - desktop
+categories:
+  - hardware
+thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f40bf2451de84693ef89aead.jpeg
+---
+
+## Dive Into Tech with Tom's Hardware - The Ultimate Guide for Enthusiasts
+
+Mini PC specialist Minisforum has launched a new device, claiming several firsts. The new[AtomMan X7 Ti](https://www.minisforum.com/page/x7ti/index.html?lang=en) becomes the first in the firm's AtomMan line, described as a high-end cutting-edge marque by Minisforum. It is also claimed to be the “first Intel Ultra 9 AI Mini PC with a 4-inch Touchscreen.” With the rising popularity of[extra screens in PCs](https://www.tomshardware.com/pc-components/cooling/hands-on-lian-lis-lcd-screen-fans-turn-heads-and-are-surprisingly-affordable-but-not-as-configurable-as-id-like) , integrating one into a compact desktop might be a popular idea.
+
+ Starting from the outside, we see that the AtomMan X7 Ti would be a conventional-looking[NUC](https://www.tomshardware.com/news/asus-gets-license-to-make-intel-nucs) \-alike apart from two things. Firstly, it features a 4-inch 480p touch display which covers a fair portion of the top panel. Secondly, it comes with a neat stand that angles the display panel into an easy glanceable view. Furthermore, Minisforum has followed some logic by situating a 1080p[Windows Hello](https://www.tomshardware.com/news/windows-hello-fido2-certification-may-update-microsoft,39261.html) compatible webcam and dual mics above the touchscreen, appealing to video conferencing fans.
+
+ While we are considering external features, let’s look at the ports. Despite its compact size (145 x 145 x 49mm), the AtomMan X7 Ti features a decent quantity and selection of ports, as follows: RJ45 5G Ethernet Port ×2, DP 2.0, HDMI 2.1,[OCulink](https://www.tomshardware.com/news/worlds-first-oculink-usb-4-egpu-with-radeor-rx-7600m-xt) Port (up to 64Gbps), USB4 ×2, USB3.2 Gen2 Type-A ×2, USB3.2 Gen1 Type-A, USB2.0, a 3.5mm Combo Jack, SD Card slot, and a Power Button with an embedded fingerprint reader. [Wi-Fi 7](https://www.tomshardware.com/news/wi-fi-7-faq) and Bluetooth 5.4 complement the dual Ethernet ports. It must also be noted that the mix of dedicated monitor and USB4 ports means you can connect up to four external displays to this machine.
+
+ Image 1 of 3
+
+![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
+
+ (Image credit: Minisforum)
+
+![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
+
+ (Image credit: Minisforum)
+
+![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
+
+ (Image credit: Minisforum)
+
+ Moving inside, the star of the show is the new Intel Core Ultra 9 processor[185H](https://www.intel.com/content/www/us/en/products/sku/236849/intel-core-ultra-9-processor-185h-24m-cache-up-to-5-10-ghz/specifications.html) with a 16C/22T CPU running at up to 5.1 GHz, and onboard Arc GPU with eight Xe cores running at up to 2.35 GHz. This[Meteor Lake](https://www.tomshardware.com/news/intel-details-core-ultra-meteor-lake-architecture-launches-december-14) chip is cooled by the new Cold Wave cooling system featuring a large diameter fan, 3 copper heatpipes, and a phase-change module.
+
+ LATEST VIDEOS FROM tomshardware Tom's Hardware
+
+ Upgrading the AtomMan X7 Ti PC’s RAM and storage isn’t going to be too tricky. It uses standard DDR5-5600 SO-DIMMs, up to a max of 64GB. There are also two M.2 2280 PCIe 4.0 SSD slots, and the aforementioned wireless functionality comes courtesy of a socketed Intel BE200 card, so it can be changed for repair or upgrade.
+
+ We don’t have pricing for the AtomMan X7 Ti. Minisforum says it will go on pre-sale from May 20, so we expect to hear more about pricing and shipping RAM/storage configurations at that time. Those particularly interested in this product can sign up for an email about it and get a $30 coupon from Minisforum.
+
+ We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
+
+## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
+
+ Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
+
+ Contact me with news and offers from other Future brands  Receive email from us on behalf of our trusted partners or sponsors
+
+ By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-lightning-fast-video-delivery-on-facebook-select-extensions-and-apps-for-2024/"><u>[New] Lightning-Fast Video Delivery on Facebook  Select Extensions & Apps for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/common-fixes-for-counter-strike-2-failure-to-start-correctly/"><u>Common Fixes for Counter-Strike 2 Failure to Start Correctly</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/effective-methods-for-transferring-youtube-videos-to-the-social-network/"><u>Effective Methods for Transferring YouTube Videos to the Social Network</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/expert-guide-3-ways-to-keep-track-of-live-discord-events-for-2024/"><u>Expert Guide  3 Ways to Keep Track of Live Discord Events for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Xiaomi Redmi 12 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-turn-off-find-my-apple-iphone-6-when-phone-is-broken-drfone-by-drfone-ios/"><u>How to Turn Off Find My Apple iPhone 6 when Phone is Broken? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Nokia G22? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Xiaomi Redmi Note 13 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastery-in-documentary-writing-essential-techniques/"><u>In 2024, Mastery in Documentary Writing  Essential Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-collection-must-try-virtual-reality-games-for-google-cardboard/"><u>In 2024, Prime Collection  Must-Try Virtual Reality Games for Google Cardboard</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-what-to-pick-for-your-youtube-videos-ideal-formats-explored/"><u>In 2024, What to Pick for Your YouTube Videos? Ideal Formats Explored</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Tecno Spark 10C? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/mastering-media-locate-your-latest-favorites-on-facebook/"><u>Mastering Media  Locate Your Latest Favorites on Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/three-cutting-edge-strategies-for-enhancing-excel-performance/"><u>Three Cutting-Edge Strategies for Enhancing Excel Performance</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Nokia C12 Pro? | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
