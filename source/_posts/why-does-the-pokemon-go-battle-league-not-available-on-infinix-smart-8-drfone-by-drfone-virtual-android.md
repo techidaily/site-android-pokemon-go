@@ -1,0 +1,448 @@
+---
+title: Why does the pokemon go battle league not available On Infinix Smart 8 | Dr.fone
+date: 2024-09-03T15:11:26.204Z
+updated: 2024-09-04T15:11:26.204Z
+tags: 
+  - virtual location change
+  - pokemon-go
+categories:
+  - ios
+description: This article describes Why does the pokemon go battle league not available On Infinix Smart 8
+excerpt: This article describes Why does the pokemon go battle league not available On Infinix Smart 8
+keywords: Pokemon Go Without Walking,Pokemon Go Joystick Without Walking,Pokemon Go Joystick for Smart 8,Pokémon Go for Smart 8,Pokemon Go for Smart 8,Pokémon Go Without Walking
+thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec47ad22d2523d6d2404f16cd1.jpg
+---
+
+## Why does the pokemon go battle league not available On Infinix Smart 8
+
+After the incredible hype of finally getting the chance to battle other players, trainers hit a wall marked – Pokémon Go battle leagues Not Available.
+
+It’s not the first time trainers have experienced bugs in the game and a long wait during maintenance breaks, but patience wears thin as after 2 weeks into the release of the super hyped Battle League, trainers all around the world are yet to have access to it.
+
+The root cause of this disappointing course of events was a major bug in the first season of the Battle League. Some players could simply use “charged moves” repetitively without recharging. Thankfully Niantic is coming up with a fix.
+
+## Part 1: What are the Go battle league known issues?
+
+Pokémon Go as a game, is constantly evolving to improve the trainer’s experience which involves finding issues and resolving them. Like all other games, the publisher always tries their best to make the user experience more enriching and fair for the users.
+
+Season 1 of the Battle League’s had a severe bug that a handful of players exploited to rise to the leader board. After a player has lodged few fast moves, (number of fast moves required for each Pokémon to charge attack, varies) the trainer’s Pokémon can lodge a secondary yet stronger charged attack to deal more damage.
+
+The bug in the series implied that a Pokémon – “Melmetal” is able to recharge their charge attack even while attacking with a “Charged” move, essentially making the trainer using the Pokémon invincible during a real battle.
+
+Several trainers immediately tweeted this excruciating bug to Niantic requesting this issue to be resolved immediately, as a result Niantic had to freeze the leader board for that season.
+
+Players when entering the Battle League are shown – Pokemon Go Battle League Not Available Right Now, and all matches that were in progress were not concluded.
+
+![pokemon 1](https://images.wondershare.com/drfone/2020/pokemon-1.jpg)
+
+Thankfully, the issue has been resolved and trainers can get back into the league without any change in the previous features.
+
+Here’s a set of few known issues in the game currently being investigated by Niantic, which we can hope to see resolved later on in the future;
+
+- **Inconsistent Fast Attacks against Opponent Charged Attacks –** Your fast attacks don’t land a direct hit when the opponent is throwing his Charged Attack.
+- **Fast Attacks are slower on Android –** Most android users are experiencing slower fast attacks than iOS users. Niantic has addressed the issue and are awaiting more reports on the issue.
+- **Charged Attack Button doesn’t work when tapped -** Occasionally after few uses, the Charged Attack button fails to respond when tapped resulting in slower attacks during matches.
+- **Go Battle wins are not counted –** Some times, a Go battle win is not counted in the Go Battle League Set and remains unrecorded in the journal.
+- **Animation Glitch of the trainer throwing a Poke ball –** A glitch occurs occasionally when the trainer avatar is seen throwing a Poke Ball repetitively.
+- **Disappearance of the Charged Attack and Switch Button –** The button of the Charge Attack and the Switch Pokémon button would eventually disappear in-enabling the trainer to take any action during live battle.
+- **Next Battle tab not showing up on the Post-win Screen –** After ending a match or winning a battle, the button for the ‘Next Battle’ option disappears from the Post-win screen.
+
+## Part 2: Why does the go battle not available?
+
+It’s not new for an augmented reality game to have bugs that impede on the fun aspect of the game, but the recent development to Pokémon Go included an update trainers have been waiting for since its release in 2016.
+
+Battle League is a brand new additional feature to the game that allows players to play PVP or one on one matches with other trainers. Ninantic introduced Battle tournaments to be played in three leagues – Great, Ultra and Master, that gives trainers the opportunity to compete and gain dominance over score board.
+
+Pokémon Go is now exploring its roots with Pvp being a part of the original game franchise. We can hope to see the game evolve into a platform for global players to go head to head with each other.
+
+The first season of Pokémon Go Battle League had to be temporarily frozen due to prevalence of broken code (a.k.a. – bug) that created a loophole allowing certain players and unfair advantage.
+
+After attacking your opponent with a Charge move, the move set requires a brief time to recharge in order for the player to be able to use it again.
+
+Few players with the assist of Melmetal (ground and steel type) could lodge constant fast attacks while also using Charge moves with no recharge time. This landed a handful these players to skyrocket to the leader board.
+
+![pokemon 2](https://images.wondershare.com/drfone/2020/pokemon-2.jpg)
+
+After this issue was tweeted to the notice of the game publisher, Ninattic temporarily paused Battle League. Trainers while accessing the live tournament event would be notified with – “Pokemon Go Battle League Not Available” by the game.
+
+Although this doesn’t mean that trainers wouldn’t be able to play practice matches or close proximity matches. Battle League presents itself as an event in the game which gives trainers the chance to earn bonuses and stardust.
+
+Even so, Pokémon Go continues to resolve issues as they come along and this shows us how there is so much more to look forward to. Battle Leagues, since its debut has had 4 seasons till now and trainers are all pumped for Season 5.
+
+Here’s a list of exciting updates that will be included in the upcoming season;
+
+- At Rank 7 you will encounter a Legendary Pokémon on the Go Battle League battle tracks as similar to the Legendary Pokémon encountered in 5star raids.
+- To reach Rank 2 a trainer will need to complete a number of Battles in order to progress.
+- From Rank 3 all the way to Rank 10, a higher number of battles must be won to proceed.
+- Season 5 will be completed once you reach rank 7 which will earn you the Elite Charged TM rather than an Elite Fast TM.
+- In Season 5 few Pokémon’s will get new updated move sets which the trainers can use to train and prepare for upcoming tournaments.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: Tips you want to level up your pokemon go?
+
+The basics you need to learn to play Pokémon go is catching Pokémon and powering them up. Other than that there are ways you can speed power up your Pokémon to increase CP to higher levels. The overall Pokémon’s collected, evolved or powered up, and battles fought in Battle League will win you points to level up in Pokémon Go.
+
+Although it might seem like a long and hard journey, it doesn’t need to. You can catch and power up Pokémon faster and cover longer distances with some help from WondershareDr.Fone. With smoother and easier GPS spoofing you can cover Poke stops much quicker.
+
+Here’s some tips you can put to easy use in Levelling Up in Pokémon Go:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Tip #1: Use dr.fone Virtual Location
+
+Use Wondershare [Dr.Fone – Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to easily teleport to catch more poke stops at an adjustable speed and free-hand direction. The program is easy to use and a quicker way to grab more powerful Pokémon using lure.
+
+There are several adjustments to the program that makes it fun to use. You can adjust the speed according km/hr so that the speed of the pointer would be determined as either walking, biking or driving in the game. This increases your chances to catch Pokémon at your desired pace.
+
+![drfone](https://images.wondershare.com/drfone/2020/drfone.jpg)
+
+**Key Features:**
+
+- Mock and teleport your GPS to any desired location while connecting your iPhone to your server.
+- All other location based apps would determine your location according to the coordinates set up in the program.
+- You can set the speed according your choice and all other apps would track you as your pointer is teleported manually or automatically.
+- You can also use a free hand joystick to move the pointer on the map according to the movement of your finger.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Tip #2
+
+- You can set up multiple lures on several Poke stops and return to those exact coordinates to catch your lured Pokémon.
+
+### Tip #3
+
+- In order to attain a Pokémon who once powered up to its maximum potential can give you a battle worthy breed, you will need to sickle through a couple of them in order find one worth powering up.
+- You can also evolve weaker Pokémon and harvest them for candy which you can use to power up your star Pokémon.
+
+### Tip #4
+
+- Use Lucky Egg to double your XPs earned to increase the chances of getting Pokémon which when evolved spews more XP and Candy.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Pokémon Go continues to amaze trainers and fans of the franchise, and is becoming a most engaging and fun experience. Trainers are going to keep enjoying new and improved updates that brings a cooler jazz to the game. Even though there was a hold up in the fun Niantic has improved upon their initial flaws to give us the battle league tournaments we all love.
+
+## Which Pokémon can Evolve with a Moon Stone For Infinix Smart 8?
+
+Evolution items play a significant role in evolving certain species in the Pokémon game. Moon Stone is one of these peculiar items that are worth adding to your Pokedex. However, getting Moon Stone Pokémon is a tough assignment and you have to pull your best bells and whistles. However, there are several hacks and tricks that can reduce your hunting pain. In this article, we shall take you through a complete guide on Moon Stone Pokémon and evolutions.
+
+## Part 1. Moon Stone Pokémon
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### What is Moon Stone Pokémon?
+
+Moon Stone is an evolution stone introduced in generation I. This peculiar stone is used to evolve certain species of Pokémon. In terms of appearance, Moon Stone Pokémon is elliptical and black as the night sky.
+
+![moon stone](https://images.wondershare.com/drfone/2020/moon-stone.jpg)
+
+The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to Lake of Outrage in the Wild area. You will see a body of water on your left and a watt trader standing near it. To cross this water body, you will have to unlock the Rotom Bike from Route 9. When you manage this, check under the eight stones and you might be lucky that one of them might yield a Moon Stone. Also, you can navigate to the Dusty Bowl in the Wild Area. Here, you will find barren stones between a grassy rock and wheat field.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Pokémon that Evolve with a Moon Stone
+
+Moon Stone makes certain species of Pokémon evolve. To evolve a Pokémon using Moon Stone in Pokémon Sword and Shield, simply open the bag and go to the "Other Items" section. Finally, use Moon Stone in any of the following Pokémon.
+
+### 1\. Nidorina
+
+Nidorina is a poison type Pokémon that was introduced in Generation I. it looks like a rabbit with blue skin and dark spots around the body. Its natural abilities are poison point, rivalry, and hustle. As of level 16, Nidorona evolved from Nidoran. With the use of Moon Stone, Nidorina can evolve into Nidoqueen.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 2\. Nidorino
+
+Nidorino is a male counterpart of Nidorina. This poison-type Pokémon debuted in Generation I and looks like a rabbit. It has a red-purple color with some dark spots spread across the body. Sharp teeth protrude with large upper jaws and spikes. This Pokémon is quick to anger. Nidorino evolved from Nidoran as of level 16 and can evolve to Nidoking using the Moon Stone.
+
+### 3\. Clefairy
+
+This is a fairy-type Pokémon that was introduced in Generation I. It is a small, round, and star-shaped Pokémon whose abilities include magic guard and cute charm. It is timid and rarely feature near humans. Clefairy evolves from Cleffa when it gets leveled up with high friendship. With the help of Moon Stone, Clefairy evolves into Clefable.
+
+### 4\. Jigglypuff
+
+This is a normal/fairy type of Pokémon that was also introduced in Generation I. Before Generation VI, this Pokémon was entirely a normal-type Pokémon. Jigglypuff itself is an evolution of Igglybuff and can evolve into Wigglytuff with the help of Moon Stone.
+
+### 5\. Skitty
+
+This is a normal type Pokémon that was introduced in Generation II. This Pokémon is pink and looks like a cat with a cute charm ability. Skitty can evolve to Delcatty using the Moon Stone.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 6\. Munna
+
+Munna is a psychic-type Pokémon that was introduced in Generation V. It is a small Pokémon with a pink round body having purple flower painting on its back. With the use of Moon Stone, Munna evolves into a Musharna.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2. Tricks and Hacks to Get Moon Stone Pokémon
+
+As you have seen above, getting a Moon Stone is not an easy ride. It involves lots of trials and there is no guarantee to get it. But what tricks and hacks can you incorporate to make your hunt seamless? The following are some of the plausible tricks that you can use to easily grab a Moon Stone and add it to your Pokedex.
+
+### 1\. Use Dr. Fone Virtual iOS Location
+
+It goes without question that Dr. Fone Virtual Location is the best location spoofer tool. Remember Pokémon game is location-based and if you can play around with your location then you are at an upper hand of grabbing a rare Pokémon or an evolution item like Moon Stone. [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) makes it seamless to teleport to any location across the globe while you are seated comfortably at home. Besides, you can simulate movements between two or more points and make GPS control more flexible with the help of a joystick.
+
+**How to Teleport with Dr. Fone Virtual Location**
+
+**Step 1.** After installing Dr. Fone Virtual Location, launch it, and select "Virtual Location." Now connect your iPhone to the computer.
+
+![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 2.** Click the "Get Started" on the subsequent page to access the teleport options.
+
+![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 3.** The program will display a new page with three icons at the top-right. Click the third icon to take you to the teleport mode. Again enter the place you want to teleport to in the text field at the top-left of this same window and then hit "Go."
+
+![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+**Step 4.** Click "Move Here" from the pop-up that follows to teleport to the location you provided.
+
+![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 2\. Use Android Spoofing Tool- Pgsharp
+
+Pgsharp is a fake GPS location tool for Android devices and is suitable for playing Pokémon from a fake location with no root. It allows users to teleport in real-time while they are just sited at home. It has a downloadable free version. It has a user-friendly interface, and once you have set the fake GPS location on your Infinix Smart 8, you can catch rare Pokémon and evolution items with ease.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\. Use Go-tcha Evolve
+
+Go-tcha Evolve is an application that allows you to set animations and vibration to alert you in the case of Pokémon or pokestops. You can use its "auto-catch" feature to allow it automatically grab the Pokémon or pokestops without having to respond to alerts.
+
+
+
+## Ways to trade pokemon go from far away On Infinix Smart 8?
+
+If you're a regular Pokemon go player then the title of this article would have truly intrigued you. Pokemon go is one of the most exciting and interesting virtual reality games which has been doing rounds in the gamers community. The game needs you to go around from place to place. One cannot play the game indoors. Trading in Pokemon go is one of the essential features. However, according to Pokemon go trading rules, a player needs to travel around. However, there are some extremely useful hacks using which you needn't travel around for Pokemon go trading. You can do it remotely all by sitting at your home!
+
+## Part 1: Trade pokemon go from far away
+
+One of the most convenient ways for Pokemon go trading without having to travel is by using some virtual location servers just like discord servers. Next, you need to make friends with other Pokemon go players who stay in far-off places. Remember, that these friends must be on your virtual location server. Only then, you can do Pokemon go trading with them. Hence, make sure to have your friends on your server. One of the most popular and easy-to-use virtual location servers is the Dr.Fone - Virtual Location. Using this you can shift your location to any location in the world. Dr. Fone is highly user-friendly and can easily change your location, let us learn to use the [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), shall we?
+
+
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="540" height="540" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### How to use Dr.Fone - Virtual Location to teleport to any location
+
+Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any arbitrary location according to your choice. Suppose, you have a friend in London and you want to trade pokemon with him, you can simply change your location to London and then trade pokemon easily! It's that simple to use!
+
+- **Tweak your location:** Using Dr.Fone - Virtual Location, you can change your location very easily. You can use this feature while playing virtual reality games and also to stay undercover from nosy relatives.
+- **Set the speed to mock GPS location:** While playing virtual reality location-based games, you can also set the pace of movement of your GPS. This will help you to become better at the game!
+- **Joystick simulated motion:** you can use the in-app joystick for simulating motion and moving around on the map.
+
+### Step-by-step Tutorial
+
+**Step 1: Launch the Tool**
+
+Firstly you need to install the Dr.Fone - Virtual Location setter on your phone. Now on the interface click on "Virtual Location" from the options that you'd see on your screen. Then click on "get started"
+
+![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+**Step 2: Connect Device**
+
+Now, you need to take your iPhone’s cable and use it to connect your Infinix Smart 8 to the PC. Wait until the program detects it. Maybe you need to trust the PC if you are plugging the Infinix Smart 8 device for the first time.
+
+**Step 3: See your Location**
+
+Now on the interface, you'd see a map with your location highlighted on it. If your location is incorrectly displayed then click on the "center on" option. Now the location displayed would be accurate.
+
+![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 4: Activate Teleport Mode**
+
+Subsequently, activate the "teleport mode" by clicking the icon shown in the image. Now enter the location to which you want your fake location to be set to in the upper left field. Now click on "go"
+
+![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 5: Change Location**
+
+Upon clicking on "go", a pop-up will appear showing you the distance of the location you have chosen. Tap on “Move Here” and the location would now be set to the location entered by you. Click on "center on" to check your location.
+
+![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: Which pokemon can you evolve with trading?
+
+Evolution is one of the most important aspects of the game Pokemon go. You can evolve several pokemons just by trading them. There are several pokemon that you can evolve using trading. Given below is the list of the different pokemon that can benefit from evolution.
+
+- Kadabra
+- Machoke
+- Graveler
+- Haunter
+- Boldore
+- Gurdurr
+- Karrablast
+- Shelmet
+
+However, trading Pokemons in Pokemon go could be slightly tricky without having at least one close friend in the games who is also of a considerable level. Only then, you will be able to evolve your pokemon by trading.
+
+## Part 3: How to do the special trade?
+
+You need a Special Trade whenever you wish to trade a legendary Pokemon or a shiny Pokemon in Pokemon Go. These pokemon are very rare to find and hence you won’t want to trade these rare Pokemons very often, however, you can trade a rare Pokemon only once per day. To trade a rare Pokemon would also need to be a Great or Best friend, two of the highest levels of friendship in the game Pokemon go. To increase your friendship level you need to battle and trade more and more. It'll take quite a bit of time to reach that stature of a friendship level. This could cost as much as one million, this amount will however decrease with increasing friendship levels.
+
+## Final Words
+
+Trading in Pokemon go was introduced in recent times and had now become one of the most integral factors of the game. Pokemon go trading has changed the gaming trend. However, you could get an upper hand by using a virtual location changer such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) . This can help you to even trade pokemons seamlessly with friends staying at far-off places. Using the pokemon trade feature and evolving pokemons is a smart and handy way to progress further in the game. As a Pokemon go player, you must try it out!
+
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-seamless-video-transmission-success-in-facebook-messengers-iphoneandroid/"><u>[New] Seamless Video Transmission Success in Facebook Messengers, iPhone/Android</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-captivating-titles-easily-achievable-for-2024/"><u>[Updated] Captivating Titles, Easily Achievable for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastering-quick-retrieval-of-hidden-reddit-threads/"><u>[Updated] In 2024, Mastering Quick Retrieval of Hidden Reddit Threads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-visual-storytelling-crafting-impressive-imovie-video-intros/"><u>[Updated] In 2024, Visual Storytelling  Crafting Impressive iMovie Video Intros</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-complete-youtube-traffic-and-monetization-guidebook/"><u>2024 Approved  The Complete Youtube Traffic & Monetization Guidebook</u></a></li>
+<li><a href="https://program-issues.techidaily.com/apex-legends-engine-mishaps-heres-how-you-can-resolve-them/"><u>Apex Legends Engine Mishaps? Here's How You Can Resolve Them</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/asuss-high-tech-display-unveiled-the-mg28uq-monitor-insight/"><u>ASUS's High Tech Display Unveiled – The MG28UQ Monitor Insight</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-days-to-unveil-a-podcast-series-for-2024/"><u>Best Days to Unveil a Podcast Series for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/crucial-factors-to-check-before-opting-for-a-second-hand-ipad/"><u>Crucial Factors to Check Before Opting for a Second-Hand iPad</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-apple-iphone-7-plus-drfone-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-vivo-s17t-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Motorola G54 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On OnePlus 12? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-optimize-your-video-watching-enabledisable-pip-in-youtube-ios-for-2024/"><u>How to Optimize Your Video Watching  Enable/Disable PIP in Youtube iOS for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor X9b? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-oppo-a79-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Oppo A79 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-honor-v-purse-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Honor V Purse Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-tutorial-to-bypass-your-samsung-galaxy-a14-5g-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Samsung Galaxy A14 5G Face Lock?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Nokia C12 Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-pro-gif-maker-software-that-wins-every-time/"><u>In 2024, Pro-Gif Maker Software That Wins Every Time</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/itunes-connection-error-with-iphone-resolving-the-value-is-missing-issue/"><u>ITunes Connection Error with iPhone: Resolving the 'Value Is Missing' Issue</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/revamp-twitter-video-summary/"><u>Revamp Twitter Video Summary</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-htc-u23-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-perfect-blend-of-efficiency-and-artistry-in-apple-photography-apps-for-2024/"><u>The Perfect Blend of Efficiency and Artistry in Apple Photography Apps for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-antivirus-solutions-for-ultimate-computer-security/"><u>Top-Ranked Antivirus Solutions for Ultimate Computer Security</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/uninstall-discord-server-on-all-devices-for-2024/"><u>Uninstall Discord Server on All Devices for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Motorola Moto G04? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-tecno-pova-5-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Tecno Pova 5? Fixed | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+</ul></div>
