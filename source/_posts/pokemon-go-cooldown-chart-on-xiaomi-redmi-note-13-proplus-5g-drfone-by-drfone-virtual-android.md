@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone
-date: 2024-09-15T05:55:40.221Z
-updated: 2024-09-16T05:23:12.317Z
+date: 2024-09-25T22:27:10.624Z
+updated: 2024-09-29T18:24:34.339Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -31,13 +31,6 @@ When you get a soft ban, its duration is about 12 hours. In this period, any Pok
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
 The cooldown time is proportional to the distance covered by the player. So, when you perform an action marking our location, the cooldown time starts, and you must wait until the cooldown time is over. Here is a quick review of how long the cooldown you can expect.
@@ -58,15 +51,22 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
@@ -136,13 +136,6 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -162,6 +155,13 @@ Now, you can choose the location by entering its name in the search bar or coord
 When you reach the target location and move your pin, click the "Move Here" button.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Voila! You have teleported your location to the desired place.
 
@@ -198,6 +198,13 @@ In the following parts, we will discuss in detail the possible ways to catch Pok
 
 Keeping reading!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Check the IVs of Pokémon?
 
 Before you put effort into catching the Pokémon IV 100 map, you should have knowledge about which Pokémon has a stat of 100 IV. Following are the ways with which you can check the IVs of Pokémon in the Pokémon Go game.
@@ -207,6 +214,13 @@ Before you put effort into catching the Pokémon IV 100 map, you should have kno
 You can check the true percentages of your characters’ IVs in the gaming app itself. Now, if you use the appraisal system of the app, your team leader will show the stats of each Pokémon and can give it a star rating as well.
 
 Further, you can also click on the arrows on the left and right to see the stats of the next Pokémon.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.2 Know Pokémon IV using search filters
 
@@ -221,6 +235,13 @@ Now check the Pokémon by their star rating, as this is the easy way to know abo
 Since 100 IV Pokémon are so sought-after, catching them can be a tough job. Apart from using a **Pokémon Go 100 IV map**, here are other tips that can increase your chances to catch the perfect IVs Pokémon to some extent. A Weather Boosted wild catch can increase your odds to a 1 in 1,725 chance. But, this is still not so easy for a player.
 
 ![catch 100 iv pokemon](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - If you are fortunate, then you can end up [catching a “lucky” Pokémon](https://drfone.wondershare.com/virtual-location/pokemon-go-spoofing-ios.html). Though, the chances of a lucky Pokémon having 100 IV are 1 in 64 presently.
 - Although you get only one chance in 4,096 chances to catch the high-rank character in Pokemon Go and the probability of finding perfect IVs is 0.0244% from a wild catch, you can do some research to improve your chances.
@@ -260,13 +281,6 @@ Pokémon Go Map is another Pokémon Go 100 IV map for you if you want to quickly
 
 ![pokemap](https://images.wondershare.com/drfone/article/2023/05/pokemon-go-100-iv-map.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Further, the map shows the gym in red and Pokestops in blue by default. Therefore, it helps you to your route and trip to catch the Pokémon and to shop as well. Also, when you click on a particular Pokestop or Gym, this will show you the look of the stop, which you can share with other players.
 
 ![pokemongomap](https://images.wondershare.com/drfone/2023/virtuallocation/EX-Raid-Gym-Map-7.jpg)
@@ -278,13 +292,6 @@ You can also search for postcodes in Pokémon Go Map. But this map is not affili
 This is another popular directory of Pokémon that is solely dedicated to 100 IV Pokémon. Although its app is no longer available, you can access this Pokémon Go Map 100 IV by visiting its website. It would list all the recent spawning of the 100 IV Pokémon that you can further check. If you want, you can unlock the exact coordinates of that Pokémon with a single click.
 
 **Website:** [https://pokedex100.com/](https://pokedex100.com/)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. The IV 100 App
 
@@ -328,6 +335,13 @@ After connecting your iPhone to the application, go to its Teleport mode and ent
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Simulate your iPhone movement
 
 If you wish to evolve your Pokémon or simulate your movement, then use the one-stop or multi-stop mode of the application. You can drop different stops in a route, enter the number of times you want to cover it, and can even specify your preferred speed. The application also has a GPS joystick that would further help you simulate your movement realistically.
@@ -357,6 +371,13 @@ You can get dawn stone from the Digging Duo found near the Wild Area nursery. Yo
 ### Pokémon that Evolve with Dawn Stone
 
 As aforementioned, dawn stone is an evolution item that is used to evolve certain species of Pokémon. To evolve your Pokémon using Dawn Stone in Pokémon Sword and Shield, enter the bag menu and choose the "Other Items" tab. Hover on the Dawn Stone and select the "Use this item" option. Finally, select the Pokémon to evolve. These Pokémon that can be evolved using dawn stone include:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Kirlia
 
@@ -410,5 +431,20 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-easy-access-luxury-free-access-to-your-dreamset-of-50-banners/"><u>[New] 2024 Approved Easy-Access Luxury - Free Access to Your Dreamset of 50 Banners</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-hdri-vs-sdr-a-comparative-analysis-for-filmmakers-for-2024/"><u>[New] HDRI Vs. SDR A Comparative Analysis for Filmmakers for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-selecting-the-right-audio-for-your-unboxing-projects/"><u>[New] Selecting the Right Audio for Your Unboxing Projects</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-mastering-the-airwaves-dji-drones-and-social-media-live/"><u>2024 Approved Mastering the Airwaves DJI Drones and Social Media Live</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-speedy-transmission-techniques-ultimate-app-and-extension-guide/"><u>2024 Approved Speedy Transmission Techniques Ultimate App and Extension Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-for-writers-maximizing-benefits-and-minimizing-risks-as-a-freelancer/"><u>ChatGPT for Writers: Maximizing Benefits and Minimizing Risks as a Freelancer</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/cyberpunk-2077-sound-glitches-top-tips-and-tricks-to-restore-clear-audio-quality/"><u>Cyberpunk 2077 Sound Glitches - Top Tips and Tricks to Restore Clear Audio Quality</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-itel-a70-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Itel S23+? | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-triumph-of-nintendos-wii-u-understanding-its-success-story/"><u>The Triumph of Nintendo's Wii U: Understanding Its Success Story</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-fcp-x-post-production-mastering-the-art-of-chroma-keying/"><u>Updated 2024 Approved FCP X Post-Production Mastering the Art of Chroma Keying</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Infinix Smart 8 HD | Dr.fone
-date: 2024-09-17T01:41:59.727Z
-updated: 2024-09-22T14:06:16.898Z
+date: 2024-09-27T18:04:50.176Z
+updated: 2024-09-30T02:34:06.833Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -82,6 +82,13 @@ Next, click on “Get Started”; you will now be able to start the spoofing pro
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
@@ -99,6 +106,13 @@ You may now camp and keep hitting the Dratini nest so you can farm as many as po
 Camping and looking for other Pokémon in the area will help you cool down and therefore avoid being banned from the game for spoofing your iOS device.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This is how your location will be viewed on the map.
 
@@ -118,13 +132,6 @@ When you need to, you can teleport your device to an area where Dratini is popul
 
 The main goal that the designers of Pokémon Go had in mind for the past few years was to create a framework that prompts players to get off their loungers and go into the real world in search of Pokémon. If you are wondering why there are certain types of Pokémon enlisted as ‘blanks’ in your Pokedex and you haven’t yet found them, it’s probably because they are marked as ‘regional’ types. This means that these Pokémon are exclusively locked in select regions around the world. Don’t Panic! You don’t have to spend a boat load of cash in order to catch these special regional Pokémon as there are tricks you can apply to catch them without even stepping out of your kitchen.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: List of the regional Pokémon that have been announced
 
 Since the game publishers released these special regional Pokémon, they have been locked in their geo-specific locations around the world. There is a set or pair of regional Pokémon for each generation that has been introduced into the game. Regions may not be defined by real-time borders but are divided according to the type of the Pokémon and the place they are more likely to spawn.
@@ -138,13 +145,6 @@ If you are not a frequent traveler or know fellow trainers who are willing to tr
 List of different Regional Pokémon – Where and How to Catch them All!
 
 As of now, there are over 40 different regional Pokémon divided across generations that can be captured or hatched only in specific expanses of the world. There are of course occasional overlaps of Pokémon slipping out of their region and into other sectors. Let’s get into the list of all the region-specific Pokémon of different generations and where to find them.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Gen 1/ Kanto Pokémon
 
@@ -165,6 +165,13 @@ As of now, there are over 40 different regional Pokémon divided across generati
 ### Gen 3/ Hoenn Pokémon
 
 ![hoenn pokemon](https://images.wondershare.com/drfone/2020/202010/hoenn-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - **Tropius:** The Middle East and Africa.
 - **Torkoal:** Southeast Asia.
@@ -197,31 +204,11 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Heatmor:** Western Hemisphere. Switches with Durant.
 - **Durant:** Eastern Hemisphere. Switches with Heatmor.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to use Dr.Fone - Virtual Location to catch Regional Pokémon
 
 Catching regionally exclusive Pokémon requires you to travel to that location or region where the Pokémon is located, as it was originally intended by the game. Remember that Pokémon Go functions by tracking your location via GPS. Your GPS however, is a virtual means of tracking your IP address which can be faked using the right mock GPS and VPN. You can use a mock virtual location to fake your actual location and make it seem like you’re traveling around the world. The game itself would be tricked, allowing you to travel to regions and get your hands on those geo-exclusive Pokémon.
 
 To get the best out of your mock location and also to avoid the risk of hitting a light ban on your account, [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) by Wondershare has been reviewed as a Mock GPS you can easily rely on. It offers a number of features that can come in handy while faking your location such as adjusting the speed so that it may seem like you’re actually traveling, you can use a 360-degree virtual joystick for manual control over your movements and you can also select specific routes on the map on which you want your in-game avatar to move on.
-
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step-by-Step Tutorial
 
@@ -257,14 +244,14 @@ Once the location of your choice pops up, click ‘Move here’ in the pop-up bo
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
-
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
 
 ## Part 3: Tips to help catch Regional Pokémon
 
@@ -279,6 +266,13 @@ Catching regional Pokémon is just like catching any regular Pokémon. When they
 ## Conclusion
 
 The journey to completing your Pokedex may not be a short one as there are hundreds of Pokémon out there, and even hundreds more yet to be introduced into the game. Traveling the world in search of the rarest regional Pokémon is meant to be a fun and exciting experience, yet it may not be viable for some who wish to enjoy the game to the fullest. Utilizing a fake GPS and VPN can bridge the gaps in your Pokedex and keep the game fun for you at the same time. So keep playing and catching Pokémon as there are loads of other exciting installments yet to be introduced by Niantic in the future.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Here are Some of the Best Pokemon Discord Servers to Join On Infinix Smart 8 HD
 
@@ -332,11 +326,25 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 
 ![Discord Server Options](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3. Lastly, you just need to paste the invite link of the Pokemon Go Discord server and click on the “Join” button.
 
 ![Join a Server on Discord](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-7.jpg)
 
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Part 3: Some Popular Pokemon Discord Servers to Join**
 
@@ -380,6 +388,13 @@ From these Pokemon Go Discord servers, you can easily know the spawning or raid 
 
 ![click on menu](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 That’s a wrap, everyone! I’m sure that after reading this post, you would be able to search all kinds of Pokemon Discord servers. Apart from reliable Discord server directories, you can also browse various popular Pokemon Go Discord servers out there. Go ahead and search some other local and interesting Pokemon Discord servers on your own and use a tool like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS) to catch Pokemons remotely.
@@ -396,5 +411,26 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-add-timestamps-on-youtube-video-link-for-2024/"><u>[New] How to Add Timestamps on YouTube Video Link for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-lens-and-light-the-best-of-cinematographic-insights-24-edition/"><u>[New] Lens & Light The Best of Cinematographic Insights - '24 Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-highlighting-top-facebook-video-tools/"><u>[Updated] 2024 Approved Highlighting Top Facebook Video Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-displayinspector-critique-service-for-2024/"><u>[Updated] DisplayInspector Critique Service for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-explore-8-premium-websites-for-3d-text-psdfiles/"><u>[Updated] Explore 8 Premium Websites for 3D Text PSDFiles</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-guide-to-recovering-stopped-fb-livestreams/"><u>[Updated] Guide to Recovering Stopped FB Livestreams</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-prospective-software-for-precision-in-animated-3d-modeling/"><u>2024 Approved Prospective Software for Precision in Animated 3D Modeling</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-htc-u23-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/dissecting-the-prospects-of-active-presenter-for-techies-for-2024/"><u>Dissecting the Prospects of Active Presenter for Techies for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-asus-rog-phone-8-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Asus ROG Phone 8 on Windows??</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-meizu-21-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Meizu 21? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/win-centric-tips-for-switching-mkv-format-to-mp4/"><u>Win-Centric Tips for Switching MKV Format to MP4</u></a></li>
+</ul></div>
 
