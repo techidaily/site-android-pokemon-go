@@ -1,7 +1,7 @@
 ---
 title: In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Itel S23+ | Dr.fone
-date: 2024-09-24T17:07:35.820Z
-updated: 2024-09-30T06:10:00.011Z
+date: 2024-10-02T17:35:58.092Z
+updated: 2024-10-05T16:44:22.000Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -42,6 +42,13 @@ Keeping reading!
 
 Before you put effort into catching the Pokémon IV 100 map, you should have knowledge about which Pokémon has a stat of 100 IV. Following are the ways with which you can check the IVs of Pokémon in the Pokémon Go game.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.1 Check IVs within the app
 
 You can check the true percentages of your characters’ IVs in the gaming app itself. Now, if you use the appraisal system of the app, your team leader will show the stats of each Pokémon and can give it a star rating as well.
@@ -51,19 +58,6 @@ Further, you can also click on the arrows on the left and right to see the stats
 ### 2.2 Know Pokémon IV using search filters
 
 ![know pokemon iv](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-2.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Pokémon Go app has a search feature that you can use to know the exact IV of Pokémon. To do this, tap the search icon present at the top of your Pokémon menu. Now in the search bar, type the name of any Pokémon, say type “shiny”. This will show all the shiny mons with different star ratings.
 
@@ -83,13 +77,6 @@ Since 100 IV Pokémon are so sought-after, catching them can be a tough job. Apa
 Trading is one way to improve the chances of catching the 100 IV Pokémon Go map. Trading Pokémon between friends can increase the odds of finding perfect IVs. Moreover, it is a great way to boost IVs, as well. The odds depend on your level of friendship.
 
 ![trading increases the chance of perfect ivs](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - For example, with good friend trade, the chances are 1 in 3,375
 - With great friend trade, the chances are 1 in 2,744
@@ -131,13 +118,6 @@ You can also search for postcodes in Pokémon Go Map. But this map is not affili
 This is another popular directory of Pokémon that is solely dedicated to 100 IV Pokémon. Although its app is no longer available, you can access this Pokémon Go Map 100 IV by visiting its website. It would list all the recent spawning of the 100 IV Pokémon that you can further check. If you want, you can unlock the exact coordinates of that Pokémon with a single click.
 
 **Website:** [https://pokedex100.com/](https://pokedex100.com/)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. The IV 100 App
 
@@ -189,6 +169,13 @@ If you wish to evolve your Pokémon or simulate your movement, then use the one-
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/r2GiOQxwfQc" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps that actually work, you can easily catch these powerful Pokémon. Though, after noting their coordinates from a Pokémon IV 100 map, you would need to use a location spoofer app. I would recommend [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) since it is pretty easy to use and will not need any jailbreak access as well. You can spoof your iPhone location to anywhere you want and also just simulate your movements realistically.
@@ -214,6 +201,13 @@ Also, called the Ninja Pokemon, Greninja is Dark/ Water-type pokemon. Some peopl
 It makes use of very sharp throwing stars to slice its enemies. It features Torrent ability.
 
 There are various weaknesses of this pokemon which include “Fighting”, “Grass”, “Electric”, “Bug”, and “Fairy”.Its worth mentioning here that Greninja pokemon is the final evolution of Froakie.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: What are the Strengths of Greninja in Pokemon?
 
@@ -251,13 +245,6 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 
 ![Dr.fone teleport](https://images.wondershare.com/drfone/2020/Dr_fone-teleport-pic-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** In this manner, your location will now be understood or set by the system to “Italy”. You’ll see a pop-up box; you have to just click on “Move On”.
 
 ![Dr.fone move here](https://images.wondershare.com/drfone/2020/Dr_fone-move-here-pic-8.jpg)
@@ -271,10 +258,10 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 ![dr.fone location set](https://images.wondershare.com/drfone/2020/dr_fone-location-set-pic-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -317,13 +304,6 @@ No, you can spoof Pokémon Go with the best spoofing tools like PGSHarp and Dr.F
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This tool is safe and secure to use, plus it offers a real map interface, and it is difficult for Niantic to catch it.
 
 ## Part 2: How to Avoid Being Banned From Spoofing
@@ -343,18 +323,24 @@ The features and functions of PGSharp make it a safe spoofing app for Pokémon G
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now since you have PGSharp installed, you need to enable developer options on Android. For this, go to Settings > About Phone>build number.
 
 Tap seven times on the build number to enable the developer options. Now, in the developer option, enable “Allow mock locations” and under it select PGSharp app as preferred mock location app.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-6.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Remember to close all the background apps and launch PGSHARP. Now, you are ready to spoof Pokémon Go without getting banned. There will be no ban when using PGSharp.
 
@@ -370,21 +356,22 @@ If you want to catch a rare Pokémon with iPhone but don’t want to leave your 
 
 ![drfone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Dr.fone for iPhone is a safe and secure spoofing app that helps you catch Pokémon anywhere in the world.
 
 Plus, with this, you also do not need to jailbreak your device. It doesn’t breach your data and save you from the Pokémon ban too.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Spoof Your Location to a Certain Place
@@ -394,6 +381,13 @@ Plus, with this, you also do not need to jailbreak your device. It doesn’t bre
 With the Dr.Fone virtual location iOS, you can set your location to the desired place. You only need to choose the location on the map interface and click on the move here button. It is very easy-to-use app that a novice can also operate it easily.
 
 Apart from Pokémon Go, you can also spoof dating apps and can hide your current location.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Simulate a Route with Dr.Fone Virtual Location iOS
 
@@ -423,22 +417,19 @@ Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-dance-away-worries-with-these-20-soothing-country-hits-tiktok-edition-for-2024/"><u>[New] Dance Away Worries with These 20 Soothing Country Hits (TikTok Edition) for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-unveiling-youtubes-features-adding-images-to-videos-for-2024/"><u>[New] Unveiling YouTube's Features Adding Images to Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-a-concierge-guide-for-monitoring-facebook-livestreams-for-2024/"><u>[Updated] A Concierge Guide for Monitoring Facebook Livestreams for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-perfecting-picture-clarity-efficiently-eradicating-backgrounds/"><u>2024 Approved Perfecting Picture Clarity Efficiently Eradicating Backgrounds</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-bypass-issue-twitter-video-on-chrome-freeze/"><u>In 2024, Bypass Issue Twitter Video on Chrome Freeze</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Motorola Moto G84 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-oppo-a18-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Oppo A18 Lock Screen Password</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Meizu 21? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-and-easy-opening-mouse-properties-in-win11/"><u>Quick and Easy: Opening Mouse Properties in Win11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Tecno Camon 20? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-battle-of-giants-examining-how-googles-palm-2-stacks-against-openais-gpt-4/"><u>The Battle of Giants: Examining How Google's PaLM 2 Stacks Against OpenAI's GPT-4</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-achieve-higher-interactions-mastering-the-art-of-square-videos/"><u>[New] 2024 Approved Achieve Higher Interactions Mastering the Art of Square Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-breaking-boundaries-top-10-novel-facebook-memes/"><u>[New] In 2024, Breaking Boundaries Top 10 Novel Facebook Memes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-sound-sanitization-cleaning-up-your-online-footage/"><u>[Updated] In 2024, Sound Sanitization Cleaning Up Your Online Footage</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/enhancing-switch-gaming-with-top-cards/"><u>Enhancing Switch Gaming with Top Cards</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-dependable-are-ais-like-chatgpt-and-bard-when-it-comes-to-your-personal-finances/"><u>How Dependable Are AIs Like ChatGPT and Bard When It Comes to Your Personal Finances?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo Find X6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Motorola Edge 2023? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-digital-picks-free-alarm-ringtones-download/"><u>In 2024, Top Digital Picks Free Alarm Ringtones Download</u></a></li>
+<li><a href="https://extra-information.techidaily.com/palette-perfection-in-photoshop-top-3-efficient-techniques/"><u>Palette Perfection in Photoshop Top 3 Efficient Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-ways-to-reorder-youtube-watchlist-alphabetically/"><u>Swift Ways to Reorder YouTube Watchlist Alphabetically</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Nokia 130 Music? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-tecno-camon-20-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Tecno Camon 20 Pro 5G? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

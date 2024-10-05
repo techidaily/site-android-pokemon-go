@@ -1,7 +1,7 @@
 ---
 title: In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Itel A70 | Dr.fone
-date: 2024-09-22T19:47:29.468Z
-updated: 2024-09-29T18:03:28.973Z
+date: 2024-10-04T18:11:54.934Z
+updated: 2024-10-05T16:24:40.172Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -81,6 +81,13 @@ Unova Stone is a great evolution asset in Pokémon Go generation 5. You are alre
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4.** Finally, click "Move Here" on the dialog box that appears to move to the place you chose.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
@@ -118,10 +125,10 @@ To check if you have received your daily free boxes, you need to glimpse at your
 With your free boxes, you can obtain different items.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: The Latest Active Pokemon GO Promo Codes (January 2024)
@@ -138,6 +145,13 @@ With your **Pokemon Go promo code**, you can redeem it to get insightful items s
 
 ![redeem pokemon go promo codes on Android](https://images.wondershare.com/drfone/article/2022/07/pokemon-go-promo-codes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 1. Get to the shop bar**
 
 Firstly, in the map view, click on the menu icon. It displays various options. Click on the shop button.
@@ -153,13 +167,6 @@ Click on the **‘Redeem’** icon.
 **iOS devices --**
 
 ![sign with facebook or gmail](https://images.wondershare.com/drfone/reedem-pokemon-on-ios.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 1. Log in to the Pokemon Go official website**
 
@@ -200,13 +207,6 @@ First, download Dr.Fone - Virtual location from their [<u>official website</u>](
 
 ![connect your phone and start to change location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Using a USB cable, connect your iPhone to your computer system. Hit the **‘Get started’** button to continue.
 
 **Step 3. Search for a location**
@@ -246,10 +246,10 @@ Go to the **‘Setting’** menu, which is usually at the top right corner of y
 ![download the fake gps location on your Android](https://images.wondershare.com/drfone/article/2019/09/pokekom-go-teleport-safely-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Go to the Google Play Store and download Fake GPS Location to your Itel A70. Install it and allow it to run on your Itel A70.
@@ -259,10 +259,10 @@ Go to the Google Play Store and download Fake GPS Location to your Itel A70. Ins
 ![wa stickers](https://images.wondershare.com/drfone/article/2019/09/pokekom-go-teleport-safely-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 To get the Mock Location option, you go back to the **‘Settings’** menu. Scroll down search for **‘Allow Mock Locations’** and turn it on when you find it. Allow mocking of the Fake GPS app.
@@ -276,6 +276,19 @@ Go to your Fake GPS application and search for a preferred location. To initiate
 ![search and confirm your new location](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-fake-gps-android-7.jpg)
 
 Lastly, head back to your Pokemon Go app. There, you can see your new location cast.
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -294,13 +307,6 @@ There are a limited number of Rare Candy in Pokemon Go Fire Red. However, you ca
 When you use a Rare Candy, you get enough Exp. Points to move to the next level. This means that it is best to use them for getting to the next level, especially when it becomes too challenging. Although you get to the next level, you will not earn any Effort Value Points, which will make your Pokemon weaker than it would have been if you had leveled up through training.
 
 ![Pokemon Rare Candy Trainer Card](https://images.wondershare.com/drfone/2020/Rare-Candy-Cheat-Fire-Red-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to get rare candy in Pokemon Go Fire Red?
 
@@ -353,6 +359,13 @@ You would have to visit certain locations in order to get Pokemon Go Rare Candy 
 - When you get to the Safari Zone Warden’s House, check behind the boulder.
 - You may also use Meowth or any other Pokemon that has Pickup abilities and try your luck.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Getting Pokémon Go Fire Red Rare Candy with cheat codes
 
 The best way to go about this is to use a Pokemon Go Fire Red emulator on your computer and then use the fire red chat code shown below and follow the simple instructions.
@@ -362,13 +375,6 @@ Look for the Pokemon Go Fire Red codes posted on various user sites.
 Use GameShark or My Boy game emulator to install the codes and then get the Rare Candy that you need.
 
 The cheat code for Pokemon Go Fire Red Candy is:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How do you get unlimited rare candies in Pokemon Red?
 
@@ -402,13 +408,6 @@ Wait for it to be activated and then save it.
 
 ![Enter details of the cheat code](https://images.wondershare.com/drfone/2020/my-boy-pokemon-fire-red-cheat-codes-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4 –** Enter the Pokéstop and deactivate the cheat code.
 
 **Step 5 –** Go to your computer and type in “PC > Item Storage”.
@@ -418,6 +417,13 @@ Wait for it to be activated and then save it.
 **Step 7 –** check if you have double Rare Candy entries in your storage. If they are not duplicated, then the cheat has worked as it should. If they are duplicated, then you have to close the game and redo all the steps above.
 
 **Step 8 –** Now exit and then go back to your Item Storage, where you can withdraw as many Pokemon Go Fire Red Rare Candies as you would want. Simply pick a number between 001 and 999, but never use the down arrow.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## In conclusion
 
@@ -437,20 +443,21 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-empathy-on-screen-connecting-with-youtube-subscribers/"><u>[Updated] Empathy on Screen Connecting With YouTube Subscribers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-how-to-download-instagram-videos-on-pc-and-mac/"><u>[Updated] In 2024, How to Download Instagram Videos on PC and Mac</u></a></li>
-<li><a href="https://fox-that.techidaily.com/a-users-guide-to-iphone-resets-and-restorations-without-itunes-involvement/"><u>A User's Guide to iPhone Resets and Restorations without iTunes Involvement</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For OnePlus 11 5G | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-update-fresh-drivers-for-epson-wf-3520-printers-compatible-with-windows-operating-systems/"><u>Easy Update: Fresh Drivers for Epson WF 3520 Printers Compatible with Windows Operating Systems</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi K70 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Lava Yuva 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-7-fixes-to-no-gps-showing-approximate-location-on-apple-iphone-se-waze-drfone-by-drfone-virtual-ios/"><u>In 2024, 7 Fixes to No GPS - Showing Approximate Location on Apple iPhone SE Waze | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Itel P55 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia C110 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/nostalgic-audio-alerts-reinstating-classic-windows-sound-effects-on-your-windows-11-pc/"><u>Nostalgic Audio Alerts: Reinstating Classic Windows Sound Effects on Your Windows 11 PC</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/secure-download-of-canon-printer-mg3620-drivers-quick-guide/"><u>Secure Download of Canon Printer MG3620 Drivers - Quick Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-secure-recording-methods-for-sensitive-whatsapp-discussions-for-2024/"><u>[New] Secure Recording Methods for Sensitive WhatsApp Discussions for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722967936606-dell-g7-users-discover-the-fastest-way-to-get-latest-drivers/"><u>Dell G7 Users, Discover the Fastest Way to Get Latest Drivers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-correct-bad-image-errors-for-windows-11-users-a-comprehensive-fix/"><u>How to Correct 'Bad Image' Errors for Windows 11 Users: A Comprehensive Fix</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Motorola Defy 2? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Motorola Edge 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/live-action-gaming-battles-online-watch-league-of-legends-fortnite-and-overwatch-races/"><u>Live Action Gaming Battles Online - Watch League of Legends, Fortnite, and Overwatch Races!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mjpeg-wmv-gratiswmv-to-mjpeg/"><u>MJPEG 형식으로 WMV 파일을 바이트 스트림로 전환하기 - GratisオンラインWMV to MJPEGコンバーター</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/nokia-c300-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nokia C300 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-reviews-comprehensive-gadget-insights-t17239724901692/"><u>Tom's Tech Reviews: Comprehensive Gadget Insights</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-the-cost-benefit-of-joining-minecraft-realms/"><u>Understanding the Cost-Benefit of Joining Minecraft Realms</u></a></li>
 </ul></div>
 

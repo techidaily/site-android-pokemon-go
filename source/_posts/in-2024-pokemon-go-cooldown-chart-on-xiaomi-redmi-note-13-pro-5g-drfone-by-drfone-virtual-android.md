@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Xiaomi Redmi Note 13 Pro 5G | Dr.fone
-date: 2024-09-26T01:37:46.330Z
-updated: 2024-09-30T00:36:17.855Z
+date: 2024-09-28T18:14:05.343Z
+updated: 2024-10-05T17:32:53.523Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,14 +29,14 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -57,6 +57,13 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -105,10 +112,16 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Dropping a ball
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. What happens if you break the cooldown of Pokémon Go?
@@ -146,13 +159,6 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -168,6 +174,13 @@ Voila! You have teleported your location to the desired place.
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -204,13 +217,6 @@ Before taking any drastic measures, make sure that the location services on your
 
 ![enable location services iphone](https://images.wondershare.com/drfone/2020/pokemon/enable-location-services-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After that, you can restart the app and check if it would fix the GPS Pokemon Go issue or not.
 
 ### Fix 2: Grant the Pokemon Go app Location Access
@@ -228,10 +234,16 @@ To fix these Pokemon Go GPS issues, you can go to your phone’s Settings > Priv
 ![iphone precise location](https://images.wondershare.com/drfone/2020/pokemon/iphone-precise-location.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4: Step Into an Open Area
@@ -243,13 +255,6 @@ If you're currently in an area with poor GPS reception due to buildings or trees
 Lastly, you can just reload the Pokemon Go app or restart your iPhone if you still get the Pokemon Go no GPS signal. You can just go to the app drawer and swipe up the Pokemon Go card to close the app.
 
 ![close pokemon go app](https://images.wondershare.com/drfone/2020/pokemon/close-pokemon-go-app.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can also press the Power or the Side + Volume Up/Down keys (for newer models) to get the power option. Swipe it to turn off your device and press the Power/Side key afterward to restart your phone.
 
@@ -351,6 +356,13 @@ The spawn points of regional Pokemon vary significantly between creatures. Some 
 
 While they’re categorized as available on the entire continent, it’s worth noting that some Pokemon can only be found in particular regions like France or Russia. To learn more about each, you’ll need to find information about their regional distribution.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4. Learning About the Regional Pokemon Distribution
 
 With almost 60 Pokemon GO regional exclusives in 2024, keeping track of where each creature spawns can be a nightmare, especially when some Pokemon can only be found in tiny and specific areas. However, you don’t necessarily have to remember the location of each regional Pokemon, as there are other ways of learning about their distribution.
@@ -364,10 +376,10 @@ The primary method of acquiring information that most players rely on is keeping
 Official announcements are another way to learn more about Pokemon GO’s regional exclusives. Keeping track of these will help you track regional spawn points and special events. Enabling notifications from the game on your mobile device can also be particularly helpful in keeping track of announcements.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5. How to Quickly Travel to Different Regions
@@ -394,10 +406,10 @@ Using Dr.Fone to change your virtual location is remarkably straightforward and 
 ![select a new virtual location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 10. Change your virtual location by clicking the **Move Here**
@@ -462,24 +474,18 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-breathe-life-into-tweets-animating-insta-story-texts/"><u>[New] 2024 Approved Breathe Life Into Tweets Animating Insta Story Texts</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-expert-insights-optimized-video-downloading-software-for-2024/"><u>[New] Expert Insights Optimized Video Downloading Software for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-finding-value-in-cheap-gopro-sales-online-for-2024/"><u>[Updated] Finding Value in Cheap GoPro Sales Online for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expanding-creative-horizons-in-obs-studio-using-luts/"><u>2024 Approved Expanding Creative Horizons in OBS Studio Using LUTs</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/comprehensive-repair-instructions-for-handling-win32-kernel-mode-violation-0xc0000098/"><u>Comprehensive Repair Instructions for Handling Win32 Kernel-Mode Violation 0xC0000098</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-f15-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Samsung Galaxy F15 5G Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Oppo A56s 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Lava Blaze Curve 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Sony Xperia 1 V? | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-free-mkv-trimming-software-top-10-picks/"><u>New 2024 Approved Free MKV Trimming Software Top 10 Picks</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/step-by-step-screen-and-video-capture-on-android-for-2024/"><u>Step-by-Step Screen and Video Capture on Android for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/streaming-quality-comparison-obs-against-shadowplay-for-2024/"><u>Streaming Quality Comparison OBS Against ShadowPlay for 2024</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-photos-from-tecno-spark-20-pro-by-fonelab-android-recover-photos/"><u>Undelete lost photos from Tecno Spark 20 Pro.</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-unleash-potential-making-your-vids-go-viral/"><u>[New] 2024 Approved Unleash Potential Making Your Vids Go Viral</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-essential-online-locations-alarm-ringtones-collection-for-2024/"><u>[Updated] Essential Online Locations Alarm Ringtones Collection for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Huawei Nova Y91? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-diy-tips-for-affordable-youtube-introend-videos/"><u>In 2024, DIY Tips for Affordable YouTube Intro/End Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/powerdirectors-complete-blueprint-for-success-for-2024/"><u>PowerDirector's Complete Blueprint for Success for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-for-your-next-chat-companion-the-ai-revolution/"><u>Prepare for Your Next Chat Companion: The AI Revolution</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/securely-wipe-out-files-and-directories-discover-the-power-of-stellar-file-eraser-5-for-windows-systems/"><u>Securely Wipe Out Files and Directories: Discover the Power of Stellar File Eraser 5 for Windows Systems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-pathway-to-popularity-strategies-for-soaring-viewership-for-2024/"><u>The Pathway to Popularity Strategies for Soaring Viewership for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On ZTE Nubia Z60 Ultra | Dr.fone
-date: 2024-09-12T04:00:32.133Z
-updated: 2024-09-16T01:33:27.799Z
+date: 2024-10-04T16:15:54.995Z
+updated: 2024-10-05T17:22:19.167Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -55,6 +55,13 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Best AR Games like Pokémon GO
 
 If you want a game like Pokémon Go but want a different storyline and characters, we will list down AR games that you can try to play yourself. In addition, you can check other similar AR games below.
@@ -64,13 +71,6 @@ If you want a game like Pokémon Go but want a different storyline and character
 If you like zombie movies, this game is the right one to download. “The Walking Dead: Our World” is a game where you can play as a zombie hunter, explore the environment, and save the world. This game uses the player’s GPS location, where they release new challenges that can be found in your town or area. This game also allows users to play and shoot zombies with their friends or group where you can reap big rewards.
 
 ![the walking dead: our world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US)_
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160)_
@@ -150,10 +150,10 @@ The Witcher: Monster Slayer is a game that will be a big hit for gamers who like
 ![the witcher: monster slayer](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-15.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.spokko.witchermonsterslayer&hl=en&gl=US)_
@@ -167,13 +167,6 @@ If you love going for walks, then The Walk is the game that you should try to el
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.thewalk2&hl=en&gl=US)_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _4\. Minecraft Earth_
 
 If you have played Minecraft or just have the knack for creating worlds, then you should download the game Minecraft Earth. Minecraft Earth is a spinoff of the game Minecraft. In this game, you can create new worlds, explore the vast world of Minecraft and collect resources that you can use to build your world. Aside from that, you can also collaborate with different builders in the game to create magical and even models of different landmarks in the world. It is a free and fun game to play and they track your location and show you the different worlds that were created in your area.
@@ -181,6 +174,13 @@ If you have played Minecraft or just have the knack for creating worlds, then yo
 ![minecraft earth](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-11.jpg)
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE)_
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Pikmin Bloom
 
@@ -279,6 +279,13 @@ You can now launch Pokemon Go or any other GPS-based app to check the spoofed lo
 
 ![virtual location 7](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** Keep in mind the cooldown duration before changing your location to ensure your account won’t get banned by Niantic while using the location spoofer. For instance, wait for a few minutes and only change your location realistically.
 
 ## Part 3: How to Spoof your ZTE Nubia Z60 Ultra Device’s Location for Pokemon Go?
@@ -310,6 +317,13 @@ Once the app has been downloaded, you can again go to your phone’s Settings > 
 That’s it! Now you can launch the mock location app and enter the address or coordinates of any target location. You can further adjust the pin and drop it anywhere you like to spoof the ZTE Nubia Z60 Ultra device’s location.
 
 ![fake location on lexa](https://drfone.wondershare.com/2020/fake-location-on-lexa.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your iPhone location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your iPhone anywhere you like and that too without jailbreaking your phone.
 
@@ -374,6 +388,13 @@ For teleportation press the third button on the upper right corner. Also, type t
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5: Movement to the teleport**
 
 Press the move here button to move to the teleported location that has been selected.
@@ -386,6 +407,13 @@ The location will be locked on the iPhone and it will display the same location 
 
 ![virtual location 6](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: 3 Ways to fix Pokémon GPS not working on Android devices
 
 The android devices might also get into an issue that is under discussion. To make sure that the problem is fixed it is advised to follow the 3 most important ways that are discussed in this section.
@@ -396,31 +424,24 @@ Swipe down to access the notification panel of the program. Make sure that the l
 
 ![Turn on location service andriod](https://drfone.wondershare.com/2020/Turn_on_location_service_andriod.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 2: Restart the ZTE Nubia Z60 Ultra device
 
 This is another important way to get the GPS signal as it will refresh the phone. Just long-press the power button and select the option of restart from the screen that appears.
 
 ![Restart android phone](https://drfone.wondershare.com/2020/Restart_android_phone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Update the Application
 
 This is another important aspect. There are auto-updates disabled by some users and this can lead to a problem if the application is not updated. To avoid this scenario it is advised not to update just the Pokémon Go app but every application to overcome the issue in full. Just visit Play store > my apps and games > update all.
 
 ![Update pokemon go android](https://drfone.wondershare.com/2020/Update_pokemon_go_android.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -438,5 +459,24 @@ The Dr. Fone Virtual location is the best and the most advanced program that can
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-gopro-hero5-black-vs-garmin-virb-ultra-30-which-one-is-better/"><u>[New] GoPro Hero5 Black VS Garmin Virb Ultra 30 Which One Is Better?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-the-social-media-seas-to-boost-follower-count/"><u>[New] In 2024, Navigating the Social Media Seas to Boost Follower Count</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-camera-mastery-films-best-practices-unveiled/"><u>[New] Top Camera Mastery Film's Best Practices Unveiled</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-5-best-ps1-emulators-for-pc/"><u>[Updated] 2024 Approved 5 Best PS1 Emulators for PC</u></a></li>
+<li><a href="https://change-location.techidaily.com/all-you-need-to-know-about-mega-greninja-for-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/budget-friendly-obs-optimization-techniques-for-2024/"><u>Budget-Friendly OBS Optimization Techniques for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-top-reasons-why-enterprises-are-cutting-off-chatgpt-access/"><u>Discover the Top Reasons Why Enterprises Are Cutting Off ChatGPT Access</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Motorola Moto G14? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/iphone-upgrade-alert-how-to-get-the-pre-release-version-of-ios-16-installed-today-though-it-may-be-wise-to-wait/"><u>IPhone Upgrade Alert! How To Get the Pre-Release Version of iOS 16 Installed Today (Though It May Be Wise To Wait)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/king-the-mysteries-behind-youtube-wealth-ajey-nagar-edition-for-2024/"><u>Unlocking the Mysteries Behind YouTube Wealth - Ajey Nagar Edition for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-tecno-pova-5-pro-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Tecno Pova 5 Pro? Fixed | Dr.fone</u></a></li>
+</ul></div>
 
