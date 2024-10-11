@@ -1,7 +1,7 @@
 ---
 title: In 2024, What is the best Pokemon for pokemon pvp ranking On Xiaomi 13T? | Dr.fone
-date: 2024-10-01T16:03:55.302Z
-updated: 2024-10-05T16:31:08.169Z
+date: 2024-10-04T17:14:01.570Z
+updated: 2024-10-10T20:05:08.259Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -45,13 +45,6 @@ Sure. Catching Pokemon in the wild and visiting nearby PokeStops are incredibly 
 
 Pokemon Go is holding various tournaments from time to time. However, some of these events require players to garner a specific rank or rating in Pokemon Go PvP battles. That means you cannot join if you don’t meet a particular rank level required in the game. Therefore, strive harder to participate in PvP games and win as many duels as you can. Your Pokemon PvP ranking is not just a mere group of numbers. It actually defines your eligibility to join prestigious Pokemon Go events. Hence, take it very seriously.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2. How to Get Started With Pokemon Go PvP Rank Battles?
 
 Go Battle League is the most basic type of Pokemon Go PvP battle. It is available to level 10 (and above) trainers whose account is in good standing. Generally, the Go Battle League comes in three game formats, namely Great League, Ultra League, and Master League. You can participate in any of them if you have the required type of Pokemon and amount of Combat Power. On a regular day, you’re given a chance to play at least five sets of battles for each league. Take advantage of this opportunity and win as many battles as you can to increase your rank in no time. Yes. Aside from special prizes, you also level up in every battle you win. That’s why you should prepare a lot and make sure to beat your opponent every chance you get.
@@ -73,6 +66,13 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 
 - **Step 5:** Finalize your three-member Pokemon team and start battling against another trainer you match with.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3. Explained: Pokemon PvP Ranking in Go Battle League
 
 The lowest Pokemon PvP ranking in the Go Battle League is Rank 1. The ranks go higher as the player accomplishes more battles going forward. However, you have to win each of them if you wish to increase your Battle Ratings quickly. It is important to keep tabs on your ratings because it’s among the crucial components of Pokemon PvP ranking.
@@ -84,10 +84,10 @@ Go Battle League features a total of 24 ranks starting from Rank 1. The last fou
 For your information, the Pokemon PvP ranking in the Go Battle League refreshes every season. That means the participants will all go back to Rank 1 once the new season approaches and sets in. Don’t worry. It’s not a big deal. If you’re able to make it last season, you can absolutely do it again one more time. Just stick to your original strategy and be patient at every turn. That’s how you do it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Tips For Winning Pokemon Go PvP Rank Battles
@@ -140,24 +140,18 @@ There is a possibility that the Wi-Fi is not working and this is the main reason
 
 ![Turn On Wi Fi iPhone](https://drfone.wondershare.com/2020/Turn_On_Wi-Fi_iPhone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fixture 2: Reload the game
 
 This is another important aspect that should be taken care of if the Pokémon Go GPS not working. Reloading the game makes sure that it is refreshed and this also leads to issue fixture when it comes to GPS signals. Do this by simply pressing the home button and returning to the home screen. Open a new application or do something else for the moment. Enter the multitasking screen by double-pressing the home screen button. Swipe to the Pokémon Go card and reenter the game.
 
 ![Reload game iPhone](https://drfone.wondershare.com/2020/Reload_game_iPhone.jpg)
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fixture 3: Restart the Phone
 
@@ -166,13 +160,6 @@ Press and hold the volume button and the side button. The power off slider appea
 ## Part 2: The best GPS Spoofer to be used
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the most used GPS spoofer that will make your life easy when it comes to Pokémon Go. The program is the best and it also makes sure that the GPS related issues are resolved with care and perfection. With the best technology and professional development, this program has been at the forefront of GPS spoofing. If the GPS signal not working then it is advised to make sure that Dr. Fone is used to get the work done with ease. There are several features of the program that will make sure that you get a step ahead of your Pokémon Go competitors.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to use Dr. Fone Virtual Location
 
@@ -208,13 +195,6 @@ Press the move here button to move to the teleported location that has been sele
 
 ![virtual location 5](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6: Validate the Location**
 
 The location will be locked on the iPhone and it will display the same location as on the program. This also completes the process in full.
@@ -222,15 +202,22 @@ The location will be locked on the iPhone and it will display the same location 
 ![virtual location 6](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: 3 Ways to fix Pokémon GPS not working on Android devices
 
 The android devices might also get into an issue that is under discussion. To make sure that the problem is fixed it is advised to follow the 3 most important ways that are discussed in this section.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: Turn on Location Services
 
@@ -260,19 +247,6 @@ With the launch of the Pokémon Go battle league, the trainer battles are seen a
 
 ![Pokemon go hacks 1](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: What is the Point of Trainer Battles in Pokémon Go?
 
 The best part is that the teams are assembled by the trainers themselves. The point of the trainer battles is that a winning team is chosen while competing with the other players. The trainer battles Pokémon Go also lets the trainers choose the best players that would charge and power up Pokémon. Different spoils are embedded within the trainer battles and they all are worth trying. Once the trainer battles he is rewarded three times per day as a normal team leader. As an AI team leader, you can get the reward once every day.
@@ -300,15 +274,28 @@ The rematches that are done in the trainer battles also account for the leveling
 ![Pokemon go hacks 3](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Does CP Matter in Trainer Battles?
 
 In Pokémon trainer battle it indeed matters and this is one of the basic phenomena that will take you and your team to the next level. The CP stands for combat power and it means the power of your Pokémon. As a trainer when you battle more and more the XP increases and the CP as well. This CP will also help you to get a step ahead of others in terms of Pokémon that you own. The candies are used to make sure that the CP of the Pokémon is increased. It also means that you get the best Pokémon on the battlefield that will be able to counter offense the other Pokémon on the field. There are two ways to get higher CP. Firstly you can evolve a Pokémon and secondly you can also power up an existing Pokémon. Both are the choices and the result is completely up to you. Use candies and power up your Pokémon to a higher level. It will also ensure that you get the best results on the battlefield. The weight and the size of the Pokémon also affect the CP score so you need a Pokémon that is both agile and lightweight to get the best results.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Tips to level up Pokémon before doing the Pokémon go trainer battles
 
@@ -333,6 +320,19 @@ You need to make sure that the virtual location is clicked from all options and 
 In the next window click center on to get the accurate location.
 
 ![virtual location 3](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Teleport**
 
@@ -378,24 +378,14 @@ Dr. Fone is perhaps the best and the most used program for the Pokémon trainer 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-the-best-10-final-cut-pro-plugins-ever/"><u>[New] The Best 10 Final Cut Pro Plugins Ever</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-cuddly-creatures-galore-best-android-wildlife-titles/"><u>[Updated] 2024 Approved Cuddly Creatures Galore Best Android Wildlife Titles</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-expert-tips-for-selecting-lenses-as-a-video-blogger/"><u>[Updated] 2024 Approved Expert Tips for Selecting Lenses as a Video Blogger</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Itel P55 5G | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-infinix-smart-8-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For OnePlus 11R? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Oppo A79 5G? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-motorola-moto-e13-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Motorola Moto E13 IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-that.techidaily.com/navigating-imessage-interactions-recognizing-when-someone-has-blocked-you/"><u>Navigating iMessage Interactions: Recognizing When Someone Has Blocked You</u></a></li>
-<li><a href="https://extra-support.techidaily.com/pinnacle-vision-studio-review-yearly-update-for-2024/"><u>Pinnacle Vision Studio Review Yearly Update for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Lava Storm 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Tecno Spark 10 4G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-art-of-photo-edits-a-newcomers-guide-to-lunapic/"><u>The Art of Photo Edits A Newcomer’s Guide to LunaPic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-93-spanish-travel-terms-to-enhance-your-global-experienences/"><u>The Best 93 Spanish Travel Terms to Enhance Your Global Experienences</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-why-microsoft-edge-is-my-go-to-browser-choice-on-android/"><u>Unveiling Why Microsoft Edge Is My Go-To Browser Choice on Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ngage-in-enlightening-youtube-exchanges/"><u>[New] Engage in Enlightening YouTube Exchanges</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-simple-snippets-for-iphone-sound-capture-for-2024/"><u>[New] Simple Snippets for iPhone Sound Capture for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oppo-a1-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Oppo A1 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/dynamic-background-adaptation-in-microsoft-teams-beforeafter-calls-for-2024/"><u>Dynamic Background Adaptation in Microsoft Teams Before/After Calls for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Tecno Pop 8? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-oppo-find-x6-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Oppo Find X6 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-hands-on-with-avs-video-editor-a-thorough-review-and-guide-for-2024/"><u>Updated Hands-On with AVS Video Editor A Thorough Review and Guide for 2024</u></a></li>
 </ul></div>
 
