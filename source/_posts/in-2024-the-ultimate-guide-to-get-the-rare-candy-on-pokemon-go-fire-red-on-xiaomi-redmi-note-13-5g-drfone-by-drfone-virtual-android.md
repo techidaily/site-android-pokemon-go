@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Xiaomi Redmi Note 13 5G | Dr.fone
-date: 2024-10-21T22:28:09.562Z
-updated: 2024-10-22T16:30:03.549Z
+date: 2024-10-27T19:42:06.780Z
+updated: 2024-10-28T19:29:21.919Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -27,16 +27,16 @@ When you use a Rare Candy, you get enough Exp. Points to move to the next level.
 
 ![Pokemon Rare Candy Trainer Card](https://images.wondershare.com/drfone/2020/Rare-Candy-Cheat-Fire-Red-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to get rare candy in Pokemon Go Fire Red?
 
 There are three main ways in which you can get Rare Candy in Pokemon Go Fire Red. The first one is using a location spoofer to catch rare candy without moving. The second one involves going to areas where you can find the Rare Cady and the last one involves using a Fire Red Rare Candy Code.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Getting Pokémon GO Fire Red Rare Candy without Walking/Moving
 
@@ -62,17 +62,45 @@ With Dr.Fone - Virtual Location launched on your computer, connect your smartpho
 
 ![search for the required location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Teleport to Targeted Location**
 
 The cursor on the map screen will move to the location you have entered on the map. If you want to move there when spoofing your location, click "Move Here." It will change the location on the map screen and on your device to the location you entered. You can confirm it by accessing your smartphone and opening a map application.
 
 ![move to location virtually](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Simulate Movement and Configure Route**
 
 To simulate movement when spoofing your location, you can select either “One-Stop Route” or “Multi-Stop Route.” Both are the third and fourth options, respectively, on the toolbar near the top right corner. Now, choose the stop points, type of trip, walking speed, and other parameters. Once you are done, tap "Move Here" or "Start Moving" to initiate the movement.
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Getting Pokemon Go Fire Red Rare Candy Normally
 
@@ -84,6 +112,13 @@ You would have to visit certain locations in order to get Pokemon Go Rare Candy 
 - Take a journey to the Ghost Tower
 - When you get to the Safari Zone Warden’s House, check behind the boulder.
 - You may also use Meowth or any other Pokemon that has Pickup abilities and try your luck.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Getting Pokémon Go Fire Red Rare Candy with cheat codes
 
@@ -170,13 +205,6 @@ Read on to understand the reasons why your device is unable to run the iPogo mod
 - Another plausible reason could be that your iPogo application has not been properly installed. It is widely agreed upon that iPogo is a difficult app to install as it involves going through complex steps making it easier for mistakes to be made, eventually leading to a complete breakdown of the software.
 - Since installing iPogo is a cumbersome process, players would often resort to using downloading hacks to get the job done faster. However, not all such hacks can be relied upon as they may end up jail breaking your device or make your version of the app even more unstable.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Some Easy Solutions for fixing the “iPogo not working” issue
 
 It is often said that short cuts can cut you short or in this case, hacked! Disrupting the framework of your device is not price you should pay for enjoying the game at its best. Although, there are other safer and more reliable solutions to making the iPogo app run better on your iOS device. Let’s take a brief peak at some of them.
@@ -194,29 +222,9 @@ It is often said that short cuts can cut you short or in this case, hacked! Disr
 
 **Note:** All of these installation methods have specific varied requirements which must be checked appropriately.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: A better alternative for iPogo - virtual location
 
 If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Primary Features of Dr. Fone
 
@@ -246,18 +254,18 @@ You will notice a map on the screen now. As it comes, you got to click on ‘Cen
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Enable Teleport Mode**
 
 Now, you are required to turn on the ‘teleport mode’. To do this, simply click on the first icon on the upper right hand corner. After that, enter the location you want on the upper right field and then hit ‘Go’.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5: Start Teleporting**
 
@@ -274,13 +282,6 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 ## How Can I Catch the Regional Pokémon without Traveling On Xiaomi Redmi Note 13 5G
 
 The main goal that the designers of Pokémon Go had in mind for the past few years was to create a framework that prompts players to get off their loungers and go into the real world in search of Pokémon. If you are wondering why there are certain types of Pokémon enlisted as ‘blanks’ in your Pokedex and you haven’t yet found them, it’s probably because they are marked as ‘regional’ types. This means that these Pokémon are exclusively locked in select regions around the world. Don’t Panic! You don’t have to spend a boat load of cash in order to catch these special regional Pokémon as there are tricks you can apply to catch them without even stepping out of your kitchen.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: List of the regional Pokémon that have been announced
 
@@ -315,6 +316,19 @@ As of now, there are over 40 different regional Pokémon divided across generati
 ### Gen 3/ Hoenn Pokémon
 
 ![hoenn pokemon](https://images.wondershare.com/drfone/2020/202010/hoenn-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - **Tropius:** The Middle East and Africa.
 - **Torkoal:** Southeast Asia.
@@ -353,13 +367,6 @@ Catching regionally exclusive Pokémon requires you to travel to that location o
 
 To get the best out of your mock location and also to avoid the risk of hitting a light ban on your account, [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) by Wondershare has been reviewed as a Mock GPS you can easily rely on. It offers a number of features that can come in handy while faking your location such as adjusting the speed so that it may seem like you’re actually traveling, you can use a 360-degree virtual joystick for manual control over your movements and you can also select specific routes on the map on which you want your in-game avatar to move on.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step-by-Step Tutorial
 
 You can follow these easy steps to set up and access your Dr.Fone Virtual Location in an instant and teleport to anywhere in the world.
@@ -375,13 +382,6 @@ Download Dr.Fone – Virtual Location. Install and launch the program. Click ‘
 Get the USB cable and connect your iPhone to the PC. And then click ‘Get Started’ to proceed.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Check the Location**
 
@@ -431,20 +431,20 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-visualverve-tips-for-resizing-images-in-instagram/"><u>[New] VisualVerve Tips for Resizing Images in Instagram</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-first-timers-roadmap-earning-money-from-periscope-chats/"><u>[Updated] First-Timer's Roadmap Earning Money From Periscope Chats</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/batch-conversion-transforming-aac-files-into-m4a-format-made-easy/"><u>Batch Conversion: Transforming AAC Files Into M4A Format Made Easy</u></a></li>
-<li><a href="https://article-helps.techidaily.com/comedy-in-code-transformative-steps-for-tailoring-gif-laughter/"><u>Comedy in Code Transformative Steps for Tailoring GIF Laughter</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Itel A05s | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-transforming-images-on-snapchat-an-editors-playbook/"><u>In 2024, Transforming Images on Snapchat An Editor's Playbook</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-the-market-chatgpt-for-profit-maximization/"><u>Mastering the Market: ChatGPT for Profit Maximization</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/navigating-new-innovations-with-toms-computer-and-hardware-reviews/"><u>Navigating New Innovations with Tom's Computer and Hardware Reviews</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rapid-driver-management-in-winoses/"><u>Rapid Driver Management in WinOSes</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/transform-your-workstation-the-highly-rated-samsung-pixel-dense-viewfinity-s9-monitor-27-ips-display-and-integrated-4k-camera-at-an-unmatchable-899-price-se39/"><u>Transform Your Workstation: The Highly Rated Samsung Pixel-Dense ViewFinity S9 Monitor - 27 IPS Display & Integrated 4K Camera at an Unmatchable $899 Price – Secure 44% Off Today!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-16-crowning-youtube-opens-for-enhanced-reach/"><u>[New] In 2024, 16 Crowning YouTube Opens for Enhanced Reach</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-pro-tips-for-streaming-and-screening-netflix-on-mac/"><u>[New] In 2024, Pro-Tips for Streaming & Screening Netflix on Mac</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-supercharge-your-status-top-8-apps-for-boosting-facebook-popularity-for-2024/"><u>[New] Supercharge Your Status Top 8 Apps for Boosting Facebook Popularity for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-best-fb-video-extractors-for-ios-devices-ranked-1/"><u>[Updated] 2024 Approved Best FB Video Extractors for iOS Devices Ranked #1</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-eye-catching-thumbnails-the-top-20-youtube-fonts-unveiled-for-2024/"><u>[Updated] Eye-Catching Thumbnails The Top 20 YouTube Fonts Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-integrating-youtube-into-tv-sets-with-loop-features/"><u>[Updated] In 2024, Integrating YouTube Into TV Sets with Loop Features</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-experiences-top-15plus-virtual-reality-tales-on-cardboard/"><u>2024 Approved Exclusive Experiences Top 15+ Virtual Reality Tales on Cardboard</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Oppo Reno 8T? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-xiaomi-redmi-note-12t-pro-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Xiaomi Redmi Note 12T Pro Data? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On OnePlus Ace 2? | Dr.fone</u></a></li>
 </ul></div>
 

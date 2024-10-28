@@ -1,7 +1,7 @@
 ---
 title: In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Infinix GT 10 Pro | Dr.fone
-date: 2024-10-16T23:26:41.917Z
-updated: 2024-10-22T23:18:53.634Z
+date: 2024-10-21T16:48:24.425Z
+updated: 2024-10-28T19:39:57.647Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -48,6 +48,13 @@ You can check the true percentages of your characters’ IVs in the gaming app i
 
 Further, you can also click on the arrows on the left and right to see the stats of the next Pokémon.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.2 Know Pokémon IV using search filters
 
 ![know pokemon iv](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-2.jpg)
@@ -57,10 +64,10 @@ Pokémon Go app has a search feature that you can use to know the exact IV of Po
 Now check the Pokémon by their star rating, as this is the easy way to know about the IVs of characters. Type “4\*” in the search bar, and you will see characters with a 4-star rating. Mostly a star Pokémon are a 100 IV Pokémon map.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Tips to Catch 100 IV Pokémon in the Game
@@ -119,19 +126,6 @@ This is another popular directory of Pokémon that is solely dedicated to 100 IV
 
 **Website:** [https://pokedex100.com/](https://pokedex100.com/)
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. The IV 100 App
 
 This **Pokémon Go 100 IV map** is available for free for Android users and can be downloaded from the Play Store. You can just launch the app and use its filter to select the specific Pokémon you wish to catch. It will look into its database and would display the 100 IV Pokémon Go map for that specific Pokémon. This will display the exact coordinates that you can later use on a spoofer app to catch this Pokémon.
@@ -143,6 +137,13 @@ This **Pokémon Go 100 IV map** is available for free for Android users and can 
 If you want to track a specific Pokémon, then Poke Radar is the best Pokémon Go map 100 IV. Poke Radar offers a real-time Pokémon location by placing cute characters on a map that helps you to find the exact location of your desired Pokémon.
 
 ![poke radar for android](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This map also has a helpful despawn counter, which tells the players about the disappearing time of Pokémon. The rare Pokémon often has a short time the spawn.
 
@@ -173,6 +174,13 @@ If you want to spoof your Pokémon Go virtual location on Android, you can refer
 After connecting your iPhone to the application, go to its Teleport mode and enter the coordinates or the address of any location. You can obtain these coordinates from a **Pokémon Go 100 IV map**. Later, you can adjust the pin on the map and drop it anywhere. This will spoof your iPhone location to the designated place so that you can catch more Pokémon.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Simulate your iPhone movement
 
@@ -208,19 +216,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 3](https://images.wondershare.com/drfone/Platinum-legendaries-3.png)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3\. Azelf:** Located in Valor Cavern, in the middle of Lake Valor, Azelf is the Blue Pokemon in the trio. The Level 50 Pokemon does not attack you as you walk or ride up to it. Spray Super Repels as you move towards the Pokemon and surf onto the rocky island housing a cave to catch it.
 
 **4\. Mesprit:** Hidden in Lake Verity, Mesprit is another Pokemon in the trio. The Level 50 Pokemon runs off as you approach him for a battle. His location is registered in the Map in Poketech, and the Pokemon appears randomly in various routes and grass. Make sure you trap it quickly as it will try to flee the very first battle turn.
@@ -230,6 +225,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
@@ -259,13 +261,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
@@ -292,34 +287,13 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
@@ -338,6 +312,19 @@ Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives 
 Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in Kanto. That’s why you cannot find Mewtwo in Platinum. And, if you want to obtain Mewtwo, you have to migrate or trade for one.
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
@@ -367,13 +354,6 @@ Players when entering the Battle League are shown – Pokemon Go Battle League N
 
 ![pokemon 1](https://images.wondershare.com/drfone/2020/pokemon-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Thankfully, the issue has been resolved and trainers can get back into the league without any change in the previous features.
 
 Here’s a set of few known issues in the game currently being investigated by Niantic, which we can hope to see resolved later on in the future;
@@ -402,6 +382,13 @@ Few players with the assist of Melmetal (ground and steel type) could lodge cons
 
 ![pokemon 2](https://images.wondershare.com/drfone/2020/pokemon-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After this issue was tweeted to the notice of the game publisher, Ninattic temporarily paused Battle League. Trainers while accessing the live tournament event would be notified with – “Pokemon Go Battle League Not Available” by the game.
 
 Although this doesn’t mean that trainers wouldn’t be able to play practice matches or close proximity matches. Battle League presents itself as an event in the game which gives trainers the chance to earn bonuses and stardust.
@@ -423,6 +410,13 @@ The basics you need to learn to play Pokémon go is catching Pokémon and poweri
 Although it might seem like a long and hard journey, it doesn’t need to. You can catch and power up Pokémon faster and cover longer distances with some help from WondershareDr.Fone. With smoother and easier GPS spoofing you can cover Poke stops much quicker.
 
 Here’s some tips you can put to easy use in Levelling Up in Pokémon Go:
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tip #1: Use dr.fone Virtual Location
 
@@ -470,14 +464,18 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-search-of-success-pivotal-youtube-gatherings-after-vidcon/"><u>[Updated] In Search of Success Pivotal YouTube Gatherings (After VidCon)</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-innovative-yet-straightforward-home-designs-in-mc/"><u>2024 Approved Innovative Yet Straightforward Home Designs in MC</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/igniting-the-fires-of-engagement-with-viral-instagram-videos/"><u>Igniting the Fires of Engagement with Viral Instagram Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-captioning-for-social-video-content-from-snapchat-to-igtv/"><u>In 2024, Captioning for Social Video Content From Snapchat to IGTV</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Xiaomi 13T? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-itel-a60-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-infinix-smart-8-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Infinix Smart 8 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-to-find-muted-conversations-on-snapchat/"><u>[New] How to Find Muted Conversations on Snapchat</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-constructing-premium-canon-timelapse-movies/"><u>[Updated] In 2024, Constructing Premium Canon Timelapse Movies</u></a></li>
+<li><a href="https://blog-min.techidaily.com/audacity/"><u>音量設定ガイド - Audacityで効果的な上げ下げ方法</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/s-of-chuckles-parody-playlists-for-2024/"><u>Echoes of Chuckles Parody Playlists for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Lava Yuva 3? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-honor-play-8t-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Honor Play 8T? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/love-in-the-time-of-algorithms-how-cyber-crooks-harness-ai-for-fraudulent-affairs/"><u>Love in the Time of Algorithms: How Cyber Crooks Harness AI for Fraudulent Affairs</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/simple-steps-to-resolve-the-troublesome-windows-update-error-0x80070002/"><u>Simple Steps To Resolve The Troublesome Windows Update Error 0X80070002</u></a></li>
 </ul></div>
 

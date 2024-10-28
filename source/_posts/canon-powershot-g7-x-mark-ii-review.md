@@ -1,7 +1,7 @@
 ---
 title: Canon PowerShot G7 X Mark II Review
-date: 2024-08-25T05:27:34.686Z
-updated: 2024-08-26T05:27:34.686Z
+date: 2024-10-23T18:37:36.844Z
+updated: 2024-10-28T17:05:04.199Z
 categories:
   - BestProducts
 description: This Article Describes Canon PowerShot G7 X Mark II Review
@@ -59,8 +59,12 @@ thumbnail: https://www.lifewire.com/thmb/hS4Af5QIYHHBqfIv4_-LrO3kyt4=/400x300/fi
  It also has advanced technologies such as MU-MIMO and beamforming, so it feels like a fully capable device. You’ll pay a bit more for this one compared to some of the entry-level plug-in Wi-Fi extenders, but if your home is plagued by wireless dead zones or you just want to ensure a more consistent high-speed signal throughout your dwelling, then this is a strong option. I tested the Netgear Nighthawk X4 for several days in my house for a variety of needs, including everyday work, playing online games, and streaming media.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Hearty, but still compact**
 
  At just over 6 inches tall and 3 inches wide, the Netgear Nighthawk X4 Wi-Fi Mesh Extender might look a little too large to hang from a wall outlet, but most of the weight is concentrated at the base where it plugs in. It’ll only take up one plug on an outlet, leaving the other free, and it stayed securely in place during use.
@@ -71,14 +75,15 @@ thumbnail: https://www.lifewire.com/thmb/hS4Af5QIYHHBqfIv4_-LrO3kyt4=/400x300/fi
 
 ![Netgear Nighthawk X4 (EX7300) Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ahWiBPBlk75slmsmgc-c4cnSgf8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_03-6a6cab81b4ec4da39c89aa3a92cb1f16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Simple setup, awkward app**
 
  Setting up the Netgear Nighthawk X4 essentially means capturing the signal from your Wi-Fi router and then finding an ideal spot to place the extender to bring Wi-Fi into dead zones and areas with an inconsistent signal.
@@ -94,6 +99,13 @@ thumbnail: https://www.lifewire.com/thmb/hS4Af5QIYHHBqfIv4_-LrO3kyt4=/400x300/fi
 ![Netgear Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/rfn4cAzCyxeBXmoIx0VVBH7R0w8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_04-188447741dad41d7a4c51fd7c71861f2.jpg)
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Steady, stellar speeds**
 
@@ -111,21 +123,19 @@ thumbnail: https://www.lifewire.com/thmb/hS4Af5QIYHHBqfIv4_-LrO3kyt4=/400x300/fi
 
 ![Netgear Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ugGkkd4SJutt9ZSqg6hsgakNAAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_05-8a00f82288884d71bd867f253500e04f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Worth the investment**
 
  At an MSRP of $150 but often seen now for $130, the Netgear Nighthawk X4 Wi-Fi Mesh Extender costs a fair bit more than a simpler entry-level extender, but the strong performance—especially on the 5GHz band—makes it a worthy investment if you plan on playing online games or streaming extensive media. There are much cheaper Wi-Fi extenders out there, however (like the one below), if your needs aren’t very extensive.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Netgear Nighthawk X4 vs. TP-Link RE200**
 
 [TP-Link’s RE200](https://www.lifewire.com/tp-link-re200wi-fi-range-extender-review-4846136) (view at[Walmart](https://www.walmart.com/ip/42300087) ) is similar in its plug-in approach, but it’s much smaller and costs a fraction of the price at $30\. It also gave me solid connectivity on 2.4GHz, although the 5GHz performance left something to be desired.
@@ -149,14 +159,11 @@ thumbnail: https://www.lifewire.com/thmb/hS4Af5QIYHHBqfIv4_-LrO3kyt4=/400x300/fi
 * Ports  1x Ethernet
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +172,24 @@ thumbnail: https://www.lifewire.com/thmb/hS4Af5QIYHHBqfIv4_-LrO3kyt4=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-perfect-your-video-for-instagram-narrative-flow/"><u>[New] 2024 Approved Perfect Your Video for Instagram Narrative Flow</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-elevate-your-chats-with-exclusive-discord-gif-tips/"><u>[New] In 2024, Elevate Your Chats with Exclusive Discord GIF Tips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-analytical-approach-to-youtube-content-performance/"><u>[New] The Analytical Approach to YouTube Content Performance</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/1725289870987-dvd/"><u>「新着、日本語対応のDVDクランキングソフトを無料で入手！」</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-guide-to-tailoring-file-explorer-views-in-major-and-minor-folders-on-your-mac/"><u>Comprehensive Guide to Tailoring File Explorer Views in Major and Minor Folders on Your Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-lenovo-ideapad-features-of-an-excellently-built-budget-laptop/"><u>Comprehensive Guide to the Lenovo Ideapad: Features of an Excellently Built Budget Laptop</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-apple-iphone-11-pro-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile Apple iPhone 11 Pro online without SIM Card?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-poco-f5-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Poco F5 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-your-videos-the-pathway-to-streamlined-cc-and-subtitling-on-youtube-for-2024/"><u>Unlocking Your Videos The Pathway to Streamlined CC & Subtitling on YouTube for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Oppo A18? | Dr.fone</u></a></li>
+</ul></div>
 

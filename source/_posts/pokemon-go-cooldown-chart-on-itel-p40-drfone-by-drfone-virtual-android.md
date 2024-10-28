@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Itel P40 | Dr.fone
-date: 2024-10-20T16:30:41.284Z
-updated: 2024-10-22T22:56:19.225Z
+date: 2024-10-27T18:27:19.102Z
+updated: 2024-10-28T17:25:30.996Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -50,6 +50,13 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -126,18 +133,18 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
@@ -165,13 +172,6 @@ Pokemon Platinum is an engaging role-playing video game introduced by Nintendo a
 
 ![Platinum legendaries 1](https://images.wondershare.com/drfone/Platinum-legendaries-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
@@ -198,13 +198,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
 **8\. Regigigas:** Found on the basement of Snowpoint Temple, Regigigas Platinum does not require HM moves to be reachable. Resolving puzzles on each floor, you arrive at the Temple, bringing Regirock, Regice, and Registeel. You will need them to battle with this Level 1 Pokemon and capture him. Regigigas is found asleep on the floor.
@@ -223,6 +216,19 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
 **15\. Registeel:** Located in the Iron Ruins cave on Iron Island, Registeel is accessible only if you have Regigigas on your team. Enter the cave with a Metal Coat, and as you go up to the statue in the cave, Registeel – the level 30 Pokemon – will attack.
@@ -232,13 +238,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **17\. Shaymin:** Another event-only legendary Pokemon Shaymin is approachable of all legendaries in Platinum. It is accessible only if you have Oak’s Letter from Nintendo Event. Go to the Route 224 with this letter to see Professor Oak standing by a white rock. Speak with him to see Marley, and just after that, Shaymin will appear run north. Follow the Pokemon up to the Flower Paradise to battle it.
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
@@ -253,6 +252,13 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -282,21 +288,7 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -330,6 +322,13 @@ The best part of this attribute is that it is the center of the user experience 
 
 The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### iii. Place Attribution
 
 The system within the system that has been designed by the game developers makes sure that the location inaccuracies are accounted for. This also means that the 4-meter accuracy of the GPS is further enhanced to deal with the perfect location identification of each player.
@@ -337,13 +336,6 @@ The system within the system that has been designed by the game developers makes
 ## Part 2: Ways to Fix Error 12 on Pokémon Go
 
 Several ways can be used to make sure that the subject error is resolved with ease. This section of the article will deal with all such ways that can be used to get the work done with ease and perfection.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 1: Enable Mock Locations
 
@@ -353,13 +345,6 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 ![pokemon error 12 1](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2.** Install the Fake GPS that is a free application and can easily be found on the Play Store.
 
 ![pokemon error 12 2](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_2.jpg)
@@ -367,6 +352,13 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 **Step 3.** Launch the application and you can easily enjoy Pokémon Go without any hassle and trouble and resolve the Pokémon go failed to detect location 12 fake GPS error.
 
 ![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Location Activation
 
@@ -412,11 +404,25 @@ Connect your iPhone and enable virtual location from the options of the program.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Locate yourself**
 
 The center on the button on the next screen is to be clicked to get the accurate location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Teleportation**
 
@@ -454,18 +460,16 @@ The location will be locked by the program and your iPhone will also show the sa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-maximizing-your-content-instagrams-video-time-restrictions/"><u>[New] 2024 Approved Maximizing Your Content Instagram's Video Time Restrictions</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-pinnacle-ios-solutions-the-best-ps2-game-emulators-for-2024/"><u>[Updated] Pinnacle IOS Solutions The Best PS2 Game Emulators for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-dominate-digital-space-secure-a-chain-of-1k-fansmonth/"><u>2024 Approved Dominate Digital Space Secure a Chain of 1K Fans/Month</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-key-to-staying-put-mastering-6-viewer-friendly-genres/"><u>2024 Approved The Key to Staying Put Mastering 6 Viewer-Friendly Genres</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-breakdown-of-the-apple-macbook-airs-2020-impressive-performance-with-the-newly-integrated-m1-chip-product-review/"><u>A Breakdown Of The Apple MacBook Air’s (2020) Impressive Performance With The Newly Integrated M1 Chip - Product Review</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Infinix Note 30i? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/innovation-beneath-waves-microsofts-underwater-data-hub-sets-new-standards-in-server-reliability-compared-to-land-counterparts/"><u>Innovation Beneath Waves: Microsoft's Underwater Data Hub Sets New Standards in Server Reliability Compared to Land Counterparts</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/latest-enhancements-in-notepadplusplus-latest-version-release/"><u>Latest Enhancements in Notepad++, Latest Version Release</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-your-newsfeed-to-dodge-objectionable-ads/"><u>Tailoring Your Newsfeed to Dodge Objectionable Ads</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-mastering-the-art-of-sharing-on-reddit-your-complete-guide/"><u>[New] In 2024, Mastering the Art of Sharing on Reddit - Your Complete Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/bring-back-sharpness-the-ultimate-choice-for-restoring-images/"><u>Bring Back Sharpness The Ultimate Choice for Restoring Images</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhanced-personalization-through-innovative-cookiebot-solutions/"><u>Enhanced Personalization Through Innovative Cookiebot Solutions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-samsung-galaxy-z-flip-5-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Samsung Galaxy Z Flip 5 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Nokia G310? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-list-of-ae-title-enhancement-methods/"><u>In 2024, Ultimate List of AE Title Enhancement Methods</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-best-10-chinese-video-to-english-translator/"><u>New 2024 Approved Best 10 Chinese Video to English Translator</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/premier-plans-exclusive-free-premiere-pro-samples-2023/"><u>Premier Plans - Exclusive Free Premiere Pro Samples 2023</u></a></li>
 </ul></div>
 

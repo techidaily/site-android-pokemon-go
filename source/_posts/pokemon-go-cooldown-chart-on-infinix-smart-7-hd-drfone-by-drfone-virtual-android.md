@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Infinix Smart 7 HD | Dr.fone
-date: 2024-10-16T17:50:13.307Z
-updated: 2024-10-22T21:50:47.113Z
+date: 2024-10-27T18:36:16.152Z
+updated: 2024-10-28T20:06:55.719Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -30,13 +30,6 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -188,18 +181,18 @@ Keeping reading!
 
 Before you put effort into catching the Pokémon IV 100 map, you should have knowledge about which Pokémon has a stat of 100 IV. Following are the ways with which you can check the IVs of Pokémon in the Pokémon Go game.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.1 Check IVs within the app
 
 You can check the true percentages of your characters’ IVs in the gaming app itself. Now, if you use the appraisal system of the app, your team leader will show the stats of each Pokémon and can give it a star rating as well.
 
 Further, you can also click on the arrows on the left and right to see the stats of the next Pokémon.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2.2 Know Pokémon IV using search filters
 
@@ -208,6 +201,13 @@ Further, you can also click on the arrows on the left and right to see the stats
 Pokémon Go app has a search feature that you can use to know the exact IV of Pokémon. To do this, tap the search icon present at the top of your Pokémon menu. Now in the search bar, type the name of any Pokémon, say type “shiny”. This will show all the shiny mons with different star ratings.
 
 Now check the Pokémon by their star rating, as this is the easy way to know about the IVs of characters. Type “4\*” in the search bar, and you will see characters with a 4-star rating. Mostly a star Pokémon are a 100 IV Pokémon map.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Tips to Catch 100 IV Pokémon in the Game
 
@@ -253,6 +253,13 @@ Pokémon Go Map is another Pokémon Go 100 IV map for you if you want to quickly
 
 ![pokemap](https://images.wondershare.com/drfone/article/2023/05/pokemon-go-100-iv-map.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Further, the map shows the gym in red and Pokestops in blue by default. Therefore, it helps you to your route and trip to catch the Pokémon and to shop as well. Also, when you click on a particular Pokestop or Gym, this will show you the look of the stop, which you can share with other players.
 
 ![pokemongomap](https://images.wondershare.com/drfone/2023/virtuallocation/EX-Raid-Gym-Map-7.jpg)
@@ -276,6 +283,13 @@ This **Pokémon Go 100 IV map** is available for free for Android users and can 
 If you want to track a specific Pokémon, then Poke Radar is the best Pokémon Go map 100 IV. Poke Radar offers a real-time Pokémon location by placing cute characters on a map that helps you to find the exact location of your desired Pokémon.
 
 ![poke radar for android](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This map also has a helpful despawn counter, which tells the players about the disappearing time of Pokémon. The rare Pokémon often has a short time the spawn.
 
@@ -313,6 +327,13 @@ If you wish to evolve your Pokémon or simulate your movement, then use the one-
 
 ![virtual location 15](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/r2GiOQxwfQc" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
 ## Conclusion
@@ -324,13 +345,6 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 Pokemon Platinum is an engaging role-playing video game introduced by Nintendo and Game Freak. Released in 2008 in Japan, Platinum is an enhanced version of Pokemon Pearl and Diamond.
 
 ![Platinum legendaries 1](https://images.wondershare.com/drfone/Platinum-legendaries-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
 
@@ -366,6 +380,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 5](https://images.wondershare.com/drfone/Platinum-legendaries-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **10\. Articuno:** Like Cresselia, Articuno also roams the grass of Sinnoh. In order for the birds’ release, you visit and speak to Professor Oak who can be found in his house in Eterna City. You need to obtain National Pokedex in order to speak to Professor Oak. The professor tells you that you can find Articuno nearby within Sinnoh. The Level 60 legendary Pokemon can be found roaming the Sinnoh’s grass. So, make sure you are prudent when hunting Articuno.
 
 **11\. Zapdos:** Once you have got the National Pokédex, you speak to Professor Oak. The professor tells you about Zapdos who roams the grasses of Sinnoh. Like with Articuno, you to be prudent in your hunting to catch this Level 60 legendary Pokemon.
@@ -386,13 +407,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
@@ -408,10 +422,10 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -430,13 +444,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -448,13 +455,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
@@ -469,10 +469,10 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -493,22 +493,18 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-engaging-visual-narrative-your-guide-to-making-gifs-from-vimeo-for-2024/"><u>[New] Engaging Visual Narrative Your Guide to Making GIFs From Vimeo for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-inside-instagrams-maximum-video-restriction-policy/"><u>[Updated] 2024 Approved Inside Instagram's Maximum Video Restriction Policy</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-cutting-edge-tv-selection-top-10-in-hdtvs/"><u>[Updated] In 2024, Cutting-Edge TV Selection – Top 10 in HDTVs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-streamlining-video-production-with-clear-sound-effects/"><u>2024 Approved Streamlining Video Production with Clear Sound Effects</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/easy-steps-and-pro-tips-for-sharing-your-itunes-playlist-on-android/"><u>Easy Steps & Pro Tips for Sharing Your iTunes Playlist on Android</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-vivo-y27s-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Vivo Y27s online without jailbreak</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-into-the-depths-mastering-gopros-time-lapse-techniques/"><u>In 2024, Into the Depths Mastering GoPro's Time-Lapse Techniques</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Itel P40? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/innovation-through-ai-for-developers/"><u>Innovation Through AI for Developers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-clear-meta-on-stopping-online-sensitive-pics/"><u>Steering Clear: Meta on Stopping Online Sensitive Pics</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Xiaomi Redmi K70E? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-xiaomi-14-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Xiaomi 14? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-carryminati-unmasked-the-monetary-milestones/"><u>[New] 2024 Approved CarryMinati Unmasked The Monetary Milestones</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-the-art-of-activating-and-deactivating-pip-in-ios-browsers/"><u>[Updated] Master the Art of Activating and Deactivating PIP in iOS Browsers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premium-platforms-for-virtual-shows/"><u>[Updated] Premium Platforms for Virtual Shows</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-online-potential-top-5-strategic-approaches-to-youtube-marketing/"><u>[Updated] Unlocking Online Potential - Top 5 Strategic Approaches to YouTube Marketing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-itel-a60s-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-pro-gamers-audio-gold-5-essential-sound-devices/"><u>In 2024, Pro Gamers' Audio Gold 5 Essential Sound Devices</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/stellar-makes-mac-tasks-effortless-and-faster/"><u>Stellar Makes Mac Tasks Effortless and Faster</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-checklist-navigating-the-decision-making-process-for-your-new-ev-with-9-key-questions/"><u>The Ultimate Checklist: Navigating the Decision-Making Process for Your New EV with 9 Key Questions</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-in-depth-guides-and-reviews-by-toms-hardware/"><u>Tom's Tech Insights: In-Depth Guides and Reviews by Tom's Hardware</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/top-10-viral-tiktok-kitchen-secrets/"><u>Top 10 Viral TikTok Kitchen Secrets</u></a></li>
 </ul></div>
 

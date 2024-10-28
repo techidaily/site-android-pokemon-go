@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Infinix Smart 8 Pro? | Dr.fone
-date: 2024-10-15T17:32:18.694Z
-updated: 2024-10-23T00:42:07.792Z
+date: 2024-10-23T17:31:20.896Z
+updated: 2024-10-28T20:57:34.177Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -75,13 +75,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -114,6 +107,13 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
@@ -122,14 +122,14 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -164,13 +164,6 @@ The first un-evolved version is the serpentine Dratini that looks like a snake a
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
 
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Dragonite
 
@@ -215,6 +208,13 @@ On the official Dr.Fone page, download and install Dr.Fone on your computer or y
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
 
 Next, click on “Get Started”; you will now be able to start the spoofing process.
@@ -225,24 +225,18 @@ Looking at the map, you can now see the actual location of your device. If the c
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
 The image below shows an example of coordinates entered for Rome, Italy.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
@@ -252,22 +246,16 @@ Camping and looking for other Pokémon in the area will help you cool down and t
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is how your location will be viewed on the map.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This is how your location will be viewed on another iPhone device.
 
@@ -278,6 +266,13 @@ This is how your location will be viewed on another iPhone device.
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Get and Use Pokemon Go Promo Codes On Infinix Smart 8 Pro
 
@@ -316,6 +311,13 @@ With your **Pokemon Go promo code**, you can redeem it to get insightful items s
  **Android devices --**
 
 ![redeem pokemon go promo codes on Android](https://images.wondershare.com/drfone/article/2022/07/pokemon-go-promo-codes.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 1. Get to the shop bar**
 
@@ -364,13 +366,6 @@ Here are the simple steps of using Dr. Fone - Virtual Location in faking your lo
 
 ![install dr. fone to start faking gps](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 First, download Dr.Fone - Virtual location from their [<u>official website</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Install and allow it to run on your computer device. Click on the **‘Virtual Location’** option to initiate the process of faking your GPS.
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/FfhgWxnARqo" id="video-iframe-t"></iframe>
@@ -378,6 +373,13 @@ First, download Dr.Fone - Virtual location from their [<u>official website</u>](
 **Step 2. Link your iPhone to your computer**
 
 ![connect your phone and start to change location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Using a USB cable, connect your iPhone to your computer system. Hit the **‘Get started’** button to continue.
 
@@ -423,13 +425,6 @@ Go to the Google Play Store and download Fake GPS Location to your Infinix Smart
 
 ![wa stickers](https://images.wondershare.com/drfone/article/2019/09/pokekom-go-teleport-safely-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To get the Mock Location option, you go back to the **‘Settings’** menu. Scroll down search for **‘Allow Mock Locations’** and turn it on when you find it. Allow mocking of the Fake GPS app.
 
 **Step 4. Search for your desired location to fake**
@@ -439,13 +434,6 @@ Go to your Fake GPS application and search for a preferred location. To initiate
 **Step 5. Confirm your new location**
 
 ![search and confirm your new location](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-fake-gps-android-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lastly, head back to your Pokemon Go app. There, you can see your new location cast.
 
@@ -467,16 +455,20 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-methods-for-eliminating-invisible-youtube-playback/"><u>[New] 2024 Approved Methods for Eliminating Invisible YouTube Playback</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-explore-our-picks-of-budget-friendly-and-high-quality-video-viewing-tools-pcmobile/"><u>[Updated] In 2024, Explore Our Picks of Budget-Friendly and High-Quality Video Viewing Tools (PC/Mobile)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-understanding-ip-instagram-melody-rights-for-2024/"><u>[Updated] Understanding IP Instagram Melody Rights for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-fundamentals-of-quality-streaming-how-to-do-it-right-with-wirecast-and-youtube/"><u>2024 Approved The Fundamentals of Quality Streaming How to Do It Right with WireCast and Youtube</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-nokia-c02-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Nokia C02 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Xiaomi Redmi 12? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/professional-editors-showdown-filmora-vs-democracy-creator-features-for-2024/"><u>Professional Editors Showdown Filmora Vs. Democracy Creator Features for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/reconciled-disk-controller-behavior/"><u>Reconciled Disk Controller Behavior</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-fostering-a-community-best-practices-for-youtubers/"><u>[Updated] 2024 Approved Fostering a Community Best Practices for YouTubers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-are-paid-reviews-common-amongst-online-reviewers/"><u>[Updated] In 2024, Are Paid Reviews Common Amongst Online Reviewers?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-audiences-choice-top-8-best-for-uhd-blu-ray/"><u>2024 Approved Audience's Choice Top 8 Best for UHD Blu-Ray</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/achieving-expertise-in-pc-searches-mastering-the-art-of-effective-browsing-using-copernic/"><u>Achieving Expertise in PC Searches: Mastering the Art of Effective Browsing Using Copernic</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Infinix GT 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Infinix Smart 8? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-beginners-ultimate-list-of-youtube-production-tools/"><u>In 2024, Beginner's Ultimate List of YouTube Production Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Oppo A59 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/macwinx-dvd-ripper-dvddvdhdd/"><u>Mac用WinX DVD Ripper ソフトウェア: 最新のセキュリティ機能が備わったDVD・コピーガードDVDをHDD、ポータブルデバイスへ簡単に移行</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-unify-your-visuals-how-to-match-colors-across-video-clips-in-final-cut-pro/"><u>New 2024 Approved Unify Your Visuals How to Match Colors Across Video Clips in Final Cut Pro</u></a></li>
+<li><a href="https://common-error.techidaily.com/revive-logilda-dll-with-ease/"><u>Revive LogiLDA DLL with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/travel-conveniently-with-the-portable-tp-link-wr902-ac-mini-wi-fi-router/"><u>Travel Conveniently with the Portable TP-Link WR902 AC Mini Wi-Fi Router</u></a></li>
 </ul></div>
 

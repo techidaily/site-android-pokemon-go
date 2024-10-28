@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Xiaomi Mix Fold 3 | Dr.fone
-date: 2024-10-21T22:55:06.825Z
-updated: 2024-10-22T17:35:56.191Z
+date: 2024-10-21T18:30:27.091Z
+updated: 2024-10-28T17:51:16.688Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,6 +24,13 @@ What is a cooldown? Cooldown Time restricts to stop a player from repeating mult
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
 
@@ -54,6 +61,13 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -101,13 +115,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -120,13 +127,6 @@ It is a very simple-to-use application and provides robust results if you follow
 - Always log off from Pokémon before teleporting so the game does not detect your actions. For logging out, go to settings in your game by clicking the Pokeball in the center of the screen. Scroll down to locate and click the logout button.
 
 Dr.Fone - Virtual Location (iOS/Android) is an easy and reliable teleporting method for Android and iOS. So let us visit how to teleport using this software step by step.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Teleport in Pokémon Go Using Dr. Fone - Virtual Location
 
@@ -146,6 +146,13 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -160,20 +167,13 @@ Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -214,6 +214,13 @@ Now on the interface, you'd see a map with your location highlighted on it. If y
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Activate Teleport Mode**
 
 Subsequently, activate the "teleport mode" by clicking the icon shown in the image. Now enter the location to which you want your fake location to be set to in the upper left field. Now click on "go"
@@ -221,10 +228,10 @@ Subsequently, activate the "teleport mode" by clicking the icon shown in the ima
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 5: Change Location**
@@ -232,13 +239,6 @@ Subsequently, activate the "teleport mode" by clicking the icon shown in the ima
 Upon clicking on "go", a pop-up will appear showing you the distance of the location you have chosen. Tap on “Move Here” and the location would now be set to the location entered by you. Click on "center on" to check your location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Which pokemon can you evolve with trading?
 
@@ -263,13 +263,6 @@ You need a Special Trade whenever you wish to trade a legendary Pokemon or a shi
 
 Trading in Pokemon go was introduced in recent times and had now become one of the most integral factors of the game. Pokemon go trading has changed the gaming trend. However, you could get an upper hand by using a virtual location changer such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) . This can help you to even trade pokemons seamlessly with friends staying at far-off places. Using the pokemon trade feature and evolving pokemons is a smart and handy way to progress further in the game. As a Pokemon go player, you must try it out!
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Here are Some of the Best Pokemon Discord Servers to Join On Xiaomi Mix Fold 3
 
 If you are a Pokemon Go player, then you might already know how crucial it is to have some active friends in the game. By playing Pokemon Go with your friends, you can create teams, participate in raids, and do so much more. Though, the best way to make new friends in the game is by joining an active Pokemon Go Discord server. The good news is that Discord has tons of international and local Pokemon Go servers that you can join. Find out how to find the most appropriate Pokemon Go Discord servers in this guide.
@@ -289,6 +282,13 @@ Just go to its website to access the map of various Pokemon Go Discord servers. 
 _Website:_ [_https://thesilphroad.com/map#2/_](https://thesilphroad.com/map#2/)
 
 ![The Silph Road Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 2. **Discord Servers**
 
@@ -321,13 +321,6 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 2. Now, you will be given an option to either create a new server or simply join an existing server. From here, you can select an option to join an existing server instead.
 
 ![Discord Server Options](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3. Lastly, you just need to paste the invite link of the Pokemon Go Discord server and click on the “Join” button.
 
@@ -369,6 +362,13 @@ Pokesnipers is one of the oldest Discord servers for Pokemon Go players. It has 
 
 _Server link:_ [_https://discord.com/invite/T2MakRF_](https://discord.com/invite/T2MakRF)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Pro Tip: Spoof your iPhone Location to Play Pokemon Go Remotely
 
 From these Pokemon Go Discord servers, you can easily know the spawning or raid locations for the game. Later, you can use a tool like Dr.Fone – Virtual Location (iOS) to spoof the GPS of your iOS device. Just connect your iPhone to the computer and enter the target location’s address or its exact coordinates. You can also use it to simulate the movement of your device in a route realistically via a GPS joystick. The best part is that the application is super-easy to use and will not need jailbreak access on your phone.
@@ -395,18 +395,17 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-audio-made-simple-for-imovie-editors/"><u>[New] In 2024, YouTube Audio, Made Simple for iMovie Editors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-top-6-substitutes-best-periscope-rivals-on-mobile-devices/"><u>[New] Top 6 Substitutes Best Periscope Rivals on Mobile Devices</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-elevating-your-brand-with-intriguing-instagram-puzzle-feeds/"><u>[Updated] Elevating Your Brand with Intriguing Instagram Puzzle Feeds</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-make-awesome-youtube-channel-art-ultimate-guide/"><u>[Updated] How to Make Awesome YouTube Channel Art [Ultimate Guide ]</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-strategies-for-overcoming-8-typical-newbie-youtube-errors-for-2024/"><u>[Updated] Strategies for Overcoming 8 Typical Newbie YouTube Errors for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-video-integration-for-pc-and-android-users-explained/"><u>2024 Approved Facebook Video Integration for PC & Android Users Explained</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Xiaomi 14 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/swift-remedy-kit-tackling-chatgpt-sign-in-issues/"><u>Swift Remedy Kit: Tackling ChatGPT Sign-In Issues</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-outer-worlds-review/"><u>The Outer Worlds Review</u></a></li>
-<li><a href="https://win-forum.techidaily.com/unlocking-remote-power-management-activating-wake-on-lan-on-windows-devices/"><u>Unlocking Remote Power Management: Activating Wake-on-LAN on Windows Devices</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-channel-upgrade-made-simple-embrace-tubebuddy-techniques/"><u>[Updated] Channel Upgrade Made Simple - Embrace TubeBuddy Techniques</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-10-pc-vr-headsets-2023-update/"><u>[Updated] Top 10 PC VR Headsets -2023 Update</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-best-youtube-video-to-text-converters-online/"><u>2024 Approved Best YouTube Video to Text Converters Online</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-insights-on-motherboards-and-cpus-navigate-with-toms-hardware/"><u>Expert Insights on Motherboards and CPUs - Navigate with Tom's Hardware</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-nokia-c22-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-nokia-g22-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/innovating-imagery-topiary-techniques-for-stellar-iphone-photos/"><u>Innovating Imagery Topiary Techniques for Stellar iPhone Photos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/mastery-in-managing-w10-photos-crashes-with-expert-tips-for-2024/"><u>Mastery in Managing W10 Photos Crashes with Expert Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimizing-profits-on-youtube-studio-for-all-device-users-for-2024/"><u>Optimizing Profits on YouTube Studio for All-Device Users for 2024</u></a></li>
 </ul></div>
 

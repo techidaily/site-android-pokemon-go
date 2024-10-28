@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Itel P40? | Dr.fone
-date: 2024-10-17T00:30:15.345Z
-updated: 2024-10-23T00:43:04.765Z
+date: 2024-10-22T17:46:17.437Z
+updated: 2024-10-28T16:34:26.108Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -27,6 +27,13 @@ The best part of this game is that it has been compiled keeping in view the loca
 
 The best part of this attribute is that it is the center of the user experience of the game. The second part is the fact that this map has evolved and there are no shortcuts to its success. Ingress was the previous game that was developed by Niantic and the crowdsourcing of this map started with the evolution of this application. This was developed by the same team that is working on the core of Google Earth.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ii. Real World Gestures
 
 The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
@@ -34,6 +41,13 @@ The augmented reality is another important aspect that is related to Pokemon Go 
 ### iii. Place Attribution
 
 The system within the system that has been designed by the game developers makes sure that the location inaccuracies are accounted for. This also means that the 4-meter accuracy of the GPS is further enhanced to deal with the perfect location identification of each player.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Ways to Fix Error 12 on Pokémon Go
 
@@ -63,20 +77,33 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 4](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2.** Tap on the passwords and security to proceed with the process:
 
 ![pokemon error 12 5](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_5.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3.** Tap to turn on the location to finish the process and eliminate the failed to detect location 12 Pokémon Go errors.
 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Reboot the Itel P40 device
 
@@ -100,25 +127,11 @@ To begin the process, download and install the program to get going with the pro
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Enable Virtual Location**
 
 Connect your iPhone and enable virtual location from the options of the program. Hit get started to begin the spoof.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Locate yourself**
 
@@ -131,6 +144,13 @@ The center on the button on the next screen is to be clicked to get the accurate
 On the upper right corner click the icon on the third to begin teleportation or spoofing to be precise. Enter the name of the place where you want to teleport to.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5: Move to the teleported location**
 
@@ -179,19 +199,6 @@ Winners can enjoy a 33% off coupon on Dr.Fone - Virtual Location to spoof your P
 ## Unlock Exclusive Rewards with Our Connect-the-Dots Game
 
 ![game](https://images.wondershare.com/drfone/images2024/pokemon/game-bg.png) ![play](https://images.wondershare.com/drfone/images2024/pokemon/play-btn.png)
-
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Coupon Usage Recommendations
 
@@ -267,6 +274,13 @@ First thing first, download Dr.Fone -  Virtual Location. After downloading and 
 
 ![get started](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2. Connect your device.**
 
 Now, a map will show up on your screen. Here, click on the “No Device” button to connect your phone and click on “Next.”
@@ -279,37 +293,11 @@ Once your phone is connected, select “Teleport Mode” from the toolbar near t
 
 ![select the teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4. Choose the location.**
 
 Now, click on the search bar and type in the name of the location you want to use. Once you have added the location, hit “Enter” to move to the next step.
 
 ![type in a location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5. Arrive at your desired location.**
 
@@ -358,6 +346,13 @@ Ever since the Pokemon Go PvP mode has been introduced by Nintendo, there has be
 
 ![pokemon pvp battle tips banner](https://images.wondershare.com/drfone/2020/pokemon-pvp-battle-tips-banner.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: Pro Strategies to Follow in PvP Pokemon Go Battles
 
 If you want to be good at the Pokemon Go PvP battles, then you must understand how the game works. Once you are ready, I would recommend some of these Pokemon PvP strategies that are followed by pro players.
@@ -372,6 +367,19 @@ As you know, there are three different leagues to participate in Pokemon Go PvP 
 
 ![leagues in pokemon pvp](https://images.wondershare.com/drfone/2020/leagues-in-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
 
 ### Tip 2: Master all the Battle Moves
@@ -384,13 +392,6 @@ Ideally, there are four different moves in any PvP Poke battle that you must mas
 - **Swapping:** Since you get 3 Pokemons, don’t forget to swap them during the battle. You can only swap Pokemons once in every 60 seconds.
 
 ![moves in pokemon pvp](https://images.wondershare.com/drfone/2020/moves-in-pokemon-pvp.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Tip 3: Check your Opponent’s Pokemons
 
@@ -476,13 +477,6 @@ In the end, make sure that you have a perfect Pokemon that can end the battle an
 
 ![skarmory in pokemon go](https://images.wondershare.com/drfone/2020/skarmory-in-pokemon-go.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Secrets about the new Mechanics in PvP Pokemon Go Battles
 
 Lastly, if you want to level up in PvP Poke battles, then you should get to know about these three important mechanisms.
@@ -517,16 +511,22 @@ There you go! I’m sure that after reading this post, you would be able to know
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/nveiling-profit-potential-the-systematic-triad-technique-for-youtube-earning-analysis-for-2024/"><u>[New] Unveiling Profit Potential The Systematic Triad Technique for YouTube Earning Analysis for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-impression-making-techniques-crafting-powerful-podcast-logos/"><u>[Updated] 2024 Approved Impression-Making Techniques Crafting Powerful Podcast Logos</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-capturing-the-extremes-adobes-hdr-creation-in-lightroom/"><u>In 2024, Capturing the Extremes Adobe's HDR Creation in Lightroom</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-infinix-hot-40-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Infinix Hot 40 Pro? Fixed | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/mastering-pacific-wastelands-in-cod-mobile-legends-top-strategies-revealed/"><u>Mastering Pacific Wastelands in COD: Mobile Legends - Top Strategies Revealed</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-missing-or-lost-mfplatdll-file-problems-a-detailed-tutorial/"><u>Overcoming Missing or Lost mfplat.dll File Problems: A Detailed Tutorial</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/professional-guide-replacing-your-old-graphics-chip-for-better-visuals/"><u>Professional Guide: Replacing Your Old Graphics Chip for Better Visuals</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Infinix Zero 5G 2023 Turbo? | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-securing-every-frame-best-practices-for-vimeo-record-use/"><u>[New] 2024 Approved Securing Every Frame Best Practices for Vimeo Record Use</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-essential-distinctions-between-metaverse-and-multimeva/"><u>[New] The Essential Distinctions Between Metaverse and Multimeva</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-how-to-edit-vertical-videos-for-instagram-in-final-cut-pro-x/"><u>[Updated] 2024 Approved How to Edit Vertical Videos for Instagram in Final Cut Pro X?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-staying-legal-in-the-digital-space-youtubes-copyright-guide/"><u>[Updated] In 2024, Staying Legal in the Digital Space YouTube's Copyright Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-want-to-send-snaps-from-camera-roll-see-how-it-is-done/"><u>[Updated] Want to Send Snaps From Camera Roll? See How It Is Done</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-budget-friendly-pruveeo-f5-full-hd-dash-cam/"><u>Comprehensive Analysis of the Budget-Friendly Pruveeo F5 Full HD Dash Cam</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Motorola Moto G13? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/iconic-imagery-transforming-audio-into-visual-podcast-identity/"><u>Iconic Imagery Transforming Audio Into Visual Podcast Identity</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/overcoming-storage-errors-on-windows-11-tackling-the-fat-file-system-failures/"><u>Overcoming Storage Errors on Windows 11: Tackling the FAT File System Failures</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/redesigning-windows-removed-characteristics/"><u>Redesigning Windows: Removed Characteristics</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Nokia G310? | Dr.fone</u></a></li>
 </ul></div>
 

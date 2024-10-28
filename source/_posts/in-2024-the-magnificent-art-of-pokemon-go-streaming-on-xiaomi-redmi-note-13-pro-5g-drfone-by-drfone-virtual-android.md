@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Magnificent Art of Pokemon Go Streaming On Xiaomi Redmi Note 13 Pro 5G? | Dr.fone
-date: 2024-10-21T01:59:18.676Z
-updated: 2024-10-23T00:33:05.766Z
+date: 2024-10-25T20:10:28.490Z
+updated: 2024-10-28T16:45:30.248Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -46,26 +46,26 @@ It’s true to say that multi-tasking is the core of Pokemon Go streaming. Of co
 Fate works in mysterious ways. We never know what’s waiting ahead. One day, you’re just an ordinary Pokemon Go player who enjoys catching Pokemon around the neighborhood. The next, you’re a star trainer competing globally for championship events. That’s possible to happen with Pokemon Go streaming as your ultimate stepping stone. Hence, don’t ever underestimate the power of this venture.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Live-Stream Pokemon Go on Mobile Phones
 
 The primary mechanics of Pokemon Go involve a lot of outdoor strolling and physical movement. For instance, you have to walk around the street to catch as many Pokemon as possible. Another thing is that you need to visit the physical location of the PokeStops to spin the Photo Disc. Therefore, it’s highly recommended to use mobile devices when streaming Pokemon Go adventures. Don’t fret. Most modern smartphones nowadays are capable of handling such demanding tasks. Do you want to try it now? Here’s a short guide to help you get started.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Check your mobile device and internet connection very well
 
 ![smartphone and internet power](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 It’s fair to say that Pokemon Go streaming is not extremely particular when it comes to equipment. You can actually go live under natural daylight and document your adventure as it is. However, keep in mind that you’re simultaneously doing two different tasks in this regard. One is streaming, and the other is playing. Therefore, ensure your mobile device and internet connection can handle heavy workloads as such. A smartphone with 8 GB RAM (or higher) and an internet connection of at least 25 Mbps is highly recommended.
 
@@ -75,11 +75,31 @@ It’s fair to say that Pokemon Go streaming is not extremely particular when it
 
 Of course, you can bring a full computer setup outside while exploring around. That’s why you should choose a live-streaming application with features that allow you to broadcast directly on Your Xiaomi Redmi Note 13 Pro 5G. Don’t worry. There are lots of choices on the internet. Pick the best one, and then create your Pokemon Go streaming account. Optimize your profile and make sure that the details are complete.
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Set up the Pokemon Go Livestream
 
 ![set up live stream](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-5.JPG)
 
 Set up the livestream accordingly. Start by writing a catchy title for your broadcast. Make sure that it clearly states the content and the intent of your Pokemon Go livestream. After that, add some keywords and specify the language of your stream. Yes. It’s very important because it will help interested viewers find you on the internet. Lastly, check the audio output. Adjust the volume clarity if necessary. Once you’re done, it’s time to hit the Go Live button and say “Hi” to the world.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Start playing Pokemon Go
 
@@ -92,13 +112,6 @@ Play Pokemon Go as if nobody is watching you online. Simply put, carry on with y
 The best tip that anyone can give you is to be yourself when you livestream Pokemon Go. Don’t hide behind false pretense just to portray someone you know you’re not. Let your viewers see the real you through the lens of the camera. Certainly, it will eventually help you build a larger and broader viewership over time. Are you looking for some more tips? Check out the list below.
 
 ![pokemon go livestream tips](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-7.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - Consider your safety as the primary priority. Stay alert and keep your essential belongings within your sight. You never know. People with ill intentions are just around the corners of the street. Hence, keep yourself safe from this kind of situation that may put your life in real danger.
 - One way to broaden your online exposure is to go live on a regular and consistent timetable. Plan ahead the exact schedule of your Pokemon Go livestream and announce it on your official social media handles.
@@ -124,13 +137,6 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this mobile game. You go live on the internet streaming platform while catching the Pokemon nearby. If you want to elevate your Pokemon Go experience, start streaming your adventure online. Refer to the tutorial and tips above to help you get the ball rolling. Furthermore, download [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) for free on your computer. It has a potent Virtual Location feature that can help you livestream Pokemon Go from the comfort of your own home. All you have to do is set up Wondershare Dr.Fone on your desktop and let it simulate GPS movements based on your inputs. Yes. You can absolutely do that with just the snap of a finger. Therefore, start a Pokemon Go streaming channel today and enjoy a more exciting journey ahead.
@@ -140,13 +146,6 @@ Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this m
 If you are a Pokemon Go player, then you might already know how crucial it is to have some active friends in the game. By playing Pokemon Go with your friends, you can create teams, participate in raids, and do so much more. Though, the best way to make new friends in the game is by joining an active Pokemon Go Discord server. The good news is that Discord has tons of international and local Pokemon Go servers that you can join. Find out how to find the most appropriate Pokemon Go Discord servers in this guide.
 
 ![Pokemon Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Part 1: Where can I find the Best Pokemon Go Discord Servers?**
 
@@ -182,6 +181,13 @@ _Website:_ [_https://disboard.org/servers/tag/pokemon-go_](https://disboard.org/
 
 Just like DisBoard, you can also explore several other websites and Discord server directories to find appropriate Pokemon Go Discord servers. A lot of gamers also explore social networks like Reddit, Twitter, Facebook, Twitch, Instagram, etc. to find all kinds of Pokemon Discord servers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2: How to Join a Pokemon Go Discord Server?**
 
 By exploring the above-listed options, you would be able to find all kinds of Pokemon Go Discord Servers. Though, once you have found a Discord Pokemon server, you need to obtain its invite link by clicking on the “Join” button. Afterward, you can follow these steps to join the Pokemon Go Discord server of your choice.
@@ -199,10 +205,10 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 ![Join a Server on Discord](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
@@ -262,10 +268,10 @@ If you have been using iSpoofer for a while to change your iPhone location, you 
 ![ispoofer shutdown banner](https://drfone.wondershare.com/2020/ispoofer-shutdown-banner.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: Why did iSpoofer shutdown?
@@ -280,6 +286,13 @@ Earlier, iSpoofer used to be one of the most popular apps to change our location
 - Even if you have already done the iSpoofer download, the application will not be supported by Pokemon Go and its use will get your account terminated.
 
 ![pokemon go account warning](https://drfone.wondershare.com/2020/pokemon-go-account-warning.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Will iSpoofer work again?
 
@@ -322,19 +335,6 @@ Now, please enter the address or the coordinates of the target location and load
 As you would select the target location, the application will automatically change the interface. You can now drag the pin around and even zoom in/out the map to select the target location. Lastly, you can select the “Move Here” button and the location of your iPhone would be changed automatically.
 
 ![virtual location 5](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can now launch Pokemon Go or any other GPS-based app to check the spoofed location of your iPhone.
 
@@ -388,17 +388,22 @@ There you go! After reading this post, I’m sure that you would be able to know
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-how-to-extract-youtube-trailers-and-more-for-2024/"><u>[Updated] How to Extract YouTube Trailers & More for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-navigating-creator-studio-your-expert-manual-for-2024/"><u>[Updated] Navigating Creator Studio Your Expert Manual for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/business-presentation-goldmine-free-and-premium-slide-show-tools-for-2024/"><u>Business Presentation Goldmine Free & Premium Slide Show Tools for 2024</u></a></li>
-<li><a href="https://win-superb.techidaily.com/decoding-der-pfad-ist-nicht-verfugbar-how-to-troubleshoot-on-windows-11-and-iphone-systems/"><u>Decoding 'Der Pfad Ist Nicht Verfügbar': How to Troubleshoot on Windows 11 & iPhone Systems</u></a></li>
-<li><a href="https://os-tips.techidaily.com/experts-complete-handbook-for-iphone-and-android-backup-data-recovery-techniques/"><u>Expert's Complete Handbook for iPhone and Android Backup Data Recovery Techniques</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-enhancing-your-sd-or-hd-footage-to-ultra-hd-quality/"><u>Step-by-Step Guide: Enhancing Your SD or HD Footage to Ultra HD Quality</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/top-synchronisationstools-fur-externe-laufwerke-kostenlos-and-einfach/"><u>Top-Synchronisationstools Für Externe Laufwerke - Kostenlos & Einfach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevating-brand-presence-a-guide-to-influencer-marketing-on-instagram/"><u>[New] 2024 Approved Elevating Brand Presence A Guide to Influencer Marketing on Instagram</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-blend-into-the-crowd-watching-instagram-live-anonymously/"><u>[New] How to Blend Into the Crowd Watching Instagram Live Anonymously</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-master-the-art-of-youtube-seo-11-steps-to-improvement/"><u>[New] Master the Art of YouTube SEO 11 Steps to Improvement</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-picks-for-free-high-quality-screen-recorders-in-chrome-os/"><u>[Updated] Top Picks for Free, High-Quality Screen Recorders in Chrome OS</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/2024-approved-how-to-stream-on-twitch-the-ultimate-guide/"><u>2024 Approved How to Stream on Twitch The Ultimate Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-skybound-streaming-engaging-your-audience-on-facebook/"><u>2024 Approved Skybound Streaming Engaging Your Audience on Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/dive-into-todays-top-8-viral-video-phenomena/"><u>Dive Into Today’s Top 8 Viral Video Phenomena</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-melodic-lenswork-capturing-soundscapes-on-ios/"><u>In 2024, Melodic Lenswork Capturing Soundscapes on iOS</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-this-site-cant-be-reached-chrome-error/"><u>Solved: “This Site Can’t Be Reached” Chrome Error</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Motorola Moto G23 | Dr.fone</u></a></li>
 </ul></div>
 

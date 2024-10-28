@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Infinix Note 30 Pro? | Dr.fone
-date: 2024-10-21T20:58:44.266Z
-updated: 2024-10-23T02:07:19.950Z
+date: 2024-10-23T17:39:45.044Z
+updated: 2024-10-28T17:25:53.528Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -80,10 +80,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.1 Action Replay Codes
@@ -110,13 +110,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -129,6 +122,13 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
@@ -138,6 +138,13 @@ Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives 
 Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in Kanto. That’s why you cannot find Mewtwo in Platinum. And, if you want to obtain Mewtwo, you have to migrate or trade for one.
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
@@ -158,13 +165,6 @@ There are a limited number of Rare Candy in Pokemon Go Fire Red. However, you ca
 When you use a Rare Candy, you get enough Exp. Points to move to the next level. This means that it is best to use them for getting to the next level, especially when it becomes too challenging. Although you get to the next level, you will not earn any Effort Value Points, which will make your Pokemon weaker than it would have been if you had leveled up through training.
 
 ![Pokemon Rare Candy Trainer Card](https://images.wondershare.com/drfone/2020/Rare-Candy-Cheat-Fire-Red-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to get rare candy in Pokemon Go Fire Red?
 
@@ -207,10 +207,10 @@ To simulate movement when spoofing your location, you can select either “One-S
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Getting Pokemon Go Fire Red Rare Candy Normally
@@ -224,6 +224,13 @@ You would have to visit certain locations in order to get Pokemon Go Rare Candy 
 - When you get to the Safari Zone Warden’s House, check behind the boulder.
 - You may also use Meowth or any other Pokemon that has Pickup abilities and try your luck.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Getting Pokémon Go Fire Red Rare Candy with cheat codes
 
 The best way to go about this is to use a Pokemon Go Fire Red emulator on your computer and then use the fire red chat code shown below and follow the simple instructions.
@@ -233,13 +240,6 @@ Look for the Pokemon Go Fire Red codes posted on various user sites.
 Use GameShark or My Boy game emulator to install the codes and then get the Rare Candy that you need.
 
 The cheat code for Pokemon Go Fire Red Candy is:
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How do you get unlimited rare candies in Pokemon Red?
 
@@ -272,6 +272,19 @@ How to use the code:
 Wait for it to be activated and then save it.
 
 ![Enter details of the cheat code](https://images.wondershare.com/drfone/2020/my-boy-pokemon-fire-red-cheat-codes-5.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4 –** Enter the Pokéstop and deactivate the cheat code.
 
@@ -319,10 +332,10 @@ This is one of the most balanced Pokemon teams that would work in almost every s
 ![Balanced Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Drainer, Tanker, Cleric, and 3 Sweepers (Physical/Special/Mixed)
@@ -339,20 +352,6 @@ Even if you don’t have a lot of experience in the game, you can try this power
 
 ![Attacking Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Things to Consider while Creating your Pokemon Team
 
 Since there could be so many ways for coming up with a Pokemon team, I would recommend following these suggestions:
@@ -368,6 +367,13 @@ Needless to say, if you have all attacking or all defensive Pokemons in your tea
 ### Tip 3: Don’t pick Pokemons with common weaknesses
 
 It is always recommended to have a diverse team so that your opponent can’t harass you. For instance, if two or more Pokemons have the same type of weakness, then your opponent can easily win by counter-picking Pokemons.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tip 4: Practice and alter your team
 
@@ -401,15 +407,18 @@ There you go! By following these tips, you would be able to come up with a winni
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-how-to-chat-on-google-meet/"><u>[New] How to Chat on Google Meet</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/adjustment-of-corticosteroid-therapy-with-careful-assessment-to-reduce-their-use-balancing-anti-inflammatory-needs-and-minimizing-immunosuppression/"><u>Adjustment of Corticosteroid Therapy with Careful Assessment to Reduce Their Use, Balancing Anti-Inflammatory Needs and Minimizing Immunosuppression.</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-unlock-on-apple-iphone-11-pro-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock On Apple iPhone 11 Pro? How to Fix it?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Itel P55+? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Infinix Hot 40? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-apple-iphone-15-with-3-methods-by-drfone-ios/"><u>In 2024, How to Unlock AT&T Apple iPhone 15 with 3 Methods</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Xiaomi Redmi 12 | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/cketing-numbers-a-guide-to-youtube-viewership-increase-for-2024/"><u>Skyrocketing Numbers A Guide to YouTube Viewership Increase for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/44ku44ov44oi5yyw77ya6lyd44gp5pah5a2x44ks6aeg5l244gz44kl5pya5zae44gu44og44kv44ol44od44kv/"><u>ギフト化：輝く文字を駆使する最善のテクニック</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-street-saga-best-gaming-matches-to-gta-v-for-2024/"><u>[New] Street Saga Best Gaming Matches to GTA V for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-twitters-hit-videos-the-most-watched-of-the-year-for-2024/"><u>[New] Twitter's Hit Videos The Most Watched of the Year for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/achieving-sharp-image-quality-in-outriders-solutions-for-visual-distortion/"><u>Achieving Sharp Image Quality in Outriders - Solutions for Visual Distortion</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/combat-error-3-0x0001000b-in-rainbow-six-siege-proven-methods-for-a-smooth-gaming-experience/"><u>Combat Error 3-0X0001000B in Rainbow Six Siege: Proven Methods for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/designing-your-perfect-tiktok-outro-for-2024/"><u>Designing Your Perfect TikTok Outro for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Oppo A59 5G? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-vivo-y100a-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-i-screen-mirroring-apple-iphone-x-to-tvlaptop-drfone-by-drfone-ios/"><u>In 2024, How Can I Screen Mirroring Apple iPhone X to TV/Laptop? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-honor-play-8t-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Honor Play 8T Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/playing-iso-files-with-vlc-a-step-by-step-guide/"><u>Playing ISO Files with VLC: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

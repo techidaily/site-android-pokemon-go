@@ -1,7 +1,7 @@
 ---
 title: In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Infinix Note 30 | Dr.fone
-date: 2024-10-18T01:04:42.332Z
-updated: 2024-10-22T22:41:44.856Z
+date: 2024-10-22T18:54:58.648Z
+updated: 2024-10-28T20:41:00.949Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -112,6 +112,19 @@ This is another popular directory of Pokémon that is solely dedicated to 100 IV
 
 **Website:** [https://pokedex100.com/](https://pokedex100.com/)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. The IV 100 App
 
 This **Pokémon Go 100 IV map** is available for free for Android users and can be downloaded from the Play Store. You can just launch the app and use its filter to select the specific Pokémon you wish to catch. It will look into its database and would display the 100 IV Pokémon Go map for that specific Pokémon. This will display the exact coordinates that you can later use on a spoofer app to catch this Pokémon.
@@ -149,10 +162,10 @@ Catch 100 IV Pokémon without moving!
 If you want to spoof your Pokémon Go virtual location on Android, you can refer to the detailed guide [here](https://drfone.wondershare.com/virtual-location/pokemon-go-spoofing-android.html).
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Teleport anywhere in the world
@@ -191,13 +204,6 @@ If you are an avid Pokemon Go player, then you might already know that the game 
 - The weather outside might not be suitable or safe to explore the Pokemon Go map on your own.
 - Any other possible reason for not being able to travel solely or having enough time to catch Pokemons.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Possible Risks for Using a Pokemon Go Joystick
 
 A Pokemon Go spoofing iOS/Android solution can easily change your present location in the game or even simulate your movement. Though, if you use the Pokemon Go joystick app multiple times a day and Niantic detects it, then it can cause some issues.
@@ -205,6 +211,19 @@ A Pokemon Go spoofing iOS/Android solution can easily change your present locati
 Please note that the use of any location spoofing or Pokemon Go hack (joystick) is against the terms of Niantic. Therefore, if your account is found using these hacks, then Niantic can display warning messages. If after getting multiple warnings, the hack is still being detected, then it can lead to a temporary or even a permanent ban of your account.
 
 ![Pokemon Go Warnings](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Fake GPS in Pokemon Go: 3 Foolproof Solutions
 
@@ -232,13 +251,6 @@ Afterward, you can select the target location and the interface would automatica
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Simulate the iPhone Movement with a joystick**
 
 To use the Pokemon Go joystick iOS solution, you can select the One-stop or Multi-stop mode from the top. Now, you can drop the pins on the map as per your requirements to set up a route to cover.
@@ -248,13 +260,6 @@ To use the Pokemon Go joystick iOS solution, you can select the One-stop or Mult
 Afterward, you can enter the number of times you want to cover the route and even set up a preferred speed. Lastly, click on the “March” button to start the simulation on the map. You can also use a joystick at the bottom to move around realistically on Pokemon Go.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Video Guide:** Teleport to anywhere in the world!
 
@@ -270,6 +275,13 @@ To start with, you can just go to the Play Store page of the GPS Joystick app an
 
 ![GPS Joystick Android Install](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Afterward, go to its Settings > Developer Options and set the Pokemon Go spoofer APK the default mock location app.
 
 **Step 2: Set up the preferences to fake GPS on Pokemon Go**
@@ -282,6 +294,13 @@ Besides that, you can also tap on the map option to directly enter the address o
 
 ![pokemon go joystick](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can further visit the GPS Joystick settings to set up preferred walking, jogging, or running speeds for the simulated movement.
 
 ![GPS Joystick Set Speed](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-6.jpg)
@@ -291,6 +310,13 @@ You can further visit the GPS Joystick settings to set up preferred walking, jog
 That’s it! Now, you can just view the GPS Joystick on the map with relevant options. You can start/stop the simulation as per your requirements and even directly enter the coordinates to fake GPS on Pokemon Go.
 
 ![GPS Joystick Android](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3.3 Pokemon Go Joystick Hack for Rooted Android Phones
 
@@ -304,18 +330,18 @@ You can now launch the application and go to its Settings to enable the Root Mod
 
 ![FGL Pro Root Mode](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Start Simulating the movement of your Infinix Note 30**
 
 Great! Now, you can just launch the FGL Pro app on your phone and tap on the search icon to look for the target location. You can now adjust the location on the map and tap on the Start icon. There will be a GPS joystick location on the map that would let you simulate your movement accordingly on the map.
 
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
 
@@ -331,13 +357,6 @@ If you want to avoid getting your account banned and still use a reliable spoofi
 - If you have already got a warning on your Pokemon Go account, then consider creating another account for using any fake GPS Pokemon Go hack instead.
 
 There you go! By now, you would be able to implement these spoofing Pokemon Go tips and tricks. As you can see, there can be so many Pokemon Go spoofing iOS/Android solutions that you can explore. While there are plenty of Pokemon Go spoofer APK tools for Android devices, iOS users can try [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking your device, it will let you spoof its location and even simulate its movement to catch Pokemons remotely.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How can I get more stardust in pokemon go On Infinix Note 30?
 
@@ -385,13 +404,6 @@ The maximum Stardust you can get in one gift is 300, which may not seem like a l
 
 ![opening gifts in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### By Hatching Pokemon
 
 Hatching a Pokemon is also one of the essential parts of your Pokemon experience. Every time you hatch an egg, you’ll get Stardust points you can spend on numerous instances. The Stardust amount will depend on the egg itself; the higher the rank, the better the prices.
@@ -407,13 +419,6 @@ You can check out the list below to determine how much Stardust you’ll collect
 You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### By Catching Pokemon
 
@@ -434,6 +439,13 @@ Once you and your team defeat the Boss, you can collect the prizes. You’ll win
 If you defeat the boss, you’ll also get a chance to catch the Pokemon, which can bring you even more Stardust points!
 
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### By Getting Rocket Rewards
 
@@ -507,16 +519,22 @@ If you’re searching for ways to collect these items as quickly as possible and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-setting-up-audio-on-modern-windows-10/"><u>[New] 2024 Approved Setting Up Audio on Modern Windows 10</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premium-extensions-for-after-effects-magic/"><u>[Updated] Premium Extensions for After Effects Magic</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/boost-your-sites-performance-using-the-cutting-edge-technology-of-cookiebot/"><u>Boost Your Site's Performance Using the Cutting-Edge Technology of Cookiebot</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s23-phone-without-google-account-by-drfone-android/"><u>How to Unlock Samsung Galaxy S23 Phone without Google Account?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-from-choreography-to-clicks-making-tiktok-dancing-videos-for-mac/"><u>In 2024, From Choreography to Clicks Making TikTok Dancing Videos for Mac</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Xiaomi Redmi 12? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi K70? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-honor-x50iplus-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Honor X50i+? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Hot 30i | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-itel-a60s-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-discover-the-leading-free-game-recording-tools-for-2024/"><u>[New] Discover the Leading Free Game Recording Tools for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-discovering-prime-sources-and-techniques-for-cutting-tamil-ringtones/"><u>[New] Discovering Prime Sources & Techniques for Cutting Tamil Ringtones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/earn-to-convert-youtube-videos-into-text-no-cost-for-2024/"><u>[New] Learn to Convert YouTube Videos Into Text – No Cost for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-encompassing-vsco-photo-editor-explained-for-2024/"><u>[Updated] Encompassing VSCO Photo Editor Explained for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-nokia-130-music-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Nokia 130 Music Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-poco-c50-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Poco C50 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-vivo-y17s-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Vivo Y17s</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/step-by-step-guide-how-to-translate-tiktok-videos/"><u>Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-tutorial-on-how-to-erase-pictures-from-your-facebook-profile/"><u>Step-by-Step Tutorial on How to Erase Pictures From Your Facebook Profile</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Motorola Moto G24 | Dr.fone</u></a></li>
 </ul></div>
 

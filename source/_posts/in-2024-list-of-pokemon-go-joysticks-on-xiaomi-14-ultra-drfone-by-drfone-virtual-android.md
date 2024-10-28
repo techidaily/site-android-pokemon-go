@@ -1,7 +1,7 @@
 ---
 title: In 2024, List of Pokémon Go Joysticks On Xiaomi 14 Ultra | Dr.fone
-date: 2024-10-19T17:58:53.968Z
-updated: 2024-10-22T16:28:37.701Z
+date: 2024-10-24T20:37:43.073Z
+updated: 2024-10-28T19:28:17.863Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -112,13 +112,6 @@ Cons
 - This joystick has few options compared to other apps
 - The available free app has limited features
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Fake GPS Location – Routes and Joystick
 
 ![Fake any route you wish to with this app. ](https://images.wondershare.com/drfone/fake-gps-routes-and-joysticks.jpg)
@@ -144,6 +137,13 @@ Cons
 - To access the joystick option, you have to pay for the premium app
 - There are three modes priced differently with different options
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. iPogo Joystick
 
 ![Use iPogos to fake gps location.](https://images.wondershare.com/drfone/ipogo-joystick.jpg)
@@ -165,13 +165,6 @@ Pros
 Cons
 
 - You have to set your location to high accuracy to fake your location
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -233,6 +226,13 @@ While there are numerous benefits of using a Pokemon Go joystick, its constant u
 
     ![Pokemon Go Cooldown Duration](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - Software Hack on Jailbroken Devices
 
     To use a Pokemon Go joystick iOS hack, you might have to jailbreak your device. This can even null the warranty of your device and would make it susceptible to security threats. You might already know that a jailbroken device can easily be corrupted by the spoofer or any other app.
@@ -253,6 +253,19 @@ As you can see, picking a reliable Pokemon Go joystick is the most important thi
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 I hope that after following this guide, you would be able to know more about the fake GPS Pokemon Go hacks. As you can see, I have included all kinds of benefits and limitations of using a Pokemon Go joystick in this guide. If you don’t want to get your account banned for using a Pokemon joystick, then consider going with a reliable option like
@@ -262,13 +275,6 @@ I hope that after following this guide, you would be able to know more about the
 ## How Can I Catch the Regional Pokémon without Traveling On Xiaomi 14 Ultra
 
 The main goal that the designers of Pokémon Go had in mind for the past few years was to create a framework that prompts players to get off their loungers and go into the real world in search of Pokémon. If you are wondering why there are certain types of Pokémon enlisted as ‘blanks’ in your Pokedex and you haven’t yet found them, it’s probably because they are marked as ‘regional’ types. This means that these Pokémon are exclusively locked in select regions around the world. Don’t Panic! You don’t have to spend a boat load of cash in order to catch these special regional Pokémon as there are tricks you can apply to catch them without even stepping out of your kitchen.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: List of the regional Pokémon that have been announced
 
@@ -283,13 +289,6 @@ If you are not a frequent traveler or know fellow trainers who are willing to tr
 List of different Regional Pokémon – Where and How to Catch them All!
 
 As of now, there are over 40 different regional Pokémon divided across generations that can be captured or hatched only in specific expanses of the world. There are of course occasional overlaps of Pokémon slipping out of their region and into other sectors. Let’s get into the list of all the region-specific Pokémon of different generations and where to find them.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Gen 1/ Kanto Pokémon
 
@@ -307,6 +306,13 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Heracross:** South America/ Southern Florida.
 - **Corsola:** Equatorial Latitudes.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Gen 3/ Hoenn Pokémon
 
 ![hoenn pokemon](https://images.wondershare.com/drfone/2020/202010/hoenn-pokemon.jpg)
@@ -320,6 +326,13 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Illumise:** America and Africa.
 - **Seviper:** Currently America and Africa. Switches with Zangoose.
 - **Zangoose:** Currently in Europe, Australia, and Asia. Switches with Seviper.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Gen 4/ Sinnoh Pokémon
 
@@ -341,6 +354,13 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Pansage:** Asia/Pacific.
 - **Heatmor:** Western Hemisphere. Switches with Durant.
 - **Durant:** Eastern Hemisphere. Switches with Heatmor.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to use Dr.Fone - Virtual Location to catch Regional Pokémon
 
@@ -364,31 +384,24 @@ Get the USB cable and connect your iPhone to the PC. And then click ‘Get Start
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Check the Location**
 
 When the location map opens, click on ‘Centre On’ to accurately pinpoint the GPS to your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4: Activate teleport mode**
 
 Now, click on the icon given in the upper right-hand corner. Enter your desired location on the upper right field and then click ‘Go’.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5: Start Teleporting**
 
@@ -397,13 +410,6 @@ Once the location of your choice pops up, click ‘Move here’ in the pop-up bo
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Tips to help catch Regional Pokémon
 
@@ -416,10 +422,10 @@ Catching regional Pokémon is just like catching any regular Pokémon. When they
 - **Use Powerful Poke balls:** Last but definitely not least, use powerful balls like the Great Ball or Ultra Ball to maximize your chances of catching Pokémon. You should also remember that these are diminishable resources so use them wisely. On catching a Pokémon with a Great ball you will get 15x and with an Ultra ball you would get 2x so utilize them accordingly to catch rare and super rare Pokémon.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -440,24 +446,20 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-fast-snap-restoration-guide/"><u>[New] 2024 Approved Fast Snap Restoration Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-fun-on-a-budget-meme-creators-handbook/"><u>[Updated] Fun on a Budget – Meme Creator’s Handbook</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-simplifying-your-system-switch-from-sierra-to-os-x-1010/"><u>2024 Approved Simplifying Your System Switch From Sierra to OS X 10.10</u></a></li>
-<li><a href="https://win-forum.techidaily.com/effective-techniques-to-quickly-unfreeze-and-shut-down-hanging-windows-programs/"><u>Effective Techniques to Quickly Unfreeze and Shut Down Hanging Windows Programs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/guide-running-windows-powershell-with-administrator-privileges-on-windows-11/"><u>Guide: Running Windows PowerShell with Administrator Privileges on Windows 11</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 To Android devices? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-from-apple-iphone-se-2020-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number From Apple iPhone SE (2020)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/jurassic-world-evolution-how-to-fix-the-game-crash-issue/"><u>Jurassic World Evolution: How to Fix the Game Crash Issue?</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/mastering-hardware-a-guide-with-toms-insights/"><u>Mastering Hardware: A Guide with Tom's Insights</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Itel P40+? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Itel P40+? | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-the-common-update-failed-mistakes-in-warframe-a-comprehvee-guide/"><u>Resolving the Common 'Update Failed' Mistakes in Warframe - A Comprehvee Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-pivot-your-playlists-with-these-straightforward-tricks/"><u>[New] Pivot Your Playlists with These Straightforward Tricks</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-capture-crop-and-color-correct-with-this-lists-top-5-android-apps/"><u>[Updated] In 2024, Capture, Crop, and Color-Correct with This List's Top 5 Android Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-dotx-file-document-with-electronic-digital-signature-tutorial-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign .dotx file document with Electronic Digital Signature - (Tutorial)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Tecno Spark 20C? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/in-summary-avengers-endgame-is-often-seen-as-a-landmark-film-not-only-for-its-place-within-the-mcu-but-also-for-its-broader-influence-on-modern-cinemas-appr445/"><u>In Summary, Avengers: Endgame Is Often Seen as a Landmark Film Not only for Its Place Within the MCU but Also for Its Broader Influence on Modern Cinema's Approach to Franchise-Building and Storytelling Across Multiple Installments</u></a></li>
+<li><a href="https://review-topics.techidaily.com/nokia-c12-tutorial-bypass-lock-screen-security-password-pin-fingerprint-pattern-by-drfone-android-unlock-android-unlock/"><u>Nokia C12 Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723862715673-preview-the-acemagic-x1-before-it-hits-shelves-limited-time-offer-for-tech-enthusiasts/"><u>Preview the AceMagic X1 Before It Hits Shelves - Limited Time Offer for Tech Enthusiasts</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-honor-x50i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-the-ultimate-decision-final-cut-pro-or-lumafusion-for-your-video-needs/"><u>Updated In 2024, The Ultimate Decision Final Cut Pro or LumaFusion for Your Video Needs</u></a></li>
 </ul></div>
 

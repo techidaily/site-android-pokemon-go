@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to use Pokemon Go Joystick on Xiaomi Redmi 12? | Dr.fone
-date: 2024-10-16T21:40:41.874Z
-updated: 2024-10-23T01:27:05.447Z
+date: 2024-10-23T20:13:36.917Z
+updated: 2024-10-28T18:37:06.514Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -30,6 +30,13 @@ If you are an avid Pokemon Go player, then you might already know that the game 
 - There could be any other health or environmental condition, stopping you from going out.
 - The weather outside might not be suitable or safe to explore the Pokemon Go map on your own.
 - Any other possible reason for not being able to travel solely or having enough time to catch Pokemons.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Possible Risks for Using a Pokemon Go Joystick
 
@@ -66,10 +73,10 @@ Afterward, you can select the target location and the interface would automatica
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Simulate the iPhone Movement with a joystick**
@@ -81,6 +88,13 @@ To use the Pokemon Go joystick iOS solution, you can select the One-stop or Mult
 Afterward, you can enter the number of times you want to cover the route and even set up a preferred speed. Lastly, click on the “March” button to start the simulation on the map. You can also use a joystick at the bottom to move around realistically on Pokemon Go.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Video Guide:** Teleport to anywhere in the world!
 
@@ -97,10 +111,10 @@ To start with, you can just go to the Play Store page of the GPS Joystick app an
 ![GPS Joystick Android Install](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Afterward, go to its Settings > Developer Options and set the Pokemon Go spoofer APK the default mock location app.
@@ -114,6 +128,19 @@ Great! Now all you need to do is launch the GPS Joystick app and go to its Setti
 Besides that, you can also tap on the map option to directly enter the address or the name of the target location.
 
 ![pokemon go joystick](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-5.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can further visit the GPS Joystick settings to set up preferred walking, jogging, or running speeds for the simulated movement.
 
@@ -143,19 +170,6 @@ Great! Now, you can just launch the FGL Pro app on your phone and tap on the sea
 
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
 
 If you want to avoid getting your account banned and still use a reliable spoofing app for Pokemon Go, then consider the following tips:
@@ -171,13 +185,6 @@ If you want to avoid getting your account banned and still use a reliable spoofi
 
 There you go! By now, you would be able to implement these spoofing Pokemon Go tips and tricks. As you can see, there can be so many Pokemon Go spoofing iOS/Android solutions that you can explore. While there are plenty of Pokemon Go spoofer APK tools for Android devices, iOS users can try [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking your device, it will let you spoof its location and even simulate its movement to catch Pokemons remotely.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## iPogo will be the new iSpoofer On Xiaomi Redmi 12?
 
 If you are a sincere Pokemon Go player who sticks by the rules and plays the game, then you probably don’t know how hard it is to eliminate a location spoofer from the picture. The game attains new spheres and seems more interesting with a location spoofer involved. If you are an iOS user or an Android enthusiast who is eager for iSpoofer’s return or worried about iSpoofer Pogo not working, then this might just be the right article for you.
@@ -188,13 +195,6 @@ iSpoofer was discontinued two years ago, around 2019 and still remains out of ac
 
 ![iSpoofer-for-Android-and-iOS-pic-1](https://images.wondershare.com/drfone/2020/2020/iSpoofer-for-Android-and-iOS-pic-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The initial version remains unsupportive and shows ‘Maintenance’ pop up while you cannot download any new versions from their website. It still contains the old links on the site which are of no use to the current players. Tackling with too much will also result in account ban as Pokemon Go has strict rules that no third party applications will be entertained.
 
 Since we haven’t heard from iSpoofer in 2020, we can assume that they won’t be here for long and it would be a wise choice to look for alternatives.
@@ -204,13 +204,6 @@ Since we haven’t heard from iSpoofer in 2020, we can assume that they won’t 
 ![iSpoofer-PoGo-pic-2](https://images.wondershare.com/drfone/2020/2020/iSpoofer-PoGo-pic-2.jpg)
 
 It is hard to handle change especially when you are an iPhone user. There aren’t many apps that you can find on the App Store and you never know their authenticity. Even if you find a good location spoofer, you never know how long that is going to keep your location changed or if it will remain undetected. That being said - your first obvious option for spoofing Pokemon Go would be -
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Any App from the Apple App Store
 
@@ -254,6 +247,13 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 ![Move-Here-drfone-pic-8](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4** \- Your location change will happen automatically and within a few minutes, the new location will be registered on every site that you go to. So, you are covered!
 
 ![New-Location-on-map-drfone-pic-9](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
@@ -267,13 +267,6 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 ![Quick tips-for-no-ban-pic-10](https://images.wondershare.com/drfone/2020/2020/Quick%20tips-for-no-ban-pic-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 That being said, there aren’t any well-researched and ground rules as to how your spoofing should be so that you remain undetected. All we can do is pick up tips from someone else’s expertise. Apps like Dr.Fone will help you change your [virtual location](https://drfone.wondershare.com/virtual-location/fake-snapchat-location.html) without getting your account banned as they are designed to do this very job with perfection.
 
 ## Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi Redmi 12
@@ -283,6 +276,13 @@ Pokemon Go is a game that encourages players to interact with each other. One of
 If you have been playing Pokemon Go for a while, then you might already know how tough it can be to add friends. For instance, if you want to fight with other trainers, then you need to look for their Pokemon Go friend codes. Thankfully, there are some reliable social platforms to find Pokemon Go friends. In this post, I will let you know about them and would also list how to add friends in Pokemon Go.
 
 ![pokemon go friend codes banner](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes-banner.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: Where to find Pokemon Go Friend Codes?
 
@@ -317,13 +317,6 @@ Here are some of these popular Discord servers that you can join to find Pokemon
 - Pokemon Global Family
 
 ![dicord server pokedex100](https://images.wondershare.com/drfone/2020/202009/dicord-server-pokedex100.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Find Pokemon Go Friend Codes on Reddit?
 
@@ -368,6 +361,13 @@ Pokemon Go Friend Code is a dedicated online directory having thousands of train
 
 ![pokemon go friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Other sources**
 
 If you are looking for Pokemon Go friend codes, then the sky is the limit. Apart from dedicated apps and websites, you can also find Instagram pages, Twitter handles, and Quora spaces to exchange PoGo friend codes.
@@ -411,18 +411,19 @@ Now when you know how to make new friends in Pokemon Go, you can easily expand y
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-pivoting-from-srt-to-subtitle-format/"><u>[New] 2024 Approved Pivoting From SRT to Subtitle Format</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-action-in-full-hd-top-7-camcorders-for-thrills-for-2024/"><u>[New] Action in Full HD Top 7 Camcorders for Thrills for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-from-novice-to-expert-the-complete-powerdirector-journey/"><u>[New] From Novice to Expert The Complete PowerDirector Journey</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/comprehensive-techniques-for-lockingunlocking-fn-in-windows/"><u>Comprehensive Techniques for Locking/Unlocking Fn in Windows</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/guide-complet-pour-integrer-des-techniques-daugmentation-visuelle-dans-imovie/"><u>Guide Complet Pour Intégrer Des Techniques D'Augmentation Visuelle Dans iMovie</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-xiaomi-13t-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Xiaomi 13T Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Infinix Zero 30 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Xiaomi Redmi K70 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/speaking-the-language-of-voice-memos-a-comprehensive-guide-for-iphone-enthusiasts/"><u>Speaking the Language of Voice Memos – A Comprehensive Guide for iPhone Enthusiasts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-straightforward-video-recorders-for-win10/"><u>[New] Straightforward Video Recorders for Win10</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-essential-yoda-of-youtube-analytics-deciphering-earnings-and-viewer-counts/"><u>[New] The Essential Yoda of YouTube Analytics Deciphering Earnings & Viewer Counts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-top-6-mac-screen-capture-tools-expert-picks/"><u>[New] Top 6 Mac Screen Capture Tools - Expert Picks</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-10-best-free-luts-roundup-download-links-galore/"><u>[Updated] 10 Best Free LUTs Roundup - Download Links Galore</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-designing-striking-valorant-thumbnails-for-online-platforms/"><u>[Updated] In 2024, Designing Striking Valorant Thumbnails for Online Platforms</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-7-best-total-war-games-for-2024/"><u>[Updated] The 7 Best Total War Games for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/efficiently-sync-files-with-rsync-on-windows-10-a-comprehensive-guide/"><u>Efficiently Sync Files with Rsync on Windows 10: A Comprehensive Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Infinix Note 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Redmi 13C? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-13-pro-passcode-screen-drfone-by-drfone-ios/"><u>How to Unlock iPhone 13 Pro Passcode Screen? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Oppo Find X6? | Dr.fone</u></a></li>
 </ul></div>
 

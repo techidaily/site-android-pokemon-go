@@ -1,7 +1,7 @@
 ---
 title: In 2024, Why is iPogo not working On Itel A05s? Fixed | Dr.fone
-date: 2024-10-18T01:44:41.640Z
-updated: 2024-10-23T01:04:10.596Z
+date: 2024-10-23T16:11:55.325Z
+updated: 2024-10-28T20:26:21.169Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -59,6 +59,13 @@ It is often said that short cuts can cut you short or in this case, hacked! Disr
 
 **Note:** All of these installation methods have specific varied requirements which must be checked appropriately.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: A better alternative for iPogo - virtual location
 
 If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
@@ -68,6 +75,19 @@ If using the iPogo mod to enhance your gaming experience on Pokémon Go seem les
 - Adjust the speed of travel with three speed modes, like walking, cycling or even driving.
 - Manually move your GPS on the map freely using a virtual joystick in a 360 degree direction.
 - Simulate your avatar’s movements to travel on a determined route of your choice.
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step by Step Tutorial
 
@@ -79,25 +99,11 @@ Begin with downloading Dr.Fone – Virtual Location (iOS) on your PC. Then, inst
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Plug iPhone**
 
 Now, grab your iPhone and get it connected with the PC using the lightening cable. Once done, hit on “Get Started” to begin spoofing.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Check Location**
 
@@ -123,13 +129,6 @@ Now, the location is changed. You can now open any location based app on your iP
 
 Pokémon Go Plus mods like iPogo involves a certain degree of care in order to have a healthy game experience. Be sure to take pre-emptive measures suggested in this article and you would notice your device running smoothly in no time.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Reasons why Pokémon GPS does not Work On Itel A05s?
 
 There are several reasons for which Pokémon GPS does not work. Whether you are an android or iPhone user the issue remains and this means that you need to take precautionary steps. Some reasons for the issue are as follows:
@@ -138,6 +137,13 @@ There are several reasons for which Pokémon GPS does not work. Whether you are 
 2. The location of the player also matters a lot. If you are indoors then there is a possibility that you are getting into issues and not receiving GPS signals in full and this is all because of the poor connectivity and signal strength.
 
 ![GPS Signal Not Found Pokemon](https://drfone.wondershare.com/2020/GPS_Signal_Not_Found_Pokemon%2Cjpg.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: 3 Ways to fix Pokémon GPS not working on iOS devices
 
@@ -148,13 +154,6 @@ For iOS devices, many issues can be faced by users. This is because the GPS sign
 There is a possibility that the Wi-Fi is not working and this is the main reason that Pokémon Go gets you in trouble. To get the issue resolved it is advised to swipe down the command center and tap on the Wi-Fi signal icon to make sure that it is highlighted. Swipe up to check the game again.
 
 ![Turn On Wi Fi iPhone](https://drfone.wondershare.com/2020/Turn_On_Wi-Fi_iPhone.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fixture 2: Reload the game
 
@@ -181,10 +180,10 @@ Download the exe file and install the program, to begin with, the process.
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2: Virtual Location Enablement**
@@ -228,17 +227,10 @@ Swipe down to access the notification panel of the program. Make sure that the l
 ![Turn on location service andriod](https://drfone.wondershare.com/2020/Turn_on_location_service_andriod.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Restart the Itel A05s device
@@ -246,6 +238,13 @@ Swipe down to access the notification panel of the program. Make sure that the l
 This is another important way to get the GPS signal as it will refresh the phone. Just long-press the power button and select the option of restart from the screen that appears.
 
 ![Restart android phone](https://drfone.wondershare.com/2020/Restart_android_phone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Update the Application
 
@@ -262,6 +261,13 @@ The Dr. Fone Virtual location is the best and the most advanced program that can
 Pokémon Go is a viral game; hence many people try to cheat to achieve high scores and invade others' privacy. The good news is that the Pokémon company is very responsive to preventing and combating such attacks. Cooldown Pokémon go another such feature to deter cheating. So let us discuss what cooldown means.
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
@@ -298,6 +304,13 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -370,13 +383,6 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
@@ -417,17 +423,24 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-ranked-the-best-5-iphones-for-effortless-podcast-access/"><u>[New] Ranked The Best 5 iPhones for Effortless Podcast Access</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-adding-apple-music-to-video/"><u>In 2024, Adding Apple Music to Video</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Infinix Hot 40i? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-se-2020-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On iPhone SE (2020)?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-infinix-zero-30-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Infinix Zero 30 5G FRP Bypass</u></a></li>
-<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-vivo-y100a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Vivo Y100A | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/success-battleye-service-configuration-flaw-rectified-reliable-performance-achieved/"><u>Success! BattlEye Service Configuration Flaw Rectified – Reliable Performance Achieved</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Itel A05s | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Xiaomi 13T Pro | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/understanding-todays-top-networking-sites-insights-into-facebook-twitter-instagram-and-youtube/"><u>Understanding Today's Top Networking Sites: Insights Into Facebook, Twitter, Instagram, and YouTube</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-unveiling-the-top-methods-of-video-and-screenshots-for-2024/"><u>[New] Unveiling the Top Methods of Video & Screenshots for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-expand-your-online-realm-harnessing-youtube-insights-powerfully/"><u>[Updated] 2024 Approved Expand Your Online Realm Harnessing YouTube Insights Powerfully</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-find-the-perfect-free-video-editor-app-for-iphones-and-ipads/"><u>2024 Approved Find the Perfect Free Video Editor App for iPhones & iPads</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oneplus-open-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/cutting-edge-drones-pairing-perfectly-with-gopros/"><u>Cutting-Edge Drones Pairing Perfectly with GoPros</u></a></li>
+<li><a href="https://games-able.techidaily.com/explore-virtual-realms-with-these-games/"><u>Explore Virtual Realms with These Games</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725287989942-free-winx-dvd-ripper-convert-dvds-to-mp4avi-formats-compatible-with-ios-android-and-more/"><u>Free WinX DVD Ripper: Convert DVDs to MP4/AVI Formats Compatible with iOS, Android & More</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Note 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mastering-your-winx-dvd-experience-with-digiartys-step-by-step-manual-and-configuration-tips/"><u>Mastering Your WinX DVD Experience with Digiarty's Step-by-Step Manual & Configuration Tips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/retweeted-gifs-iphoneandroid-step-by-step-savings-for-2024/"><u>Retweeted Gifs IPhone/Android Step-by-Step Savings for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unveil-secrets-to-speedy-caption-design-in-facebook-media/"><u>Unveil Secrets to Speedy Caption Design in Facebook Media</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/windows-vista-cant-recognize-acer-aspire-e1-572-laptop-solved/"><u>Windows Vista Can't Recognize Acer Aspire E1-572 Laptop [Solved]</u></a></li>
 </ul></div>
 

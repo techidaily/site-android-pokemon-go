@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Xiaomi 13T Pro? | Dr.fone
-date: 2024-10-05T19:24:03.459Z
-updated: 2024-10-10T18:30:23.892Z
+date: 2024-10-26T17:28:15.080Z
+updated: 2024-10-28T18:24:49.486Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -79,6 +79,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.1 Action Replay Codes
 
 There are many action replay codes available on the Internet. Using these codes, you can easily capture legendary Pokemon available with the Pokemon Platinum Version.
@@ -86,6 +93,13 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -164,24 +178,18 @@ Before taking any drastic measures, make sure that the location services on your
 
 After that, you can restart the app and check if it would fix the GPS Pokemon Go issue or not.
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 2: Grant the Pokemon Go app Location Access
 
 Turning on the location services on your iPhone is not enough and you need to grant the GPS access to the Pokemon Go app. To fix the Pokemon Go GPS problem on your iPhone, simply visit its Settings > Privacy > Location Services. Now, from the list of the installed apps, select Pokemon Go and make sure it can access the GPS on your iPhone while running (or always).
 
 ![pokemon go location services](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-services.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3: Set Precise Location for Pokemon Go
 
@@ -192,10 +200,10 @@ To fix these Pokemon Go GPS issues, you can go to your phone’s Settings > Priv
 ![iphone precise location](https://images.wondershare.com/drfone/2020/pokemon/iphone-precise-location.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4: Step Into an Open Area
@@ -228,13 +236,6 @@ If you have not granted the location services permission to Pokemon Go, then you
 
 ![pokemon go location access](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-access.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 3: Reinstall the Pokemon Go App
 
 As listed above, one of the reasons for this Pokemon Go GPS bug could be a corrupt or outdated app. The easiest way to fix this is by uninstalling Pokemon Go on your phone. Afterward, restart your phone and go to Play Store to install Pokemon Go on your Xiaomi 13T Pro again.
@@ -250,13 +251,6 @@ If the Pokemon Go GPS is not accurate on your device, then you need to change it
 ### Fix 5: Contact Pokemon Go Support
 
 If the problem persists and you've tried all of the above steps, you can contact Pokemon Go's support team for further assistance. They may be able to provide specific guidance based on your device and situation.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Manually Set your Location to Any Place using Dr.Fone – Virtual Location (iOS)
 
@@ -294,9 +288,29 @@ Now, while some of your Pokémon in the game can evolve with the utmost ease, ot
 
 The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glowing bright red and orange, it is effortless to recognize in the game, immediately catching your eye even in the busiest of environments. Consider yourself lucky if you come across one casually.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2. Pokémon Go Sun Stone Evolutions Explained
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
@@ -309,13 +323,6 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
@@ -332,13 +339,6 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
 ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
 
@@ -372,6 +372,13 @@ Professor Willow will contact you directly and give you specific tasks you must 
 
 As a rule, special research will be more involved and will likely last longer than field research. However, your rewards will usually be much more valuable, and you’ll exponentially increase your chances of obtaining a Sun Stone.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Gyms and PokeStops
 
 Of course, you can always earn valuable rewards by simply visiting gyms and PokéStops and spinning the Photo Discs. Create a 7-day PokéStop streak, as that will guarantee you’ll get an evolution item.
@@ -380,13 +387,6 @@ While you’ll usually get a more common evolution item after your 7-day streak,
 
 Usually, it’s in your best interest to go to more popular areas with more PokéStops, as you’ll be able to make more spins faster.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5. How to Gather Sun Stones Efficiently
 
 ![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
@@ -394,10 +394,10 @@ Usually, it’s in your best interest to go to more popular areas with more Pok�
 Field research, special research, and spinning gyms and PokéStops are the only ways you could acquire the Sun Stone in Pokémon Go. However, that doesn’t mean you’ll need to grind day in and day out, trying to explore as much of your neighborhood as possible while playing. You can always make things a bit more efficient than that.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Complete Field Research Tasks Quickly
@@ -455,22 +455,20 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-innovative-rhythms-with-the-magix-groove-master-suite-for-2024/"><u>[New] Innovative Rhythms with the Magix Groove Master Suite for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-navigating-instagrams-video-landscape-a-detailed-look/"><u>[New] Navigating Instagram's Video Landscape A Detailed Look</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-audience-engagement-excellence-spreading-stories-on-facebook/"><u>[Updated] Audience Engagement Excellence Spreading Stories on Facebook</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/mp4and-t17262285339451/"><u>「立即轉成MP4：最快&最簡單革命性教學解決如何任一影片轉格」</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1725289321191-windows-10/"><u>顺利将 Windows 10 引入计算机或笔记本：全新的下载与安装指南</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Itel P55 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-realme-c53-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Realme C53 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Oppo Find X6? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-quora-poe-blueprint-for-ai-conversation/"><u>The Quora PoE Blueprint for AI Conversation</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/zoom-mastery-maximizing-your-podcast-recording-quality/"><u>Zoom Mastery Maximizing Your Podcast Recording Quality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/glwssapoikia-eyxhs-kalhs/"><u>Γλωσσαποικία Ευχής Καλής</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utting-edge-pc-techniques-for-stellar-youtube-video-production/"><u>[New] Cutting-Edge PC Techniques for Stellar YouTube Video Production</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-unlocking-the-power-of-closed-captions-on-vimeo-for-2024/"><u>[New] Unlocking the Power of Closed Captions on Vimeo for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-3-step-guide-to-ascertain-googles-profitable-potential-youtube-analysis-for-2024/"><u>[Updated] 3-Step Guide to Ascertain Google's Profitable Potential YouTube Analysis for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-nokia-c300-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/cat-s22-flip-assessment-the-perfect-blend-of-classic-style-and-advanced-connectivity-in-rugged-conditions-gadgetflow/"><u>CAT S22 Flip Assessment - The Perfect Blend of Classic Style & Advanced Connectivity in Rugged Conditions | GadgetFlow</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comparing-leading-names-in-4k-yt-video-to-mp3-tools/"><u>Comparing Leading Names in 4K YT Video to MP3 Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-engagement-essential-apps-for-insta-growth-for-2024/"><u>Elevate Your Engagement Essential Apps for Insta Growth for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-top-14-youtube-gaming-video-ideas-to-boost-gaming-channels/"><u>In 2024, Top 14 YouTube Gaming Video Ideas to Boost Gaming Channels</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-6-causes-of-a-sluggish-iphone-diagnosis-and-solutions/"><u>Top 6 Causes of a Sluggish iPhone: Diagnosis & Solutions</u></a></li>
 </ul></div>
 

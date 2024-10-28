@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Itel A60s | Dr.fone
-date: 2024-10-17T21:55:46.773Z
-updated: 2024-10-22T16:32:58.231Z
+date: 2024-10-27T17:34:05.514Z
+updated: 2024-10-28T16:17:24.671Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,13 +29,6 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -58,16 +51,16 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -81,13 +74,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -118,6 +104,13 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -143,15 +136,22 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Select a location to teleport
@@ -169,6 +169,13 @@ Now, you can choose the location by entering its name in the search bar or coord
 When you reach the target location and move your pin, click the "Move Here" button.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Voila! You have teleported your location to the desired place.
 
@@ -200,6 +207,13 @@ Getting banned for cheating Pokémon is nothing new. Niantic always modifies the
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Firstly, punishment:** On the first fake strike, you will get a warning message, but you still can play the game. But, while plying, you will not be able to anything remotely for about seven days.
 
 **Secondly, Punishment:** On the second fake strike, Niantic may close your account temporarily for a month. It also gives you a warning message for future misuse of the game.
@@ -218,13 +232,6 @@ No, you can spoof Pokémon Go with the best spoofing tools like PGSHarp and Dr.F
 
 This tool is safe and secure to use, plus it offers a real map interface, and it is difficult for Niantic to catch it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Avoid Being Banned From Spoofing
 
 There are tricks that help you save from the Pokémon Go ban.
@@ -235,6 +242,13 @@ There are tricks that help you save from the Pokémon Go ban.
 - Finally, do not root your Phone, be it Android or iPhone. It is because when you root your device, its security gets compromised, and it is easy to get data about your device’s fake location. And, your Pokémon Go account also can be at risk.
 
 Therefore, in order to catch special and maximum Pokémon, you do not need to cheat the game, only PGSharp is enough. With this, you can play the game just by sitting at your home. All you need to do is install PGSharp on your device and launch it.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: What makes PGSharp best app to spoof Pokémon Go
 
@@ -262,23 +276,9 @@ If you want to catch a rare Pokémon with iPhone but don’t want to leave your 
 
 ![drfone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Dr.fone for iPhone is a safe and secure spoofing app that helps you catch Pokémon anywhere in the world.
 
 Plus, with this, you also do not need to jailbreak your device. It doesn’t breach your data and save you from the Pokémon ban too.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Spoof Your Location to a Certain Place
 
@@ -293,13 +293,6 @@ Apart from Pokémon Go, you can also spoof dating apps and can hide your current
 The best part is that you can simulate the route according to your desire with Dr.Fone. There you will get teleport mode, one-stop mode, and multi-stop mode. You can choose your route and can simulate speed accordingly.
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/save-you-from-ban-while-spoofing-pokemon-go.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 There you will get a walking speed and vehicle speed option that you can customize according to your needs to catch Pokémon.
 
@@ -349,6 +342,13 @@ Subsequently, activate the "teleport mode" by clicking the icon shown in the ima
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5: Change Location**
 
 Upon clicking on "go", a pop-up will appear showing you the distance of the location you have chosen. Tap on “Move Here” and the location would now be set to the location entered by you. Click on "center on" to check your location.
@@ -392,18 +392,20 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-aesthetic-adjustments-iphones-pro-image-cropping-apps/"><u>[New] Aesthetic Adjustments IPhone's Pro Image Cropping Apps</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-top-tier-photographic-archives/"><u>2024 Approved Top Tier Photographic Archives</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/hassle-free-techniques-for-correcting-errors-in-discordjs/"><u>Hassle-Free Techniques for Correcting Errors in DiscordJS</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Itel A70 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unleash-creativity-with-these-top-free-slideshow-templates/"><u>In 2024, Unleash Creativity with These Top Free Slideshow Templates</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-the-remedy-for-error-code-0x80071a90/"><u>Mastering the Remedy for Error Code: 0X80071A90</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/1726030264211-mp3/"><u>MP3ファイルの効果的なループエディット手順</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/repair-steams-voice-call-feature-when-it-wont-work-properly/"><u>Repair Steam's Voice Call Feature When It Won't Work Properly</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/schritt-fur-schritt-anleitung-zur-kostenlosen-wiederherstellung-grosser-geloschter-dateien-in-windows-781011-lassen-sie-nichts-verschwinden/"><u>Schritt-Für-Schritt-Anleitung Zur Kostenlosen Wiederherstellung Großer Gelöschter Dateien in Windows 7/8/10/11 - Lassen Sie Nichts Verschwinden!</u></a></li>
-<li><a href="https://games-able.techidaily.com/sharing-game-experiences-with-friends-on-ps5/"><u>Sharing Game Experiences with Friends on PS5</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-picture-in-picture-feature-in-chrome-anywhere/"><u>[Updated] Mastering Picture In Picture Feature in Chrome, Anywhere</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-huawei-nova-y91-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Huawei Nova Y91 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-itel-a60-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/beat-the-lag-in-pc-and-console-games-with-these-essential-tips-2024-edition/"><u>Beat the Lag in PC & Console Games with These Essential Tips - 2024 Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/content-creators-dilemma-which-site-reigns-vimeo-youtube-for-2024/"><u>Content Creators' Dilemma Which Site Reigns - Vimeo, YouTube for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Infinix Hot 40? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-oneplus-open-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked OnePlus Open? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-experts-manual-to-windows-10-prowess/"><u>In 2024, The Expert's Manual to WINDOWS 10 Prowess</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-realme-gt-neo-5-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Realme GT Neo 5 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-wow-voice-chat-solutions-for-players-experiencing-difficulties/"><u>Troubleshooting WoW Voice Chat - Solutions for Players Experiencing Difficulties</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/weighing-up-pros-and-cons-making-sense-of-chatgpt-plus-features/"><u>Weighing Up Pros and Cons: Making Sense of ChatGPT Plus Features</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On OnePlus Nord N30 5G | Dr.fone</u></a></li>
 </ul></div>
 
