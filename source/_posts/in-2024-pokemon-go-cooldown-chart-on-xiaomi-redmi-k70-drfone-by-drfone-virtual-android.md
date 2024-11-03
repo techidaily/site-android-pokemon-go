@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Xiaomi Redmi K70 | Dr.fone
-date: 2024-10-24T16:09:39.949Z
-updated: 2024-10-28T16:44:07.801Z
+date: 2024-10-28T02:17:47.254Z
+updated: 2024-11-03T10:25:06.549Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,16 +25,22 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
@@ -61,6 +67,13 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -133,6 +146,13 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
@@ -187,6 +207,13 @@ As you can see, Stardust is crucial for numerous gameplay experiences, so you sh
 
 Since having Stardust is crucial for your Pokemon Go experience, you may be looking for the best ways to accumulate as many consumables as possible. We’ll present a couple of ways to reach your goals below.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Through Pvp Rewards
 
 One of the best ways to earn Stardust is through Player versus Player features. When you’re playing with other users, you can earn Stardust based on the number of your previous wins, your game level, and the PVP outcome.
@@ -221,6 +248,13 @@ You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### By Catching Pokemon
 
 Catching Pokemon is one of the most efficient ways of earning Stardust points. Each Pokemon has a base rate of 100 Stardust points, but you can earn more points depending on the Pokemon’s evolution stage. For instance, if the Pokemon is in the second stage, you’ll earn an additional 500 Stardust points.
@@ -242,23 +276,10 @@ If you defeat the boss, you’ll also get a chance to catch the Pokemon, which c
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### By Getting Rocket Rewards
@@ -327,13 +348,6 @@ If you’re searching for ways to collect these items as quickly as possible and
 
 _**Tips:** Are you finding the 100 IV Pokémon Go map? Discover the ultimate solution with Dr.Fone - Virtual Location, your key to pinpointing and capturing those coveted 100 IV Pokémon! Try it now and unlock endless possibilities!_
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: What Does 100 IV Mean in Pokémon Go?
 
 IV stands for Individual Value, which depicts the overall performance of any Pokémon in the game. You can say that it is a kind of rank of Pokémon in the game. Ideally, not all Pokémon of the same species have the exact efficiencies. Any Pokémon in the game is measured by three tactics – attack, defense, and stamina. A value from 0 to 15 is allocated for all these parameters. A Pokémon with 15/15/15 perfect stats would get a 100 Individual Value.
@@ -391,13 +405,6 @@ Trading is one way to improve the chances of catching the 100 IV Pokémon Go map
 
 But, again, trading Pokémon is not very helpful. If you only rely on trading, you may have to wait for a long time for perfect IVs.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: The 5 Best 100 IV Pokémon Go Maps to Try
 
 Apart from the above-listed tips, you can also use a **100 IV Pokémon Go map** to check the spawning location of these Pokémon. The populated areas and cities heavily rely on reporting rare Pokémon locations. To know the location of the best Pokémon, you can use Pokémon maps. With the maps, you can get live locations of all the rarest and 100 IV Pokémon Go maps.
@@ -424,13 +431,6 @@ Further, the map shows the gym in red and Pokestops in blue by default. Therefor
 
 ![pokemongomap](https://images.wondershare.com/drfone/2023/virtuallocation/EX-Raid-Gym-Map-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can also search for postcodes in Pokémon Go Map. But this map is not affiliated with Pokémon Go or Niantic. So, you need to download it from the site.
 
 ### 3\. PokeDex 100
@@ -451,19 +451,6 @@ If you want to track a specific Pokémon, then Poke Radar is the best Pokémon G
 
 ![poke radar for android](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-5.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This map also has a helpful despawn counter, which tells the players about the disappearing time of Pokémon. The rare Pokémon often has a short time the spawn.
 
 This map is for Android devices. However, it is not available on the Play Store, so you need to install it from a third-party source.
@@ -473,13 +460,6 @@ _You may be interested in: [8 Best Alternatives of PokeCrew: Find Pokemons on an
 ## Part 5: An Expert Tip to Catch 100 IV Pokémon Sitting at Home?
 
 Using a 100 IV Pokémon Go map, you can easily know their spawning locations and whereabouts. Since it is not possible to physically visit these locations to catch Pokémon, you can spoof your iPhone location instead. To do that, just take the assistance of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With just a few clicks, it will let you spoof your iPhone location without jailbreaking or undergoing any technical hassle.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
 
@@ -495,6 +475,13 @@ Catch 100 IV Pokémon without moving!
 
 If you want to spoof your Pokémon Go virtual location on Android, you can refer to the detailed guide [here](https://drfone.wondershare.com/virtual-location/pokemon-go-spoofing-android.html).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Teleport anywhere in the world
 
 After connecting your iPhone to the application, go to its Teleport mode and enter the coordinates or the address of any location. You can obtain these coordinates from a **Pokémon Go 100 IV map**. Later, you can adjust the pin on the map and drop it anywhere. This will spoof your iPhone location to the designated place so that you can catch more Pokémon.
@@ -506,6 +493,13 @@ After connecting your iPhone to the application, go to its Teleport mode and ent
 If you wish to evolve your Pokémon or simulate your movement, then use the one-stop or multi-stop mode of the application. You can drop different stops in a route, enter the number of times you want to cover it, and can even specify your preferred speed. The application also has a GPS joystick that would further help you simulate your movement realistically.
 
 ![virtual location 15](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/r2GiOQxwfQc" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
@@ -527,15 +521,22 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-boost-your-videos-popularity-on-youtube/"><u>[New] 2024 Approved Boost Your Video's Popularity on YouTube</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-premier-ios-ps2-emulation-tools/"><u>[Updated] In 2024, Premier iOS PS2 Emulation Tools</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-for-amateurs-and-pros-on-windows-11-video-creation/"><u>2024 Approved The Ultimate Guide for Amateurs & Pros on Windows 11 Video Creation</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725289449378-10/"><u>最新オーディオ技術を駆使したトップ10無料ミュージックプレイヤー、ご紹介します！</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/enhance-call-clarity-choose-from-the-best-10-free-recorders/"><u>Enhance Call Clarity Choose From the Best 10 Free Recorders</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/pause-the-siri-vs-chatgpt-comparison-why-theyre-notalike/"><u>Pause the Siri Vs. ChatGPT Comparison: Why They're Notalike</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-adjust-your-video-feedback-control-in-youtube-for-2024/"><u>[New] Adjust Your Video Feedback Control in YouTube for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-controlling-playback-rate-the-netflix-speedy-guide/"><u>2024 Approved Controlling Playback Rate The Netflix Speedy Guide</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-do-you-know-that-you-can-apply-different-luts-and-create-your-own-there-are-many-lut-online-and-offline-generators-that-you-can-use-to-create-/"><u>2024 Approved Do You Know that You Can Apply Different LUTs and Create Your Own? There Are Many LUT Online and Offline Generators that You Can Use to Create Your LUT</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/exploring-mobile-youtube-usage-on-different-oses-for-2024/"><u>Exploring Mobile YouTube Usage on Different OSes for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Itel P55 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-infinix-note-30-vip-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Infinix Note 30 VIP FRP</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-say-goodbye-to-watermarks-top-online-tiktok-logo-removers/"><u>New In 2024, Say Goodbye to Watermarks Top Online TikTok Logo Removers</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/no-more-waiting-on-deliveries-amazons-revolutionary-free-drone-service-brings-you-prescriptions-fast/"><u>No More Waiting on Deliveries - Amazon's Revolutionary Free Drone Service Brings You Prescriptions Fast!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-nokia-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Nokia</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-plans-retrieving-a-disabled-facebook-profile/"><u>Strategic Plans: Retrieving a Disabled Facebook Profile</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone
-date: 2024-10-23T16:54:11.705Z
-updated: 2024-10-28T18:01:20.219Z
+date: 2024-10-28T14:53:35.722Z
+updated: 2024-11-02T18:46:20.790Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -33,13 +33,6 @@ The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glow
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
 Depending on the specific Pokémon you want to evolve, you might need additional items or even need to perform a particular task. Some Pokémon will need to be walked as your Buddy Pokémon before they can evolve. Others can be evolved through trading them. Others can only evolve with the help of evolution items like the Sun Stone.
@@ -51,13 +44,6 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
@@ -71,16 +57,16 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
 ![sun stone and helioptile in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 While certainly not the rarest evolution item in Pokémon Go, that title belonging to the ever-elusive Axew's Unova Stone, the Sun Stone will still make you work for it. Only the lucky few are able to come across it randomly, as it comes with a mere 1% drop chance.
 
@@ -122,6 +108,13 @@ While you’ll usually get a more common evolution item after your 7-day streak,
 
 Usually, it’s in your best interest to go to more popular areas with more PokéStops, as you’ll be able to make more spins faster.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5. How to Gather Sun Stones Efficiently
 
 ![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
@@ -159,13 +152,6 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pay Attention to Community Days and Special Events
 
 Finally, to start getting Sun Stones and other rarer items more efficiently, you’ll always want to pay close attention to community days and special events. Pokémon Go is a very active game with frequent high-rewarding events that could happen at any time. Since these events are time-limited, you’ll always want to know precisely when they start and end.
@@ -185,10 +171,10 @@ Dratini is one of the Pokémon creatures that resemble a snake. It has an elonga
 Dratini has an energy level that is constantly increasing, which makes it grow and can reach a length of more than 6 feet. It sheds its skin every time it has to grow, and usually hide behind a waterfall when shedding. The colony of Dratini lives underwater, living at the bottom feeding on food that falls from the upper levels. Outrage is the signature move for this Pokémon creature.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: What’s the evolution of Dratini?
@@ -202,6 +188,19 @@ The first un-evolved version is the serpentine Dratini that looks like a snake a
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
 
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Dragonite
 
@@ -270,6 +269,13 @@ Camping and looking for other Pokémon in the area will help you cool down and t
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is how your location will be viewed on the map.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
@@ -291,6 +297,13 @@ Embracing new challenges and seeking out rare creatures to add to their Pokédex
 This makes it a unique challenge for trainers seeking to add this heavyweight Pokémon to their collection. In this guide, we will go through the latest strategies and updates in the Pokémon GO universe. The aim is to reveal the secrets to catching a **Pokémon Sleeping Snorlax** in 2024. Read the article as we explore the techniques, locations, and special events that will increase your chances of capturing this Pokémon.
 
 ![sleeping snorlax pokemon go](https://images.wondershare.com/drfone/article/2024/01/how-to-catch-pokemon-sleeping-snorlax-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: What Is a Sleeping Snorlax in Pokémon GO
 
@@ -372,17 +385,16 @@ Many users have reported increased sightings of Snorlax even after the event whe
 ![connect your pokemon go](https://images.wondershare.com/drfone/article/2024/01/how-to-catch-pokemon-sleeping-snorlax-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Enhance Your Gaming Experience With One-Click Location Spoofer of 2024
@@ -409,18 +421,18 @@ Open Wondershare Dr.Fone - Virtual Location, connect your smartphone with an ori
 
 ![switch to teleport mode](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 2.** **Teleport to the Chosen Location**
 
 As you enter the desired location, the map will confirm your selection. If you wish to teleport to this designated location, click on "Move Here." The smartphone's location will promptly switch to the chosen destination and reflect on the map. You can then verify that the Xiaomi Civi 3 Disney 100th Anniversary Edition device's current location matches the updated location by opening the maps app on the Xiaomi Civi 3 Disney 100th Anniversary Edition device.
 
 ![move to the required location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Step 3.** **Simulate Movement with One-Stop Route**
 
@@ -452,20 +464,21 @@ In conclusion, the pursuit of capturing a **Snorlax Pokémon sleeping** in Poké
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-where-innovation-meets-vr-watching/"><u>[Updated] 2024 Approved Where Innovation Meets VR Watching</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-conquer-with-titans-top-7-strategic-multiplayer-battles/"><u>2024 Approved Conquer with Titans Top 7 Strategic Multiplayer Battles</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-frame-to-phrase-expertly-ranked-29-video-translators-on-the-market/"><u>2024 Approved From Frame to Phrase Expertly Ranked 29 Video Translators on the Market</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/assessing-the-value-of-4-second-rapid-subscriptions-on-youtube/"><u>Assessing the Value of 4-Second Rapid Subscriptions on Youtube</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/guide-sending-and-receiving-imessages-on-windows-platforms-tips-from-zdnet/"><u>Guide: Sending & Receiving iMessages on Windows Platforms - Tips From ZDNet</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Nokia C22? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/redefining-interactive-entertainment-with-ai-gaming-tech/"><u>Redefining Interactive Entertainment with AI Gaming Tech</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/transform-your-livestreams-with-manycam-unbeatable-virtual-webcam-software-for-vloggers-and-gamers-alike/"><u>Transform Your Livestreams with ManyCam: Unbeatable Virtual Webcam Software for Vloggers and Gamers Alike</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-free-screen-cast-tools-for-windows-ranked-1-5-for-2024/"><u>Ultimate Free Screen Cast Tools for Windows, Ranked #1-5 for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-preserve-precision-4-advanced-screen-recording-for-gamers/"><u>[New] 2024 Approved Preserve Precision 4 Advanced Screen Recording for Gamers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-pro-level-screen-recorder-showdown/"><u>[New] In 2024, Pro-Level Screen Recorder Showdown</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-photo-to-film-the-cinematic-edge-of-iphone-x/"><u>[Updated] From Photo to Film The Cinematic Edge of iPhone X</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-beneath-the-spotlight-top-youtube-events-after-vidcon/"><u>[Updated] In 2024, Beneath the Spotlight Top YouTube Events After VidCon</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ai5/"><u>「ウィンクスビデオAIでの音声と音楽ファイルの変換＆抽出手順：5ページ目ガイド」</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-10-ultimate-apps-for-seamless-youtube-to-webm-conversion/"><u>2024 Approved Top 10 Ultimate Apps for Seamless YouTube to WebM Conversion</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/freshly-updated-mpow-bluetooth-driver-software-free-downloads-now-available/"><u>Freshly Updated MPOW Bluetooth Driver Software - Free Downloads Now Available</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723205397157-how-to-resolve-common-issues-apex-legends-cheating-protection-bugs-fixed/"><u>How to Resolve Common Issues: Apex Legends Cheating Protection Bugs Fixed!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Sony Xperia 5 V? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/set-new-directory-for-mac-image-backups-for-2024/"><u>Set New Directory for Mac Image Backups for 2024</u></a></li>
 </ul></div>
 

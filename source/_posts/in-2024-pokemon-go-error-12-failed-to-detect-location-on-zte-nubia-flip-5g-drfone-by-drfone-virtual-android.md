@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On ZTE Nubia Flip 5G? | Dr.fone
-date: 2024-10-23T19:27:54.067Z
-updated: 2024-10-28T16:52:15.368Z
+date: 2024-10-30T12:33:18.632Z
+updated: 2024-11-03T06:26:35.934Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -71,13 +71,6 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Reboot the ZTE Nubia Flip 5G device
 
 This might seems weird but this trick has been working to quiet some time now and has been proven to eliminate the failed location 12 Pokémon Go issue. There is a possibility that the server location is not synced with the ZTE Nubia Flip 5G device. Restarting the ZTE Nubia Flip 5G device will make sure that both the locations are sync and the problem is resolved with ease.
@@ -85,13 +78,6 @@ This might seems weird but this trick has been working to quiet some time now an
 Just long-press the power button and choose the reboot option from the menu that appears to complete the process in full.
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
@@ -136,6 +122,13 @@ Click on move here and the system will move you to the location that has been en
 The location will be locked by the program and your iPhone will also show the same location as on Dr. Fone. This also completes the process in full:
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -185,16 +178,16 @@ iSpoofer for pogo installation has the following disadvantages -
 
 All these issues are overcome with great detail by Dr. Fone Virtual Location (iOS) by Wondershare.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Safer tool to spoof pokemon- drfone virtual location
 
 Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations. [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) by Wondershare is the new, safer app to spoof in Pokemon Go. The app uses mock location services to help you teleport to anywhere across the world. This also allows you to be safe from the detection software in Pokemon Go.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What are the benefits of using Dr. Fone Virtual Location?
 
@@ -235,13 +228,6 @@ Your spoofed location is now the default location of your phone, and all the app
 
 The teleportation is now complete. Enjoy playing the game with no lags or errors.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Alert
 
 While spoofing between two distant locations give the required amount of time for the cooldown timer to reach zero. If you decide to spoof too quickly, you will automatically trigger a soft ban, and you will not be able to play most parts of the game like catching Pokemon or spinning Pokestops. If this occurs consistently over multiple occasions, it will trigger Niantic’s warning and may end up getting a permanent ban. It has a 3-strike policy. 3 warnings are given before the account is permanently deleted.
@@ -249,6 +235,13 @@ While spoofing between two distant locations give the required amount of time fo
 The notice looks like this -
 
 ![pokemon go account ban](https://images.wondershare.com/drfone/2020/2020/pokemon-go-account-ban.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The cool-down period between two locations is based on distance and you can refer to the table below to understand the time you need to wait before logging in again.
 
@@ -265,13 +258,6 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 The news of every Pokémon Go player being able to shift to Pokémon Home was taken in with a flavorsome acceptance from the community of trainers. Home Event for the highly successful mobile game is advancing towards termination, and this has ensued in reckless people demanding to know ways to get a Mystery Box so they can acquire a Shiny Meltan.
 
 ![pokemon go](https://drfone.wondershare.com/2020/pokemon-go.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: How to get a mystery box in Pokémon Go?
 
@@ -291,23 +277,9 @@ Reportedly, you are required to have the mobile version of Home connected to you
 
 ![sign in to your account](https://drfone.wondershare.com/2020/sign-in-to-your-account.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Enter your username and password. Press ‘OK’ to return to the previous screen.
 
 ![](https://drfone.wondershare.com/2020/enter-your-password.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 On execution of the above instructions, follow the directions below to move a Pokémon Go creature to Home App:-   Open Pokémon Go and access the ‘Main Menu’ by pressing the PokeBall icon.
 
@@ -321,9 +293,23 @@ On execution of the above instructions, follow the directions below to move a Po
 
 ![click on send pokemon](https://drfone.wondershare.com/2020/click-on-send-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - Press Continue
 
 ![press continue button](https://drfone.wondershare.com/2020/press-continue-button.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - Select the Pokémon you want to relocate
 - Click ‘Next’
@@ -333,13 +319,6 @@ On execution of the above instructions, follow the directions below to move a Po
 - Tap ‘Transport’ to accept after confirming your pick.
 
 ![tap transport](https://drfone.wondershare.com/2020/tap-transport.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - Press ‘Done’
 
@@ -353,6 +332,13 @@ On execution of the above instructions, follow the directions below to move a Po
 - Click ‘Yes’ on the Pokémon Go Link message.
 
 ![proceed by clicking on yes](https://drfone.wondershare.com/2020/proceed-by-clicking-on-yes.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - Select ‘View Transferred Pokémon’
 
@@ -386,6 +372,13 @@ Select your current location on the map. Next, click the leftmost button on the 
 
 ![virtual location 8](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Imitate Movement between steps:**
 
 To start the simulation, make a movement and traverse to the ‘Move Here’ button to reach multiple times. By default, the motion is adjusted to ‘1’, but it can be replaced by the user to switch the program correspondingly.
@@ -414,6 +407,13 @@ The Mystery Box will act as an essence precisely for Meltan, attracting a large 
 
 ![pokemon home vs pokemon go](https://drfone.wondershare.com/2020/pokemon-home-vs-pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Pokémon is one of the most enjoyable games, not only because it yields prizes such as the mystery box Pokémon, Meltan Pokémon, shiny Meltan Pokémon go, but it also develops players' interest completely. It manifests a 3D view making it appear as the actual life. Furthermore, with an application like Dr. Fone Virtual Location, you turn out to be an addict as it helps you imitate your GPS position and proceed across the path you set up on the map.
@@ -432,18 +432,20 @@ Pokémon is one of the most enjoyable games, not only because it yields prizes s
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-expert-tips-for-youtube-short-pitfall-prevention/"><u>[New] 2024 Approved Expert Tips for YouTube Short Pitfall Prevention</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-picart-skills-erasing-unwanted-image-backdrops/"><u>[New] 2024 Approved PicArt Skills Erasing Unwanted Image Backdrops</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-elite-compilation-9-online-mic-recorders-ranked/"><u>[New] 2024 Approved The Elite Compilation 9 Online Mic Recorders Ranked</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-superior-sd-cards-that-power-up-your-gopro-hero-78/"><u>2024 Approved Superior SD Cards that Power Up Your GoPro Hero 7/8</u></a></li>
-<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-apple-iphone-8-by-drfone-ios/"><u>Guide on How To Remove Apple ID From Apple iPhone 8</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-oppo-a59-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Oppo A59 5G FRP</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Motorola Edge 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/journey-blueprint-top-picks-of-seven-ai-apps-for-free-travel-planning/"><u>Journey Blueprint: Top Picks of Seven AI Apps for FREE Travel Planning</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/march-2024-ultimate-soundtrack-exclusive-headphone-offers-and-comparisons-gizmodo/"><u>March 2024 Ultimate Soundtrack: Exclusive Headphone Offers and Comparisons | Gizmodo</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlock-the-power-of-digital-access-create-any-type-of-ticket-with-google-wallet-a-step-by-step-guide-tech-times/"><u>Unlock the Power of Digital Access: Create Any Type of Ticket with Google Wallet – A Step-by-Step Guide | Tech Times</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Oppo Reno 8T? | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-clip-of-fame-vimeo-quick-look/"><u>[New] Clip of Fame Vimeo Quick Look</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unveiling-the-secrets-of-adobe-cloud-and-alternative-storage-solutions/"><u>[Updated] Unveiling the Secrets of Adobe Cloud & Alternative Storage Solutions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Infinix Note 30i? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-binge-worthy-music-reaction-videos-on-youtube-for-2024/"><u>How to Binge-Worthy Music Reaction Videos on YouTube for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-a56s-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo A56s 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-14-pro-max-passcode-screen-drfone-by-drfone-ios/"><u>How to Unlock iPhone 14 Pro Max Passcode Screen? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instaloops-unleashed-the-ultimate-guide-to-engagement/"><u>In 2024, InstaLoops Unleashed The Ultimate Guide to Engagement</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-igtv-gurus-you-cant-miss-for-2024/"><u>Top IGTV Gurus You Can't Miss for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Motorola Moto E13? | Dr.fone</u></a></li>
 </ul></div>
 

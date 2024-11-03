@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Xiaomi 14 Ultra | Dr.fone
-date: 2024-10-21T18:45:39.908Z
-updated: 2024-10-28T17:23:00.921Z
+date: 2024-11-01T08:06:19.856Z
+updated: 2024-11-03T04:20:22.831Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,6 +24,13 @@ What is a cooldown? Cooldown Time restricts to stop a player from repeating mult
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
 
@@ -54,13 +61,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -143,6 +143,13 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
@@ -153,13 +160,6 @@ Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
 ### Conclusion
@@ -169,13 +169,6 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 ## How Can I Catch the Regional Pokémon without Traveling On Xiaomi 14 Ultra
 
 The main goal that the designers of Pokémon Go had in mind for the past few years was to create a framework that prompts players to get off their loungers and go into the real world in search of Pokémon. If you are wondering why there are certain types of Pokémon enlisted as ‘blanks’ in your Pokedex and you haven’t yet found them, it’s probably because they are marked as ‘regional’ types. This means that these Pokémon are exclusively locked in select regions around the world. Don’t Panic! You don’t have to spend a boat load of cash in order to catch these special regional Pokémon as there are tricks you can apply to catch them without even stepping out of your kitchen.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: List of the regional Pokémon that have been announced
 
@@ -190,6 +183,13 @@ If you are not a frequent traveler or know fellow trainers who are willing to tr
 List of different Regional Pokémon – Where and How to Catch them All!
 
 As of now, there are over 40 different regional Pokémon divided across generations that can be captured or hatched only in specific expanses of the world. There are of course occasional overlaps of Pokémon slipping out of their region and into other sectors. Let’s get into the list of all the region-specific Pokémon of different generations and where to find them.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Gen 1/ Kanto Pokémon
 
@@ -206,19 +206,6 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 - **Heracross:** South America/ Southern Florida.
 - **Corsola:** Equatorial Latitudes.
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Gen 3/ Hoenn Pokémon
 
@@ -255,6 +242,13 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Heatmor:** Western Hemisphere. Switches with Durant.
 - **Durant:** Eastern Hemisphere. Switches with Heatmor.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to use Dr.Fone - Virtual Location to catch Regional Pokémon
 
 Catching regionally exclusive Pokémon requires you to travel to that location or region where the Pokémon is located, as it was originally intended by the game. Remember that Pokémon Go functions by tracking your location via GPS. Your GPS however, is a virtual means of tracking your IP address which can be faked using the right mock GPS and VPN. You can use a mock virtual location to fake your actual location and make it seem like you’re traveling around the world. The game itself would be tricked, allowing you to travel to regions and get your hands on those geo-exclusive Pokémon.
@@ -270,13 +264,6 @@ You can follow these easy steps to set up and access your Dr.Fone Virtual Locati
 Download Dr.Fone – Virtual Location. Install and launch the program. Click ‘Virtual Location’ to get access to the options window.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Connect Device**
 
@@ -305,16 +292,10 @@ Once the location of your choice pops up, click ‘Move here’ in the pop-up bo
 Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Tips to help catch Regional Pokémon
@@ -327,9 +308,23 @@ Catching regional Pokémon is just like catching any regular Pokémon. When they
 - **Save your Berries:** Feeding a Pokémon with Razz Berries increases your assurances of catching the Pokémon while also giving you a 15x bonus when you land a successful catch. Save your berries for those persistent Pokémon spawns.
 - **Use Powerful Poke balls:** Last but definitely not least, use powerful balls like the Great Ball or Ultra Ball to maximize your chances of catching Pokémon. You should also remember that these are diminishable resources so use them wisely. On catching a Pokémon with a Great ball you will get 15x and with an Ultra ball you would get 2x so utilize them accordingly to catch rare and super rare Pokémon.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 The journey to completing your Pokedex may not be a short one as there are hundreds of Pokémon out there, and even hundreds more yet to be introduced into the game. Traveling the world in search of the rarest regional Pokémon is meant to be a fun and exciting experience, yet it may not be viable for some who wish to enjoy the game to the fullest. Utilizing a fake GPS and VPN can bridge the gaps in your Pokedex and keep the game fun for you at the same time. So keep playing and catching Pokémon as there are loads of other exciting installments yet to be introduced by Niantic in the future.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What Pokémon Evolve with A Dawn Stone For Xiaomi 14 Ultra?
 
@@ -344,6 +339,13 @@ Like Shiny Stone, dusk stone, Sun Stone, and Moon Stone, Dawn Stone is another p
 ![dawn stone](https://images.wondershare.com/drfone/2020/dawn-stone.jpg)
 
 You can get dawn stone from the Digging Duo found near the Wild Area nursery. You will, however, be required to pay them 500 watts before digging random items for you. Remember, this is a trial and error thing, and you might have to spend a lot of watts before finding a dawn stone. Also, you can get any evolutionary stone, including the Dawn Stone in the Lake of Outrage. Here, you will have to first obtain a Rotom Bike on route 9 to move across the water.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Pokémon that Evolve with Dawn Stone
 
@@ -377,23 +379,9 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4.** When the program has found the location, a dialog box will appear in the background. Click "Move Here" to teleport to this location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Use Pokémon Gotcha
 
@@ -417,15 +405,22 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-top-6-minecraft-village-house-ideas-for-2024/"><u>[Updated] Top 6 Minecraft Village House Ideas for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-ios-tutorial-downloading-episodes-effortlessly/"><u>[Updated] Ultimate iOS Tutorial Downloading Episodes Effortlessly</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/androvid-video-editor-complete-review-2023/"><u>AndroVid Video Editor – Complete Review 2023</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-samsung-galaxy-z-flip-5-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Samsung Galaxy Z Flip 5</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-aim-for-excellence-prime-iphone-angles-for-professional-shots/"><u>In 2024, Aim for Excellence Prime iPhone Angles for Professional Shots</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Oppo Find N3 Flip? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/pc6/"><u>プログラマブルPCゲーム録画ソフト選び：6組をおすすめします！高解像度、対応機能付き</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211191677-9789948040859-alayorfyda-balaarby-altb-alhndy/"><u>(الأيورفيدا بالعربي (الطب الهندي | Free Book</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-rapid-rise-how-to-transform-your-tiktok-images-dramatically/"><u>[New] Rapid Rise How to Transform Your TikTok Images Dramatically</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-fast-time-cinematography/"><u>[Updated] Mastering Fast-Time Cinematography</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-effective-and-trustworthy-are-automated-fitness-regimes-designed-by-chatgpt/"><u>How Effective and Trustworthy Are Automated Fitness Regimes Designed by ChatGPT?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-vivo-v30-lite-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Vivo V30 Lite 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-quality-video-uplift-immaculate-resolution/"><u>In 2024, Top Quality Video Uplift Immaculate Resolution</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-gestures-in-tech-landscape/"><u>In 2024, Unveiling Gestures in Tech Landscape</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Asus ROG Phone 8? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/invisible-audiences-viewing-instagram-stories-privately-from-pcandroidios-screens/"><u>Invisible Audiences Viewing Instagram Stories Privately From PC/Android/iOS Screens</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze Curve 5G | Dr.fone</u></a></li>
 </ul></div>
 

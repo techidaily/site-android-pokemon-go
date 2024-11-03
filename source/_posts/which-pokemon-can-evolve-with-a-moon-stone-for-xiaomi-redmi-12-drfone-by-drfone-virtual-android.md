@@ -1,7 +1,7 @@
 ---
 title: Which Pokémon can Evolve with a Moon Stone For Xiaomi Redmi 12? | Dr.fone
-date: 2024-10-21T19:41:18.861Z
-updated: 2024-10-28T18:43:59.597Z
+date: 2024-10-26T17:54:05.244Z
+updated: 2024-11-03T11:54:31.757Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,29 +25,28 @@ Moon Stone is an evolution stone introduced in generation I. This peculiar stone
 
 ![moon stone](https://images.wondershare.com/drfone/2020/moon-stone.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to Lake of Outrage in the Wild area. You will see a body of water on your left and a watt trader standing near it. To cross this water body, you will have to unlock the Rotom Bike from Route 9. When you manage this, check under the eight stones and you might be lucky that one of them might yield a Moon Stone. Also, you can navigate to the Dusty Bowl in the Wild Area. Here, you will find barren stones between a grassy rock and wheat field.
 
 ### Pokémon that Evolve with a Moon Stone
 
 Moon Stone makes certain species of Pokémon evolve. To evolve a Pokémon using Moon Stone in Pokémon Sword and Shield, simply open the bag and go to the "Other Items" section. Finally, use Moon Stone in any of the following Pokémon.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Nidorina
 
 Nidorina is a poison type Pokémon that was introduced in Generation I. it looks like a rabbit with blue skin and dark spots around the body. Its natural abilities are poison point, rivalry, and hustle. As of level 16, Nidorona evolved from Nidoran. With the use of Moon Stone, Nidorina can evolve into Nidoqueen.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Nidorino
 
@@ -73,6 +72,13 @@ Munna is a psychic-type Pokémon that was introduced in Generation V. It is a sm
 
 As you have seen above, getting a Moon Stone is not an easy ride. It involves lots of trials and there is no guarantee to get it. But what tricks and hacks can you incorporate to make your hunt seamless? The following are some of the plausible tricks that you can use to easily grab a Moon Stone and add it to your Pokedex.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Use Dr. Fone Virtual iOS Location
 
 It goes without question that Dr. Fone Virtual Location is the best location spoofer tool. Remember Pokémon game is location-based and if you can play around with your location then you are at an upper hand of grabbing a rare Pokémon or an evolution item like Moon Stone. [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) makes it seamless to teleport to any location across the globe while you are seated comfortably at home. Besides, you can simulate movements between two or more points and make GPS control more flexible with the help of a joystick.
@@ -82,6 +88,13 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 **Step 1.** After installing Dr. Fone Virtual Location, launch it, and select "Virtual Location." Now connect your iPhone to the computer.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2.** Click the "Get Started" on the subsequent page to access the teleport options.
 
@@ -115,16 +128,16 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
@@ -148,6 +161,13 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -164,13 +184,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -226,6 +239,13 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -240,13 +260,6 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
@@ -258,6 +271,13 @@ Voila! You have teleported your location to the desired place.
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -288,6 +308,13 @@ There are various weaknesses of this pokemon which include “Fighting”, “Gr
 ## Part 2: What are the Strengths of Greninja in Pokemon?
 
 ![strength mega Greninja Pokemon](https://images.wondershare.com/drfone/2020/strength-mega-Greninja-Pokemon-pic-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Greninja is resistant to “Water”, “Fire”, “Ice”, “Dark”, “Steel” and finally “Ghost”. Also, this pokemon is immune to “Psychic”. This pokemon’s presence can be very intimidating for its opponents, it would not be wrong if we say that Greninja is quite unpredictable. There is no doubt that the counter attacks of Greniaja prove to be very dangerous for its enemies.
 
@@ -329,30 +356,9 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 
 ![Dr.fone location changed](https://images.wondershare.com/drfone/2020/Dr_fone-location-changed-pic-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6:** Also, you’ll see that the location on your iPhone would have also changed now to “Italy” or any other place that you have entered earlier.
 
 ![dr.fone location set](https://images.wondershare.com/drfone/2020/dr_fone-location-set-pic-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -372,20 +378,22 @@ So, we have reached the end of this article. We hope that you found the article 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-streamlining-conversions-mp4-files-with-vlc-media-player/"><u>[Updated] 2024 Approved Streamlining Conversions MP4 Files with VLC Media Player</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-premier-choices-high-quality-free-screen-recorder-software/"><u>[Updated] In 2024, Premier Choices High-Quality Free Screen Recorder Software</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-30-hashtags-propel-video-views-in-gameplay/"><u>[Updated] Top 30 Hashtags Propel Video Views in Gameplay</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Oppo Reno 11F 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/enriched-visuals-and-melodies-the-art-of-integrating-filters-and-music-windows-photos-for-2024/"><u>Enriched Visuals & Melodies The Art of Integrating Filters & Music (Windows Photos) for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-new-district-arrangements/"><u>Exploring Facebook's New District Arrangements</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Oppo Reno 11 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Infinix Note 30 5G? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-lava-yuva-2-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Lava Yuva 2 Without PUK Codes</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-easily-download-specific-youtube-sections/"><u>In 2024, Easily Download Specific YouTube Sections</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Oppo A59 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oppo-a2-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Oppo A2 Device</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Motorola Moto E13? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Tecno Spark 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-experience-unchained-reviewing-the-panasonic-hx-a1/"><u>[New] Experience Unchained Reviewing the Panasonic HX-A1</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-channels-a-guide-to-youtube-metrics-for-2024/"><u>[Updated] Elevate Your Channels A Guide to YouTube Metrics for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unlock-your-video-soundtrack-4-cost-effective-wav-extractors-for-2024/"><u>[Updated] Unlock Your Video Soundtrack 4 Cost-Effective WAV Extractors for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-samsung-c460-drivers-easily-step-by-step/"><u>Download & Install Samsung C460 Drivers Easily – Step-by-Step</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-service-registration-is-missing-or-corrupt-error-on-windows-10/"><u>Fix Service Registration Is Missing or Corrupt Error on Windows 10</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guide-to-securely-transmitting-a-valuable-steam-digital-present-the-process-explained/"><u>Guide to Securely Transmitting a Valuable Steam Digital Present: The Process Explained</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-itel-s23-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-expert-recommended-sub-to-srt-tools-top-8-guide-reviewed/"><u>In 2024, Expert Recommended Sub to SRT Tools Top 8 Guide Reviewed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/next-level-smartphones-unveiling-apples-cutting-edge-artificial-intelligence-for-smarter-home-screen-insights-and-supercharged-siri/"><u>Next-Level Smartphones: Unveiling Apple's Cutting-Edge Artificial Intelligence for Smarter Home Screen Insights and Supercharged Siri</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Tecno Pop 7 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Oppo Reno 9A | Dr.fone</u></a></li>
 </ul></div>
 

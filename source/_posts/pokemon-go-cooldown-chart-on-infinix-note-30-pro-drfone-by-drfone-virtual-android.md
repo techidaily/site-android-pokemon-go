@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Infinix Note 30 Pro | Dr.fone
-date: 2024-10-23T19:56:25.146Z
-updated: 2024-10-28T17:02:35.448Z
+date: 2024-10-30T20:38:28.278Z
+updated: 2024-11-03T02:04:32.543Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,6 +24,13 @@ What is a cooldown? Cooldown Time restricts to stop a player from repeating mult
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
 
@@ -136,31 +143,24 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -182,6 +182,13 @@ Pokemon Go PvP rank battles are far different from other forms of duel in the ga
 
 There are lots of sensible reasons why you should engage in the Pokemon Go PvP rank game. Some of them are enumerated below. Check out the list to learn more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### It upgrades the gaming experience to a whole new level
 
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-1.jpg)
@@ -193,22 +200,15 @@ Doing the same thing over and over sometimes frustrates us. Therefore, playing P
 Sure. Catching Pokemon in the wild and visiting nearby PokeStops are incredibly fun activities. However, these tasks are not enough to give players a very constructive gaming training. You must participate in certain undertakings like the Pokemon Go PvP rank battles to hone your gaming skills efficiently. Don’t worry. You can take it slowly and try to work your way up one step at a time.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### It serves as your key to special tournaments and worldwide events
 
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-2.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Pokemon Go is holding various tournaments from time to time. However, some of these events require players to garner a specific rank or rating in Pokemon Go PvP battles. That means you cannot join if you don’t meet a particular rank level required in the game. Therefore, strive harder to participate in PvP games and win as many duels as you can. Your Pokemon PvP ranking is not just a mere group of numbers. It actually defines your eligibility to join prestigious Pokemon Go events. Hence, take it very seriously.
 
@@ -238,13 +238,6 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 The lowest Pokemon PvP ranking in the Go Battle League is Rank 1. The ranks go higher as the player accomplishes more battles going forward. However, you have to win each of them if you wish to increase your Battle Ratings quickly. It is important to keep tabs on your ratings because it’s among the crucial components of Pokemon PvP ranking.
 
 ![legend gbl rank](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-6.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Go Battle League features a total of 24 ranks starting from Rank 1. The last four high ranks are called Ace, Veteran, Expert, and Legend. With regard to the reward, the set of items that winners will receive varies from one rank to another. More prizes are at stake as you climb the ladder. Thus, work your way up until you become a legend in the Pokemon Go PvP rank battles. You can surely do it. Just trust yourself enough and implement an efficient game plan. By any means possible, it will certainly work magic.
 
@@ -305,6 +298,13 @@ As you know, there are three different leagues to participate in Pokemon Go PvP 
 
 The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tip 2: Master all the Battle Moves
 
 Ideally, there are four different moves in any PvP Poke battle that you must master. The more battles you partake in, the better you would become.
@@ -316,31 +316,18 @@ Ideally, there are four different moves in any PvP Poke battle that you must mas
 
 ![moves in pokemon pvp](https://images.wondershare.com/drfone/2020/moves-in-pokemon-pvp.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tip 3: Check your Opponent’s Pokemons
 
 This has to be the most important thing that you should check before you start any Pokemon Go PvP battle. Right before starting the battle, you can check a list of the prospective opponents in your league. You can have a glimpse of their main Pokemons and pick your Pokemons accordingly so that you can counter their picks.
 
 ![opponent screen pokemon pvp](https://images.wondershare.com/drfone/2020/opponent-screen-pokemon-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tip 4: Know the current Meta
 
@@ -365,10 +352,10 @@ During any PvP Poke battle, keep a count of your opponent’s moves to calculate
 ![fast moves in pokemon pvp](https://images.wondershare.com/drfone/2020/fast-moves-in-pokemon-pvp.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Tip 7: Sacrifice Swap
@@ -427,6 +414,13 @@ In the end, make sure that you have a perfect Pokemon that can end the battle an
 
 ![skarmory in pokemon go](https://images.wondershare.com/drfone/2020/skarmory-in-pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Secrets about the new Mechanics in PvP Pokemon Go Battles
 
 Lastly, if you want to level up in PvP Poke battles, then you should get to know about these three important mechanisms.
@@ -461,20 +455,16 @@ There you go! I’m sure that after reading this post, you would be able to know
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-vlc-challenge-against-mx-player/"><u>[New] 2024 Approved VLC Challenge Against MX Player</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-3-ingenious-strategies-to-harvest-twitter-gifs/"><u>2024 Approved 3 Ingenious Strategies to Harvest Twitter GIFs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-expert-guide-to-enablingdisabling-multitasking-in-safari/"><u>2024 Approved Expert Guide to Enabling/Disabling Multitasking in Safari</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-kootek-laptop-fan-the-ultimate-versatile-solution/"><u>Comprehensive Review of the Kootek Laptop Fan: The Ultimate Versatile Solution</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/easy-instructions-installing-and-setting-up-router-vpn-services/"><u>Easy Instructions: Installing and Setting Up Router VPN Services</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Itel P55 5G? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-xiaomi-redmi-note-12t-pro-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Xiaomi Redmi Note 12T Pro without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On OnePlus Ace 3? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Oppo Find X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/unraveling-the-mysteries-of-fb-instream-ads-configuration-and-evaluation-for-2024/"><u>Unraveling the Mysteries of FB Instream Ads Configuration & Evaluation for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-essential-adobe-premiere-pro-extensions-free-and-paid-options-for-2024/"><u>Updated Essential Adobe Premiere Pro Extensions Free & Paid Options for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-mastering-mac-capturing-screens-with-record-feature/"><u>[New] In 2024, Mastering Mac Capturing Screens with Record Feature</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-learn-quick-image-text-alteration-online-resources/"><u>[Updated] Learn Quick Image Text Alteration Online Resources</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-how-to-add-music-to-instagram-story-withwithout-sticker/"><u>2024 Approved How to Add Music to Instagram Story [With/Without Sticker]</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-soft-transitions-in-garageband-audio/"><u>Mastering Soft Transitions in Garageband Audio</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-poco-m6-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Poco M6 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-search.techidaily.com/top-ranked-pdf-page-flipping-apps-of-2020-find-the-simplest-way-to-navigate-your-documents/"><u>Top-Ranked PDF Page Flipping Apps of 2020: Find the Simplest Way to Navigate Your Documents</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/1728506549895-windows-10/"><u>Windows 10 修正後: 以前のバージョンを復元オプション見当たらず</u></a></li>
 </ul></div>
 

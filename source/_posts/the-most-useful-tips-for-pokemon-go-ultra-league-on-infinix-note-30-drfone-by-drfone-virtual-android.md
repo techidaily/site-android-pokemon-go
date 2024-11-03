@@ -1,7 +1,7 @@
 ---
 title: The Most Useful Tips for Pokemon Go Ultra League On Infinix Note 30 | Dr.fone
-date: 2024-10-26T16:46:28.081Z
-updated: 2024-10-28T19:48:53.428Z
+date: 2024-11-02T01:06:39.228Z
+updated: 2024-11-03T02:16:21.219Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -65,6 +65,19 @@ Charizard among the Pokemon Go ultra league tier list shines as it balances effo
 
 Neglecting the fighting, which is not as prevalent in the ultra League Pokemon Go as it was in the Great League, Machamp is still strong enough, especially when you are looking for something to round off some of the powerful picks as a counter option.
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Alolan Muk
 
 ![best Ultra League Pokemon](https://drfone.wondershare.com/2020/best-Ultra-League-Pokemon.jpg)
@@ -76,10 +89,10 @@ One of the finest defenders in Pokemon go ultra league team, Alolan Muk has the 
 ![Pokemon go best ultra league team](https://drfone.wondershare.com/2020/Pokemon-go-best-ultra-league-team.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A tremendous defensive option for many reasons, Snorlax is one whom you can drop into Pokemon go best ultra league team with little effort while you look for a reliable third option.
@@ -113,10 +126,10 @@ Now, you can easily view your position moving on the map with the cycle’s spee
 Who has given a thought to the involvement of a navigation app for experiencing the best ultra league PVP pokemon go? Experience the game and have fun!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pokémon Go Cooldown Chart On Infinix Note 30
@@ -131,18 +144,25 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -180,13 +200,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -246,6 +259,13 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
@@ -262,6 +282,13 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
@@ -272,24 +299,18 @@ When you want to stop this teleporting, simply click the "Stop Simulation" butto
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Ultimate guide to get the meltan box pokemon go For Infinix Note 30
 
 If you are a huge Pokemon fan and loves to play pokemon go, you will definitely be aware of the latest addition to this family- meltan. It’s the only 8th generation pokemon. The first appearance of this pokemon was via Pokemon Go, as a mysterious silhouette. There are a huge hue and cry among the pokemon lovers about this mystery box pokemon. With its unannounced entry, it has sent the internet raving mad. It’s not an easy task to catch this pokemon, though. Let us take you through an ultimate guide regarding how you can get the meltan box pokemon go in 2020. Stay tuned and keep reading!
 
 ![meltan mystery box](https://images.wondershare.com/drfone/2020/meltan-mystery-box.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: What is the meltan box and how does it work?
 
@@ -337,13 +358,6 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 
 ![pokemon switch pair3](https://images.wondershare.com/drfone/2020/pokemon-switch-pair3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 11:** Once the pairing is done, you can now transfer the Pokemon from the Pokemon Go smoothly. Let’s get to know that too.
 
 After the pairing is complete, you are now ready to send your Pokemon to the Go complex Park in Pokemon Let’s Go. This can be done by following the process:
@@ -353,13 +367,6 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 **Step 2:** In Fuschia City, talk to the Go Park Complex Attendant and select the “Bring Pokemon” option.
 
 ![bring pokemon](https://images.wondershare.com/drfone/2020/bring-pokemon.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3:** Open Pokemon Go.
 
@@ -374,13 +381,6 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 **Step 8:** Now, click on the “Send to Nintendo Switch”, when you have finally decided which Pokemon you want to send.
 
 ![send to nintendo switch](https://images.wondershare.com/drfone/2020/send-to-nintendo-switch.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
 
@@ -424,24 +424,18 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-strategies-for-retrieving-private-chat-photos/"><u>[New] Strategies for Retrieving Private Chat Photos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-effortless-podcast-livestream-guide/"><u>2024 Approved Effortless Podcast Livestream Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-is-optimal-hdr-with-aurora-worth-it/"><u>2024 Approved Is Optimal HDR with Aurora Worth It?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On OnePlus Open | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-xiaomi-redmi-a2plus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Xiaomi Redmi A2+ to iPhone | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/hero-session-vs-hero-session-duel/"><u>Hero Session Vs Hero Session Duel</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/high-quality-inexpensive-countdown-apps/"><u>High-Quality Inexpensive Countdown Apps</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Nokia C300? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-itel-p55-5g-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Itel P55 5G</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo A78 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-prime-portfolio-exceptional-webcam-supports/"><u>In 2024, Prime Portfolio Exceptional Webcam Supports</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Itel P55 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/safety-in-dialogue-risks-with-chatgpt/"><u>Safety in Dialogue: Risks with ChatGPT</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/valheim-quest-for-soundscape-harmony-mastering-pc-audio-fixes-completed/"><u>Valheim Quest for Soundscape Harmony: Mastering PC Audio Fixes [COMPLETED]</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-ultimate-list-of-window-screenshot-utilities/"><u>[New] 2024 Approved Ultimate List of Window Screenshot Utilities</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-5-top-3d-design-apps-for-engaging-youtube-beginnings/"><u>[New] In 2024, 5 Top 3D Design Apps for Engaging YouTube Beginnings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-discovering-your-youtube-unique-slot-for-2024/"><u>[Updated] Discovering Your YouTube Unique Slot for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-master-your-videos-success-with-leading-rank-monitors/"><u>2024 Approved Master Your Video's Success with Leading Rank Monitors</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/a-step-by-step-tutorial-to-monetize-product-videography-for-2024/"><u>A Step-by-Step Tutorial to Monetize Product Videography for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-trending.techidaily.com/convert-and-transfer-your-vidme-videos-into-high-quality-mp4-or-avi-format-for-windows-and-macos-systems/"><u>Convert and Transfer Your VidMe Videos Into High-Quality MP4 or AVI Format for Windows & macOS Systems</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-motorola-edge-40-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Motorola Edge 40 Pro Phone?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-itel-p40-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Itel P40? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-vivo-y02t-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Vivo Y02T FRP Bypass Everything You Need to Know</u></a></li>
 </ul></div>
 

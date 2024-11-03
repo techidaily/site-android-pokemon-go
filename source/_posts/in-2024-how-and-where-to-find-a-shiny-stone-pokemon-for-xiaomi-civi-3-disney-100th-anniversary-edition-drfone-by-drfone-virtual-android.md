@@ -1,7 +1,7 @@
 ---
 title: In 2024, How and Where to Find a Shiny Stone Pokémon For Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone
-date: 2024-10-22T19:47:14.911Z
-updated: 2024-10-28T18:01:58.645Z
+date: 2024-10-29T05:03:31.730Z
+updated: 2024-11-02T16:00:54.855Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,13 +24,6 @@ Shiny Stone Pokémon is an important evolution item in Pokémon Sword and Shield
 A Shiny Stone is an item in Pokémon Go that is used to evolve certain Pokémon. Shiny Stone was introduced in Generation IV and is no different from other evolution stones such as dusk stones, dawn stone, and ice stone, to mention but a few. The major differences could be their location as well as the type of Pokémon they help to evolve. You can identify this peculiar stone by its dazzling, shining light.
 
 ![shiny stone Pokémon](https://images.wondershare.com/drfone/2020/shiny-stone-pokemon.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How and where to find a Shiny Stone evolution
 
@@ -80,15 +73,22 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 
 Pgsharp i8s an Android application that enables users to be fake their GPS location and fools location-based apps like Pokémon Go to enter a territory that is easy to grab a Shiny Stone or Pokémon. It has a joystick feature for easy and smooth movement, coordinates to move to specific locations, auto walkthrough several pokestops, and saves your last location, among others.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Use a Drone
 
 Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A good example of a drone is DJI PantomDrone. When this drone is integrated with some smart software, you can easily control a phone that is attached to the drone. This way, you can sit at home while visiting gyms and pokestops.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Legendaries Are In Pokemon Platinum On Xiaomi Civi 3 Disney 100th Anniversary Edition?
@@ -100,6 +100,13 @@ Pokemon Platinum is an engaging role-playing video game introduced by Nintendo a
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
@@ -157,6 +164,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.1 Action Replay Codes
 
 There are many action replay codes available on the Internet. Using these codes, you can easily capture legendary Pokemon available with the Pokemon Platinum Version.
@@ -166,17 +180,10 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -190,13 +197,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 1:** Load the app on your iOS device. For this purpose, you have to go to Dr.fone official website. Next, download and install the app on your smartphone. Next, connect your iOS device with your PC.
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
@@ -224,14 +224,14 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
-According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
 ## Conclusion
 
@@ -262,6 +262,13 @@ The pokemon go dragon scale is one of the new evolution objects that can be empl
 
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2：Fast way to get the exclusive Pokémon?
 
 You can make use of the artificial locality of [Dr. Fone](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to imitate your position without any motion and acquire exclusive Pokémon. The duplicate point of Dr. Fone lets you phony your orientation and permits your mobile application to presume that you are chosen in the app interface of Dr. Fone without being banned from the game or getting detected by the developers of Pokemon Go. To seize the pokemon, you can trail the instructions below with one click without having to go anywhere else.
@@ -275,13 +282,6 @@ Pokemon Go can be played without requiring movement, using Dr. Fone's toolkit. T
 You can click the ‘Get Started’ button to initiate the action as soon as your phone gets detected.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Mirroring Motion amid steps:**
 
@@ -298,10 +298,10 @@ The change location will act as genuine for the Pokémon Go application, and it 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
@@ -338,21 +338,22 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-creative-components-free-youtube-visual-resources/"><u>[New] 2024 Approved Creative Components FREE YouTube Visual Resources</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-chat-room-to-global-stage-broadcast-google-meet-on-youtube/"><u>[New] 2024 Approved From Chat Room to Global Stage Broadcast Google Meet on YouTube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-a-step-by-step-approach-to-typography-addition-in-ae/"><u>[Updated] In 2024, A Step-by-Step Approach to Typography Addition in AE</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-cutting-edge-plot-architects-domain/"><u>[Updated] In 2024, Cutting-Edge Plot Architects Domain</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-streamlining-video-calls-leveraging-zoom-on-windows-10-pcs/"><u>2024 Approved Streamlining Video Calls Leveraging Zoom on Windows 10 PCs</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Oppo A78 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Nokia C32? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Nokia C110? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Nokia C110? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-6-choices-prime-microphones-for-dynamic-online-broadcasts/"><u>In 2024, Top 6 Choices Prime Microphones for Dynamic Online Broadcasts</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/insights-into-the-delayed-debut-of-mafia-definitive-edition/"><u>Insights Into the Delayed Debut of Mafia: Definitive Edition</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ring-multitasking-sync-many-yt-videos-simultaneously/"><u>Mastering Multitasking Sync Many YT Videos Simultaneously</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-nubia-red-magic-8s-pro-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-mastering-video-conversion-save-vimeo-videos-as-mp4-for-2024/"><u>[Updated] Mastering Video Conversion Save Vimeo Videos as MP4 for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harness-your-pcs-power-for-high-dynamic-range-video-magic/"><u>2024 Approved Harness Your PC's Power for High Dynamic Range Video Magic</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-infinix-note-30-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-mov-files-on-samsung-galaxy-s23-ultra-by-aiseesoft-video-converter-play-mov-on-android/"><u>How to play MOV files on Samsung Galaxy S23 Ultra ?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-ideal-screener-tech-elevating-your-youtube-presence/"><u>In 2024, Ideal Screener Tech Elevating Your YouTube Presence</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-success-stories-leveraging-highlights-for-growth/"><u>In 2024, Instagram Success Stories Leveraging Highlights for Growth</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-professional-video-quality-at-your-fingertips-ois-powered-choices/"><u>In 2024, Professional Video Quality at Your Fingertips OIS-Powered Choices</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-oppo-a59-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Oppo A59 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transform-your-iphone-snaps-into-stunning-hdr-photos/"><u>Transform Your iPhone Snaps Into Stunning HDR Photos</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-oneplus-open-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your OnePlus Open Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Lava Blaze Curve 5G | Dr.fone</u></a></li>
 </ul></div>
 
