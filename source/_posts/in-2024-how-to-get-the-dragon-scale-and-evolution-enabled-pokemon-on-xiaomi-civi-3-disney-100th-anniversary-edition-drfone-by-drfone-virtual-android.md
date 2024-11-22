@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone
-date: 2024-11-09T16:50:25.909Z
-updated: 2024-11-12T17:00:09.069Z
+date: 2024-11-17T06:27:12.453Z
+updated: 2024-11-21T17:52:31.534Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -96,6 +96,10 @@ While keeping track of where each regional Pokemon spawns can be pretty confusin
 
 Alternatively, players can use virtual location-changing tools like Wondershare Dr.Fone, and today, we’ll show you how to catch all **Pokemon GO regional exclusives** with this easy-to-use app.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1. What Are Regional Pokemon?
 
 Regional Pokemon are exclusive creatures in Niantic’s Pokemon GO AR game that only live in specific regions across the globe. The area in which a particular Pokemon can be found depends on the nature of that Pokemon. For example, Tropius can only be found in tropical parts of the continent.
@@ -115,13 +119,6 @@ Avid Pokemon trainers can use one or a combination of these strategies to swiftl
 
 ![regional spawn points in pokemon go](https://images.wondershare.com/drfone/article/2024/03/catch-all-pokemon-go-regional-exclusives-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The spawn points of regional Pokemon vary significantly between creatures. Some are exclusive to a hemisphere, others to a continent, while the third group only spawns in a few specific countries. Keeping track of it all can be challenging, and that’s why we’ve created a detailed information table with regions and specific Pokemon GO regional exclusives you can find in each.
 
 | **Region** | **Pokemon** |
@@ -137,31 +134,25 @@ The spawn points of regional Pokemon vary significantly between creatures. Some 
 
 While they’re categorized as available on the entire continent, it’s worth noting that some Pokemon can only be found in particular regions like France or Russia. To learn more about each, you’ll need to find information about their regional distribution.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4. Learning About the Regional Pokemon Distribution
 
 With almost 60 Pokemon GO regional exclusives in 2024, keeping track of where each creature spawns can be a nightmare, especially when some Pokemon can only be found in tiny and specific areas. However, you don’t necessarily have to remember the location of each regional Pokemon, as there are other ways of learning about their distribution.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Getting Information From the Community
 
 The primary method of acquiring information that most players rely on is keeping in touch with the Pokemon GO community. Players can follow Pokemon GO creators, watch YouTube news channels covering new releases, and join countless forums and social media pages dedicated to the game.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Using Official Pokemon Go Announcements
 
 Official announcements are another way to learn more about Pokemon GO’s regional exclusives. Keeping track of these will help you track regional spawn points and special events. Enabling notifications from the game on your mobile device can also be particularly helpful in keeping track of announcements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5. How to Quickly Travel to Different Regions
 
@@ -177,6 +168,10 @@ Using Dr.Fone to change your virtual location is remarkably straightforward and 
 
 ![wondershare dr.fone’s home page](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. Connect your iPhone or Android to the computer via USB or Wi-Fi.
 6. Select the **Teleport Mode**in the top right part.
 
@@ -187,10 +182,7 @@ Using Dr.Fone to change your virtual location is remarkably straightforward and 
 ![select a new virtual location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 10. Change your virtual location by clicking the **Move Here**
@@ -204,13 +196,6 @@ Using Dr.Fone to change your virtual location is remarkably straightforward and 
 14. You should also check your mobile device’s location to confirm it’s changed.
 
 ![confirm location change on the phone](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Wondershare Dr.Fone also includes a Jump Teleport Mode, allowing you to swiftly swap virtual locations and simulate movement along a predestined route. This feature can be remarkably beneficial for Pokemon GO players, and here’s how you can use it:
 
@@ -227,13 +212,6 @@ Wondershare Dr.Fone also includes a Jump Teleport Mode, allowing you to swiftly 
 ![move along the created route](https://images.wondershare.com/drfone/guide/start-use-jump-teleport-mode.png)
 
 Movement simulation works exceptionally well for catching Pokemon around the globe, and you’ll be able to encounter dozens of these. Use Wondershare Dr.Fone to progress swiftly through the game and catch them all!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 6. Pokemon GO Regional Spawns and Events
 
@@ -261,6 +239,10 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
@@ -272,6 +254,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -296,13 +282,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -346,6 +325,10 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -372,10 +355,7 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
@@ -391,6 +371,10 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Teleport your location on Pokémon Go
 
@@ -422,22 +406,19 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-ultimate-guide-to-best-video-chatting-solutions-pcphone/"><u>[New] 2024 Approved Ultimate Guide to Best Video Chatting Solutions (PC/Phone)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-playtime-registration-and-logout-tutorials/"><u>[New] Playtime Registration & Logout Tutorials</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/a-quick-take-on-vn-video-editors-pc-performance-for-2024/"><u>A Quick Take on VN Video Editors PC Performance for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-nokia-c02-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/best-tablet-and-e-reader-showdown-ipad-kindle-and-nook-face-off/"><u>Best Tablet and E-Reader Showdown: IPad, Kindle, and Nook Face Off</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-narzo-60-5g-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Narzo 60 5G.</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Motorola Defy 2 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Sony Xperia 10 V? | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/mastering-multitasking-firefox-picture-in-picture-explained-for-2024/"><u>Mastering Multitasking Firefox Picture-in-Picture Explained for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-windows-10-touchpad-issues-get-your-scroll-working-again/"><u>Overcoming Windows 10 Touchpad Issues - Get Your Scroll Working Again</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Motorola Moto G13? | Dr.fone</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/top-rated-server-backup-software-updated-selection/"><u>Top-Rated Server Backup Software: Updated Selection</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/king-the-full-potential-of-your-youtube-channel-with-right-video-settings-for-2024/"><u>Unlocking the Full Potential of Your YouTube Channel with Right Video Settings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/egality-of-recording-on-youtube-platform-in-2024/"><u>[New] Legality of Recording on YouTube Platform, In 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-art-of-humor-in-minutes-kinemaster-techniques/"><u>[New] The Art of Humor in Minutes KineMaster Techniques</u></a></li>
+<li><a href="https://driver-error.techidaily.com/exploring-the-past-and-present-of-usb-composite-devices-in-todays-tech-scene/"><u>Exploring the Past and Present of USB Composite Devices in Today's Tech Scene</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fix-your-frustrations-away-solutions-to-chivalry-2-freezing-glitches/"><u>Fix Your Frustrations Away: Solutions to Chivalry 2 Freezing Glitches</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/high-quality-fb-vids-on-demand/"><u>High-Quality FB Vids on Demand</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Xiaomi 14 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721442936971-missing-alerts-on-iphone-screen-seven-quick-fixes-for-you/"><u>Missing Alerts on iPhone Screen? Seven Quick Fixes for You!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-10-fast-and-easy-x-hacks-for-newbies/"><u>Top 10 Fast and Easy X Hacks for Newbies</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-do-you-want-to-excel-at-using-adobe-premiere-pro-software-for-splitting-videos-and-audio-learn-about-splitting-a-video-and-audio-using-diffe/"><u>Updated In 2024, Do You Want to Excel at Using Adobe Premiere Pro Software for Splitting Videos and Audio? Learn About Splitting a Video and Audio Using Different Tools and Add a New Skill to Your Skillset with a Step-by-Step Guide in This Article</u></a></li>
 </ul></div>
 

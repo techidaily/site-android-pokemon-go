@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Magnificent Art of Pokemon Go Streaming On Infinix Hot 30 5G? | Dr.fone
-date: 2024-10-26T20:00:13.547Z
-updated: 2024-10-28T17:34:08.267Z
+date: 2024-11-19T22:56:23.020Z
+updated: 2024-11-21T16:30:03.752Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,25 +25,15 @@ In this article, we will talk about the amazing benefits of Pokemon Go streaming
 
 In all actuality, Pokemon Go streaming is not different from other forms of live game streaming. You just play the game as usual and interact with your viewers throughout the duration. However, we cannot deny that Pokemon Go streaming has a more challenging format compared to others. Why so? Simply because the game itself requires large body movements and a few physical activities. But don’t sweat it. Streaming Pokemon Go online comes with tons of benefits. Check out the list below to find what exactly you can get from this endeavor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### It can provide an alternative source of income
 
 ![pokemon go streaming live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 We all know that video content online can be monetized through in-feed advertisements and sponsorships. The same thing goes for Pokemon Go streaming. You can earn a specific amount from every ad that appears on your livestream. Don’t worry. It doesn’t take much time and effort to implement. Most of the time, you just need to flash the promotional materials during the broadcast.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### It can help you meet new friends or even famous people in the industry
 
@@ -52,6 +42,10 @@ It’s not impossible to turn the regular viewers of your Pokemon Go Livestream 
 ### It can improve cognitive performance
 
 It’s true to say that multi-tasking is the core of Pokemon Go streaming. Of course, you have to stay focused on the actual game while engaging with your viewers. That seems like a handful of work. But fret not. Juggling multiple tasks one after another is actually beneficial to your health. As you get exposed to such arrangements over and over, your cognitive performance further improves, too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It can make an ordinary Pokemon Go player go global
 
@@ -69,6 +63,10 @@ The primary mechanics of Pokemon Go involve a lot of outdoor strolling and physi
 
 It’s fair to say that Pokemon Go streaming is not extremely particular when it comes to equipment. You can actually go live under natural daylight and document your adventure as it is. However, keep in mind that you’re simultaneously doing two different tasks in this regard. One is streaming, and the other is playing. Therefore, ensure your mobile device and internet connection can handle heavy workloads as such. A smartphone with 8 GB RAM (or higher) and an internet connection of at least 25 Mbps is highly recommended.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Choose a live-streaming application and create an account
 
 ![streaming platform](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-4.JPG)
@@ -80,13 +78,6 @@ Of course, you can bring a full computer setup outside while exploring around. T
 ![set up live stream](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-5.JPG)
 
 Set up the livestream accordingly. Start by writing a catchy title for your broadcast. Make sure that it clearly states the content and the intent of your Pokemon Go livestream. After that, add some keywords and specify the language of your stream. Yes. It’s very important because it will help interested viewers find you on the internet. Lastly, check the audio output. Adjust the volume clarity if necessary. Once you’re done, it’s time to hit the Go Live button and say “Hi” to the world.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Start playing Pokemon Go
 
@@ -120,25 +111,24 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 
 ![adjust movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 6:** Use the map on the screen as your guide to track down the real-time progress of the simulation. If you wish to put the movement on hold for a little while, click **Pause.** On the other hand, click **Clear** if you want to start all over again.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this mobile game. You go live on the internet streaming platform while catching the Pokemon nearby. If you want to elevate your Pokemon Go experience, start streaming your adventure online. Refer to the tutorial and tips above to help you get the ball rolling. Furthermore, download [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) for free on your computer. It has a potent Virtual Location feature that can help you livestream Pokemon Go from the comfort of your own home. All you have to do is set up Wondershare Dr.Fone on your desktop and let it simulate GPS movements based on your inputs. Yes. You can absolutely do that with just the snap of a finger. Therefore, start a Pokemon Go streaming channel today and enjoy a more exciting journey ahead.
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Use Pokémon Emerald Master Ball Cheat On Infinix Hot 30 5G
@@ -158,6 +148,10 @@ _**Tips:** Catch Pokémon like a Pro with Dr.Fone - Virtual Location! Capture as
 ## Part 1: Do you know the Pokémon Emerald Master Ball?
 
 ![The best ball to catch Pokémon – Pokémon emerald Master Raid Ball](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-emerald-ball.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The Pokémon Emerald Master Ball is a unique Pokéball that is used to capture Pokémon creatures without fail. It is found in Generation I and is always used in the wild.
 
@@ -199,13 +193,6 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 
 ![Save the game state](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2 –** Now hit the "Cheats" menu and then choose the "Cheat List". You will be presented with a new window where you can now enter the cheat codes.
 
 ![Entering the cheat codes](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-2.jpg)
@@ -215,10 +202,7 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 ![Entering the GameShark Pokémon Emerald Master Ball cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4 -** Now proceed and enter the master ball code. The small cod will have to be enabled before you can switch on the Pokémon Emerald Master Ball GameShark cheat code. To do this, Go to the description and then enter the master code. Now you need to paste in the following into the “Code Field”.  
@@ -234,6 +218,10 @@ Only one Master Ball can be bought at a time, but you can do this as many times 
 
 ![Buy as many Pokémon Emerald Master Balls as you would like using the cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you have shopped for Pokémon Emerald Master Balls to your fill, you need to disable the code so your store can go back to normal. All you have to do is go back to the “Cheat List” window and then uncheck the two little lines of Pokémon Emerald Master ball cheat codes.
 
 Make sure that you exit the store and go back again to finish the process properly.
@@ -241,13 +229,6 @@ Make sure that you exit the store and go back again to finish the process proper
 ![Disable the Pokémon Emerald Master Ball cheat code when you are finished shopping](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-6.jpg)
 
 The best thing about this method is that you do not need to enter another master ball cheat code in the future. All you have to do is go back to your Cheat List and check the box for the code once more.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Other tips to level up on Pokémon go
 
@@ -304,13 +285,6 @@ If you are in a rural setting, catching a lot of Pokémon to evolve may be diffi
 Use the [tutorial shown on this page](https://drfone.wondershare.com/guide/teleport-mode.html) and learn how to use Dr.Fone Virtual Location – iOS to move your device to a park or mall, where there are many Pokémon creatures available.
 
 Once you have enough Pokémon creatures, you may now use your Lucky Egg and evolve them in mass and add your XP.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## In Conclusion
 
@@ -388,6 +362,10 @@ Teleport to anywhere in the world
 
 ![enter location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Exchange the gift with friends to level up a friendship
 
 Pokemon go also allows you to send gifts to your game friends and receive gifts from your game friends. Well, this can help both of you grow and progress in the game and can be a helpful trick to increase Stardust!
@@ -414,17 +392,20 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-navigating-the-world-of-video-screen-capture/"><u>[New] 2024 Approved Navigating the World of Video Screen Capture</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-perfecting-zoom-techniques-for-tiktok-engagement/"><u>[Updated] Perfecting Zoom Techniques for TikTok Engagement</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Itel P40+ | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/essential-tools-list-best-ten-spotify-audio-recording-apps/"><u>Essential Tools List Best Ten Spotify Audio Recording Apps</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/gpts-potential-in-revolutionizing-medical-services/"><u>GPT's Potential in Revolutionizing Medical Services</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Huawei Nova Y71? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-pixelpress-mastering-the-art-of-screen-recording/"><u>In 2024, 'PixelPress' Mastering the Art of Screen Recording</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-facebook-integrated-apps-and-sites/"><u>Navigating the Maze of Facebook-Integrated Apps and Sites</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/quick-and-easy-troubleshooting-for-the-elusive-d3dx934dll-file/"><u>Quick & Easy Troubleshooting for the Elusive d3dx9_34.dll File</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/smoothing-face-transitions-motion-blur-techniques-in-picsart-for-2024/"><u>Smoothing Face Transitions Motion Blur Techniques in Picsart for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-dynamic-background-adaptation-in-microsoft-teams-beforeafter-calls/"><u>[New] 2024 Approved Dynamic Background Adaptation in Microsoft Teams Before/After Calls</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-pro-tips-for-capturing-stunning-igtv-content-on-mobile-and-dslr/"><u>[Updated] 2024 Approved Pro Tips for Capturing Stunning IGTV Content on Mobile & DSLR</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-understanding-movie-storage-space-needs-over-24-hours/"><u>2024 Approved Understanding Movie Storage Space Needs Over 24 Hours</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-sata-hard-drive-drivers-for-windows-quick-and-easy-download-process/"><u>Get the Latest SATA Hard Drive Drivers for Windows - Quick & Easy Download Process</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leveraging-ai-for-flawless-computer-fixes/"><u>Leveraging AI for Flawless Computer Fixes</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016417937-realtek-microphone-problems-heres-how-you-can-solve-them/"><u>Realtek Microphone Problems? Here's How You Can Solve Them!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Infinix Note 30i? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-abcd-of-effective-copy-in-facebook-campaigns-for-2024/"><u>The ABCD of Effective Copy in Facebook Campaigns for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/two-person-triumphs-top-mobile-games-for-pair-bonding-top-15/"><u>Two-Person Triumphs: Top Mobile Games for Pair Bonding (Top 15)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-oppo-reno-8t-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Oppo Reno 8T | Dr.fone</u></a></li>
 </ul></div>
 

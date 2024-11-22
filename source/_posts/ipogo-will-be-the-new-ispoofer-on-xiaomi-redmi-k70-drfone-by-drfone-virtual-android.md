@@ -1,7 +1,7 @@
 ---
 title: iPogo will be the new iSpoofer On Xiaomi Redmi K70? | Dr.fone
-date: 2024-11-11T16:20:22.136Z
-updated: 2024-11-12T16:46:02.643Z
+date: 2024-11-20T08:22:54.489Z
+updated: 2024-11-22T07:58:02.997Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660
 
 If you are a sincere Pokemon Go player who sticks by the rules and plays the game, then you probably don’t know how hard it is to eliminate a location spoofer from the picture. The game attains new spheres and seems more interesting with a location spoofer involved. If you are an iOS user or an Android enthusiast who is eager for iSpoofer’s return or worried about iSpoofer Pogo not working, then this might just be the right article for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1 - Why am I unable to download iSpoofer for Pogo?
 
 iSpoofer was discontinued two years ago, around 2019 and still remains out of action. This could possibly be because Pokemon Go makers have banned the application. The main target customers for iSpoofer were the PoGo players and having them gone, there is not much the app can offer.
@@ -26,6 +30,10 @@ iSpoofer was discontinued two years ago, around 2019 and still remains out of ac
 The initial version remains unsupportive and shows ‘Maintenance’ pop up while you cannot download any new versions from their website. It still contains the old links on the site which are of no use to the current players. Tackling with too much will also result in account ban as Pokemon Go has strict rules that no third party applications will be entertained.
 
 Since we haven’t heard from iSpoofer in 2020, we can assume that they won’t be here for long and it would be a wise choice to look for alternatives.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2 - How to Find other alternatives for the iSpoofer
 
@@ -47,6 +55,10 @@ The spoofer will help you play Pokemon Go for sure though I cannot give you assu
 
 ![VPN-Pokemon-GO-pic-4](https://images.wondershare.com/drfone/2020/2020/VPN-Pokemon-GO-pic-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you are looking for something long lasting and something that won’t pose a detection problem, then I would suggest you to go for WOnder share’s Dr.Fone. It is affordable, has some remarkable features and works great for both Android and iOS devices.
 
 Unlike iSpoofer, this will not require jailbreak access, detects every location on the globe and poses no threat to your Pokemon Go account. Here are the simple steps that you need to follow to work with [Dr.Fone](https://drfone.wondershare.com/virtual-location/fake-snapchat-location.html) for spoofing location
@@ -67,16 +79,13 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 ![Dr. Fone-Virtual-Location-pic-6](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2** - You will be led to a page hat will display the entire map of the world and also your location on the globe. You can easily zoom in and out to understand coordinates and location better. On the upper right corner of the page, you’ll find ‘Teleport Mode’ that you should opt for.
 
 ![Drfone-Location-map-on-globe-pic-7](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3** \- Then you can change your location from your current place to anywhere you want to go. This can be quite close or even as far as some other country. However, for Pokemon Go purposes, keep it close. Then click on ‘Move Here’.
 
@@ -97,13 +106,6 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 That being said, there aren’t any well-researched and ground rules as to how your spoofing should be so that you remain undetected. All we can do is pick up tips from someone else’s expertise. Apps like Dr.Fone will help you change your [virtual location](https://drfone.wondershare.com/virtual-location/fake-snapchat-location.html) without getting your account banned as they are designed to do this very job with perfection.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Planning to Use a Pokemon Go Joystick on Xiaomi Redmi K70?
 
 Pokemon Go is probably one of the most popular location-based augmented reality games that encourage us to step out. Sadly, players can’t explore their surroundings or travel to play the game all the time. That’s why they often take the assistance of a Pokemon Go joystick. While Pokemon joysticks are extremely popular, they have some downfalls as well if you don’t pick the right tool. Therefore, in this post, I will list the risks and benefits of using a Pokemon Go joystick hack to help you make up your mind.
@@ -121,10 +123,7 @@ Before we get into the details, it is important to know the basics of this fake 
 ![Pokemon Go Joystick](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Therefore, with the help of a Pokemon Go hack APK like this, players don’t have to leave their house to catch Pokemons. They can also participate in raids to hatch eggs from the comfort of their home.
@@ -163,23 +162,9 @@ While there are numerous benefits of using a Pokemon Go joystick, its constant u
 
     ![Pokemon Go Account Ban](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
     To avoid the banning of your Pokemon Go account, you can consider a “cooldown duration”. This simply suggests waiting for a specific duration before changing your location in the game.
 
     ![Pokemon Go Cooldown Duration](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - Software Hack on Jailbroken Devices
 
@@ -201,24 +186,25 @@ As you can see, picking a reliable Pokemon Go joystick is the most important thi
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 I hope that after following this guide, you would be able to know more about the fake GPS Pokemon Go hacks. As you can see, I have included all kinds of benefits and limitations of using a Pokemon Go joystick in this guide. If you don’t want to get your account banned for using a Pokemon joystick, then consider going with a reliable option like
 
 [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking, it will let you enjoy a dedicated GPS joystick and simulate your device movement remotely.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Here are Some of the Best Pokemon Discord Servers to Join On Xiaomi Redmi K70
 
 If you are a Pokemon Go player, then you might already know how crucial it is to have some active friends in the game. By playing Pokemon Go with your friends, you can create teams, participate in raids, and do so much more. Though, the best way to make new friends in the game is by joining an active Pokemon Go Discord server. The good news is that Discord has tons of international and local Pokemon Go servers that you can join. Find out how to find the most appropriate Pokemon Go Discord servers in this guide.
 
 ![Pokemon Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 1: Where can I find the Best Pokemon Go Discord Servers?**
 
@@ -234,6 +220,10 @@ _Website:_ [_https://thesilphroad.com/map#2/_](https://thesilphroad.com/map#2/)
 
 ![The Silph Road Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2. **Discord Servers**
 
 As the name suggests, this is one of the biggest directories of Discord servers worldwide. Once you visit the website of Discord Servers, just enter relevant keywords on the search bar. For instance, you can enter “Pokemon Go” and simply get relevant results for Pokemon Go Discord servers. Apart from that, you can also check details about the server and know how active it is.
@@ -242,13 +232,6 @@ _Website:_ [_https://discordservers.com/search/Pokemon%20Go_](https://discordser
 
 ![Discord Servers Directory](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3. **DisBoard**
 
 DisBoard is another popular Discord server directory that you can consider exploring. Just enter “Pokemon Go” on the search bar and get a list of various public Discord servers related to the game. Besides that, you can also select different tags to find location-specific Discord Pokemon servers.
@@ -256,6 +239,10 @@ DisBoard is another popular Discord server directory that you can consider explo
 _Website:_ [_https://disboard.org/servers/tag/pokemon-go_](https://disboard.org/servers/tag/pokemon-go)
 
 ![DisBoard Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 4. **Other Places to find Discord Servers**
 
@@ -273,16 +260,13 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 
 ![Discord Server Options](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Lastly, you just need to paste the invite link of the Pokemon Go Discord server and click on the “Join” button.
 
 ![Join a Server on Discord](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
 
@@ -346,16 +330,20 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/rom-individual-tracks-to-albums-building-a-personalized-soundtrack-on-web-and-mobile-for-2024/"><u>[New] From Individual Tracks to Albums Building a Personalized Soundtrack on Web & Mobile for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-social-sensation-strategies-crafting-fbs-topmusicvideos/"><u>[Updated] 2024 Approved Social Sensation Strategies - Crafting FB's #TopMusicVideos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-automatic-youtube-video-transition-tips-for-facebook-users/"><u>2024 Approved Automatic YouTube Video Transition Tips for Facebook Users</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Infinix Note 30? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-12-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix iPhone 12 Passcode not Working?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/market-leading-6-social-channels-for-business-advancement-for-2024/"><u>Market-Leading 6 Social Channels for Business Advancement for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-to-fix-not-found-d3dx934dll-errors/"><u>Step-by-Step Guide to Fix 'Not Found' d3dx9_34.dll Errors</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-optimize-your-macs-screen-record-functionality-with-keystrokes/"><u>[New] In 2024, Optimize Your Mac's Screen Record Functionality with Keystrokes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-lifetime-of-photos-in-the-cloud-free-space-haven-and-charged-sanctuaries-await/"><u>[New] Lifetime of Photos in the Cloud Free Space Haven & Charged Sanctuaries Await</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-bypass-youtube-and-shine-with-these-5-next-gen-editing-software/"><u>2024 Approved Bypass Youtube and Shine with These 5 Next-Gen Editing Software</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-iphone-solutions-for-reverse-playback/"><u>2024 Approved IPhone Solutions for Reverse Playback</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-next-level-mac-cam-apps-avoiding-the-bandicamp-route/"><u>2024 Approved Next-Level Mac Cam Apps Avoiding the Bandicamp Route</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-nokia-c210-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Nokia C210 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/fixing-the-issue-why-and-how-to-resolve-freezing-in-fallout-3-on-windows-10/"><u>Fixing the Issue: Why & How to Resolve Freezing in Fallout 3 on Windows 10</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hack-the-art-world-essential-free-3d-psd-files-for-2024/"><u>Hack the Art World Essential Free 3D PSD Files for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Infinix Note 30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-oneplus-ace-2v-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For OnePlus Ace 2V</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Infinix Zero 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/the-gamers-handbook-resolving-latency-problems-in-pc-games-updated-tips/"><u>The Gamer's Handbook: Resolving Latency Problems in PC Games (Updated Tips )</u></a></li>
 </ul></div>
 

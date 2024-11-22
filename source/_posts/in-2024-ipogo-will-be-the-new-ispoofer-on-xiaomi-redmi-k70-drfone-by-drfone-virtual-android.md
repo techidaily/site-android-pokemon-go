@@ -1,7 +1,7 @@
 ---
 title: In 2024, iPogo will be the new iSpoofer On Xiaomi Redmi K70? | Dr.fone
-date: 2024-11-11T16:09:16.929Z
-updated: 2024-11-12T16:18:05.846Z
+date: 2024-11-19T21:40:22.940Z
+updated: 2024-11-21T19:34:41.047Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -27,16 +27,13 @@ The initial version remains unsupportive and shows ‘Maintenance’ pop up whil
 
 Since we haven’t heard from iSpoofer in 2020, we can assume that they won’t be here for long and it would be a wise choice to look for alternatives.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2 - How to Find other alternatives for the iSpoofer
 
 ![iSpoofer-PoGo-pic-2](https://images.wondershare.com/drfone/2020/2020/iSpoofer-PoGo-pic-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 It is hard to handle change especially when you are an iPhone user. There aren’t many apps that you can find on the App Store and you never know their authenticity. Even if you find a good location spoofer, you never know how long that is going to keep your location changed or if it will remain undetected. That being said - your first obvious option for spoofing Pokemon Go would be -
 
@@ -45,13 +42,6 @@ It is hard to handle change especially when you are an iPhone user. There aren�
 If the iSpoofer for Pogo is not working, then you can make a simple search for some other GPS location changer on the App store and they would help you for a short time. If you are lucky then they might remain undetected for a very long time. However, we won’t suggest this to be the most stable option so we can move ahead to the next best thing for the iOS users.
 
 ![iOS-App-Store-pic-3](https://images.wondershare.com/drfone/2020/2020/iOS-App-Store-pic-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### In-built spoofing with VPNs
 
@@ -64,13 +54,6 @@ The spoofer will help you play Pokemon Go for sure though I cannot give you assu
 If you are looking for something long lasting and something that won’t pose a detection problem, then I would suggest you to go for WOnder share’s Dr.Fone. It is affordable, has some remarkable features and works great for both Android and iOS devices.
 
 Unlike iSpoofer, this will not require jailbreak access, detects every location on the globe and poses no threat to your Pokemon Go account. Here are the simple steps that you need to follow to work with [Dr.Fone](https://drfone.wondershare.com/virtual-location/fake-snapchat-location.html) for spoofing location
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
 
@@ -96,23 +79,9 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 ![Move-Here-drfone-pic-8](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4** \- Your location change will happen automatically and within a few minutes, the new location will be registered on every site that you go to. So, you are covered!
 
 ![New-Location-on-map-drfone-pic-9](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3 - Tips to avoid being Banned
 
@@ -144,6 +113,10 @@ This detailed guide for iSpoofer installation is for those who still possess the
 **Step 2 –** Once the setup is done, connect your phone to the computer and unlock it. You will have to select the “TRUST” option for the software to do its work. On selecting this option, iSpoofer will download a developer file that will spoof the location.
 
 ![unlock and trust software](https://images.wondershare.com/drfone/2020/2020/unlock-and-trust-software.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3 –** A map will load on your computer screen, which allows you to enter or point the location. Enter the location of your choice and click on “MOVE”. And that is it! Three simple steps and you have spoofed!
 
@@ -196,6 +169,10 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4 –** Select the “teleport” option by clicking on the icon on the top right corner. Then, in the text box, enter the city or the location’s exact name or the coordinates in the “latitude, longitude” format.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -226,9 +203,17 @@ The cool-down period between two locations is based on distance and you can refe
 
 Most gamers wait for the standard 2 hours before logging in again. This gives them access to all the game’s features like before.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 We hope that this article has been informative, about Dr Fone Virtual Location and ispoofer for pogo installation. You can now spoof locations with ease by using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app. Vigilance is needed, and spoofing must be done by following all rules of cool down. This would prevent you from being caught by Niantic, and by Officer Jenny. We would like you to enjoy the game throughout without having to lose any of your levels and Pokemon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi Redmi K70
 
@@ -280,13 +265,6 @@ On the contrary, it has Dig, Poison Fang, Thunderbolt, and Sludge Bomb as charge
 | **Weaknesses** | Ground, Psychic |
 | **Resistance** | Bug, Fighting, Fairy, Grass, Poison |
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Timburr
 
 ![timburr pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-4.jpg)
@@ -313,13 +291,6 @@ If exposed to neutral weather, it faints out after staying strong in 120.2 damag
 | **Weaknesses** | Fire, Flying, Ice, Psychic |
 | **Resistance** | Grass, Electric, Fairy, Fighting, Water |
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Pawmo
 
 ![pawmo pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-6.jpg)
@@ -340,13 +311,6 @@ In league battles, players get promoted to higher ranks after succession. This r
 ### 1\. Raichu
 
 ![raichu pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This Pokémon has recorded 2467 CP and is considered the strongest in the Ultra League. Raichu comes up with its best moves, such as Wild Charge and Thunder Shock. It originally appeared in the Kanto region and can improve its moves in rainy weather. It has scores of 193 in attack, 151 in defense, and 155 in stamina, making it the best choice for Ultra League.
 
@@ -426,9 +390,17 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 | **Weaknesses** | Dark, Ghost, Ground, Psychic |
 | **Resistance** | Fighting, Bug, Normal, Poison, Fairy, Grass |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Mega Y Charizard
 
 ![mega charizard pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This Pokémon Go has a maximum of 5037 CP on level 50, which offers Blast Burn and Fire Spin among its best moves. Before fainting, it can deal with 688.4 damage and cause damage of 21.74 per second. When battling in neutral weather, it needs Elite Charge TM to get Blast Burn.
 
@@ -455,6 +427,10 @@ Besides, there is a 20km buddy distance recorded so far with 337 attack, 196 def
 ### 4\. Lugia
 
 ![lugia ultra pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-15.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 It is another strongest and most well-known Pokémon due to the fast and charged moves that are valuable for the master league. As far as it is concerned, it gained a maximum of 4186 CP at level 50 in Pokemon GO. It was basically found in the Johto region and is boosted by windy weather.
 
@@ -506,6 +482,10 @@ Once Teleport Mode is activated, head to the top left side, access the search ba
 
 ![search for required location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Step 3. Adjust the Pin Location and Confirm Your Choice
 
 Following this, verify the location information displayed on the screen. Use the "Move Here" button to confirm your location, which also changes the location of your smartphone.
@@ -523,6 +503,10 @@ To use this feature, navigate to the upper-right section and tap the “One-Stop
 Upon selecting, decide whether you want a "Round Trip" or "Loop Trip," and enter the number of times you want the trip. Now, drag the slider to choose the speed of spoofing and proceed by tapping on the "Move Here" button. Afterward, the simulation will start, so you can witness your movement now. To hold the simulation, click the "Pause" or "Clear" buttons to stop or return to the actual location.
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Step 6. Initiate Multi-Sop Route and Define Parameters
 
@@ -548,17 +532,20 @@ To wrap up, Pokémon GO PvP leagues excitedly produce rewards and rankings. To g
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-top-11-brain-boosting-trivia-shows-for-24/"><u>[New] Top 11 Brain-Boosting Trivia Shows for '24</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-ideal-green-visual-effects-systems-practical-steps/"><u>[Updated] 2024 Approved Ideal Green Visual Effects Systems Practical Steps</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-lightweight-recording-tool-windows-compatible/"><u>[Updated] 2024 Approved Lightweight Recording Tool, Windows Compatible</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-screenscapes-the-new-tech-frontier-for-2024/"><u>[Updated] Screenscapes The New Tech Frontier for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-y200-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Itel S23+? | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-fix-the-search-tool-in-windows-10-and-11-not-displaying-results/"><u>How to Fix the Search Tool in Windows 10 & 11 Not Displaying Results</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-12-mini-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone 12 mini</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-delving-into-hdr-excellence-with-luminances-tools/"><u>In 2024, Delving Into HDR Excellence with Luminance’s Tools</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-htc-u23-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Oppo A18? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-agribuddy-games-celebrating-camaraderie-on-the-farm/"><u>[New] AgriBuddy Games Celebrating Camaraderie on the Farm</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hannel-your-creativity-crafting-youtube-trailers-in-filmora-for-2024/"><u>[New] Channel Your Creativity Crafting YouTube Trailers in Filmora for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-discovering-logitechs-top-tier-4k-video-camera-for-2024/"><u>[New] Discovering Logitech's Top-Tier 4K Video Camera for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-massive-igtv-audience-engagement-essential-steps/"><u>[Updated] 2024 Approved Mastering Massive IGTV Audience Engagement Essential Steps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-standard-youtube-license-vs-creative-commons/"><u>2024 Approved Standard YouTube License Vs. Creative Commons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-wi-fi-signal-powerfully-using-the-netgear-ex3700-ac750-extender-an-in-depth-review/"><u>Boost Your Wi-Fi Signal Powerfully Using the Netgear EX3700 AC750 Extender: An In-Depth Review</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-chromecast-converter-how-to-stream-unsupported-video-formats-for-2024/"><u>New The Chromecast Converter How to Stream UnSupported Video Formats for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Xiaomi 13T? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-league-of-legends-wont-open/"><u>Troubleshooting Steps for 'League of Legends Won't Open'</u></a></li>
 </ul></div>
 
