@@ -1,7 +1,7 @@
 ---
 title: Ultimate guide to get the meltan box pokemon go For Infinix Hot 40 | Dr.fone
-date: 2024-11-29T16:22:07.946Z
-updated: 2024-11-30T16:15:51.101Z
+date: 2024-12-02T18:44:45.871Z
+updated: 2024-12-08T22:05:21.521Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -65,6 +65,10 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 
 ![pokemon switch pair3](https://images.wondershare.com/drfone/2020/pokemon-switch-pair3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 11:** Once the pairing is done, you can now transfer the Pokemon from the Pokemon Go smoothly. Let’s get to know that too.
 
 After the pairing is complete, you are now ready to send your Pokemon to the Go complex Park in Pokemon Let’s Go. This can be done by following the process:
@@ -89,11 +93,11 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 ![send to nintendo switch](https://images.wondershare.com/drfone/2020/send-to-nintendo-switch.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips to get more meltan boxes
 
@@ -121,10 +125,6 @@ It is well-known that Pokemon Go is a location-based game that offers several se
 
 Resolving your query about getting meltan box and offering you a detailed guide and assistance, we aim to help you continue your fun-experience with the game. Play, look for and find all the meltan! You can then evolve your meltan into a formidable Melmetal. You will need around 400 meltan candy to evolve into Melmetal, so be sure to catch as many as possible and enjoy!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Hot 40?
 
 Pokémon Go is a location-based AR game and is very popular in the world of gaming. Catching little cuddles and fighting to catch more-powerful Pokémon is really fun. In addition to fun, this game also increases your knowledge about the surrounding area and the diversity around your location.
@@ -132,7 +132,7 @@ Pokémon Go is a location-based AR game and is very popular in the world of gami
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 For example, if you want to catch the special characters or characters of another city, you have to that place. This is the only drawback for players. However, with location spoofing apps, you can catch characters from any location without actually moving there.
@@ -148,10 +148,6 @@ Let’s find out how PGSharp and Dr.Fone virtual location app save you from gett
 Getting banned for cheating Pokémon is nothing new. Niantic always modifies the policies to catch the spoofers and to maintain the originality of the game. Niantic has made a proper discipline policy with three strikes to punish the spoofers.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Firstly, punishment:** On the first fake strike, you will get a warning message, but you still can play the game. But, while plying, you will not be able to anything remotely for about seven days.
 
@@ -170,7 +166,7 @@ No, you can spoof Pokémon Go with the best spoofing tools like PGSHarp and Dr.F
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This tool is safe and secure to use, plus it offers a real map interface, and it is difficult for Niantic to catch it.
@@ -203,14 +199,10 @@ Remember to close all the background apps and launch PGSHARP. Now, you are ready
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** You will need a free beta key to install the PGSharp on your device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Spoof GPS on iPhone Without ban?
 
@@ -231,6 +223,10 @@ Plus, with this, you also do not need to jailbreak your device. It doesn’t bre
 With the Dr.Fone virtual location iOS, you can set your location to the desired place. You only need to choose the location on the map interface and click on the move here button. It is very easy-to-use app that a novice can also operate it easily.
 
 Apart from Pokémon Go, you can also spoof dating apps and can hide your current location.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Simulate a Route with Dr.Fone Virtual Location iOS
 
@@ -258,6 +254,10 @@ In this article, we will talk about the amazing benefits of Pokemon Go streaming
 
 In all actuality, Pokemon Go streaming is not different from other forms of live game streaming. You just play the game as usual and interact with your viewers throughout the duration. However, we cannot deny that Pokemon Go streaming has a more challenging format compared to others. Why so? Simply because the game itself requires large body movements and a few physical activities. But don’t sweat it. Streaming Pokemon Go online comes with tons of benefits. Check out the list below to find what exactly you can get from this endeavor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### It can provide an alternative source of income
 
 ![pokemon go streaming live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-1.JPG)
@@ -271,10 +271,6 @@ It’s not impossible to turn the regular viewers of your Pokemon Go Livestream 
 ### It can improve cognitive performance
 
 It’s true to say that multi-tasking is the core of Pokemon Go streaming. Of course, you have to stay focused on the actual game while engaging with your viewers. That seems like a handful of work. But fret not. Juggling multiple tasks one after another is actually beneficial to your health. As you get exposed to such arrangements over and over, your cognitive performance further improves, too.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### It can make an ordinary Pokemon Go player go global
 
@@ -290,11 +286,11 @@ The primary mechanics of Pokemon Go involve a lot of outdoor strolling and physi
 
 ![smartphone and internet power](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-3.JPG)
 
-It’s fair to say that Pokemon Go streaming is not extremely particular when it comes to equipment. You can actually go live under natural daylight and document your adventure as it is. However, keep in mind that you’re simultaneously doing two different tasks in this regard. One is streaming, and the other is playing. Therefore, ensure your mobile device and internet connection can handle heavy workloads as such. A smartphone with 8 GB RAM (or higher) and an internet connection of at least 25 Mbps is highly recommended.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+It’s fair to say that Pokemon Go streaming is not extremely particular when it comes to equipment. You can actually go live under natural daylight and document your adventure as it is. However, keep in mind that you’re simultaneously doing two different tasks in this regard. One is streaming, and the other is playing. Therefore, ensure your mobile device and internet connection can handle heavy workloads as such. A smartphone with 8 GB RAM (or higher) and an internet connection of at least 25 Mbps is highly recommended.
 
 ### Choose a live-streaming application and create an account
 
@@ -325,6 +321,10 @@ The best tip that anyone can give you is to be yourself when you livestream Poke
 - Adhere to the rules and policies implemented not only by Pokemon Go but also by your chosen platform. Don’t break any of them because such actions can affect your progress as a player and streamer.
 - Take constructive feedback positively. Yes. Expect that once you go live on the internet, you will receive various kinds of reactions from other people. But don’t let them get into your head as much as possible. Keep your head high and work on the improvements at your own pace.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can You Livestream Pokemon Go Inside Your Home?
 
 Is it possible to livestream Pokemon Go from the comfort of your own home? The short answer is absolutely yes. Indoor Pokemon Go streaming is feasible with the aid of [Wondershare Dr.Fone.](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It offers a powerful Virtual Location feature capable of simulating GPS movements needed in Pokemon Go. Don’t worry. It’s very easy to use. As a matter of fact, beginners can ace it in no time. Here’s a short guide to help you get started.
@@ -336,10 +336,6 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 5:** Calibrate the provided settings according to your liking. Start by specifying your preferred type and number of trips. After that, adjust the movement speed by dragging the slider from left to right. Once you’re done, commence the simulation immediately. Click **Move Here.** If you wish to reset your inputs, click **Clear** instead.
 
 ![adjust movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -347,6 +343,10 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 - **Step 6:** Use the map on the screen as your guide to track down the real-time progress of the simulation. If you wish to put the movement on hold for a little while, click **Pause.** On the other hand, click **Clear** if you want to start all over again.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -366,18 +366,19 @@ Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this m
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-dark-heroity-meets-radiant-righteousness/"><u>[New] Dark Heroity Meets Radiant Righteousness</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-the-ultimate-guide-to-facebook-live-recording/"><u>[New] The Ultimate Guide to Facebook Live Recording</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/7-a-comprehensive-tutorial/"><u>7 - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209541302-9780008319359-cancer-2020-your-personal-horoscope/"><u>Cancer 2020: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fix-how-to-stop-valorant-from-continuously-crashing-on-windows/"><u>Fix: How to Stop Valorant From Continuously Crashing on Windows</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo F23 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Nokia C300 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/masterclass-on-the-leading-light-in-on-the-go-gaming-an-insightful-recommendation-of-the-nintendo-switch/"><u>Masterclass on the Leading Light in On-the-Go Gaming: An Insightful Recommendation of the Nintendo Switch</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-infinix-hot-30-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Infinix Hot 30 5G</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/unlocking-higher-rankings-the-impact-of-cookiebot-on-seo-outcomes/"><u>Unlocking Higher Rankings: The Impact of Cookiebot on SEO Outcomes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-cutting-edge-techniques-for-aspiring-youtube-game-streamers/"><u>[New] In 2024, Cutting-Edge Techniques for Aspiring YouTube Game Streamers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/iche-networking-smaller-bizs-video-strategies/"><u>[New] Niche Networking Smaller Biz's Video Strategies</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-stabilization-of-video-on-personal-tech-devices/"><u>[Updated] Mastering Stabilization of Video on Personal Tech Devices</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-tactics-to-eliminate-stuck-image-issues-on-your-monitor/"><u>Comprehensive Tactics to Eliminate Stuck Image Issues on Your Monitor</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-from-novice-to-expert-elevating-screencapture-skills/"><u>In 2024, From Novice to Expert Elevating ScreenCapture Skills</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Poco X6? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/h-cinematography-premium-stabilizer-recommendations-for-2024/"><u>Smooth Cinematography Premium Stabilizer Recommendations for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-fixing-last-epoch-installation-problems-on-computers/"><u>Troubleshooting Guide: Fixing 'Last Epoch' Installation Problems on Computers</u></a></li>
 </ul></div>
 

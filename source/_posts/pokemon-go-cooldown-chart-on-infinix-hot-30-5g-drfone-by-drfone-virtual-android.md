@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Infinix Hot 30 5G | Dr.fone
-date: 2024-11-23T16:36:37.260Z
-updated: 2024-11-30T16:22:45.456Z
+date: 2024-12-04T21:21:38.568Z
+updated: 2024-12-08T17:47:27.371Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -101,6 +101,10 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -136,10 +140,6 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
@@ -156,19 +156,11 @@ When you want to stop this teleporting, simply click the "Stop Simulation" butto
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How can I get more stardust in pokemon go On Infinix Hot 30 5G?
 
 Pokemon Go is one of the most popular games worldwide, with over 80 million active players. The game will present tasks you should complete to collect items and Pokemons, thus improving your skill levels and making you better in the game.
 
 One of the essential items you can get is Stardust, which will help you become the best trainer in the Pokemon Go industry. If you’re new to the game and are wondering what the importance of Stardust is in Pokemon Go, read ahead. We’ll teach you all about it and present methods to collect this item faster.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1. What Is Stardust in Pokemon Go?
 
@@ -188,10 +180,6 @@ As you can see, Stardust is crucial for numerous gameplay experiences, so you sh
 
 ![power up using stardust](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3. Best Ways to Get Stardust in Pokemon Go
 
 Since having Stardust is crucial for your Pokemon Go experience, you may be looking for the best ways to accumulate as many consumables as possible. We’ll present a couple of ways to reach your goals below.
@@ -206,10 +194,6 @@ Another method is to play with your friends, and the Stardust points can vary fr
 
 ![pvp in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### By Opening Gifts
 
 Opening gifts is one of the main components of the Pokemon Go experience. You’ll get daily gifts you can open for free, earn valuable items, and support your gameplay. Each gift can carry a certain amount of Stardust particles, so you don’t have to do anything to accumulate these items.
@@ -217,6 +201,10 @@ Opening gifts is one of the main components of the Pokemon Go experience. You’
 The maximum Stardust you can get in one gift is 300, which may not seem like a lot. However, if you open your gifts regularly, you’ll have the desired Stardust amount in no time. You should also combine this method with others mentioned in this article for the best experience.
 
 ![opening gifts in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Hatching Pokemon
 
@@ -234,6 +222,10 @@ You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### By Catching Pokemon
 
 Catching Pokemon is one of the most efficient ways of earning Stardust points. Each Pokemon has a base rate of 100 Stardust points, but you can earn more points depending on the Pokemon’s evolution stage. For instance, if the Pokemon is in the second stage, you’ll earn an additional 500 Stardust points.
@@ -243,10 +235,6 @@ Another thing you should look out for is specific Pokemon characters – some ma
 If you stay consistent and catch at least one Pokemon daily, you can get up to 9,000 Stardust points on the seventh day. Moreover, the first catch of the day will bring you an additional 1,800 points.
 
 ![catch a pokemon](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### By Claiming Raid Rewards
 
@@ -283,6 +271,10 @@ While on your daily walk in the Pokemon world, you should check out whether you 
 You’ll earn 20 Stardust points for each berry you give a Pokemon. It may be the easiest way to earn and use these points for your experience. Plus, you’ll meet new characters and fully experience what the Pokemon world offers.
 
 ![giving berries to pokemon characters](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Claim Stardust Quickly in Pokemon Go by Using Location Spoofing
 
@@ -324,6 +316,10 @@ This is one of the many queries that we have got lately about the Pokemon Go GPS
 
 ![pokemon go no gps signal banner](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-no-gps-signal-banner.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Common Reasons for Pokemon Go GPS Problems
 
 Ideally, the Pokemon Go no GPS signal could be caused by either of these reasons:
@@ -336,6 +332,10 @@ Ideally, the Pokemon Go no GPS signal could be caused by either of these reasons
 - There could be any other app or firmware-related issue causing this problem.
 
 ![pokemon gps signal not found](https://images.wondershare.com/drfone/2020/pokemon/pokemon-gps-signal-not-found.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Fix Pokemon Go No GPS Signal Issue on iOS Devices?
 
@@ -356,7 +356,7 @@ Turning on the location services on your iPhone is not enough and you need to gr
 ![pokemon go location services](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-services.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 3: Set Precise Location for Pokemon Go
@@ -379,6 +379,10 @@ Lastly, you can just reload the Pokemon Go app or restart your iPhone if you sti
 
 You can also press the Power or the Side + Volume Up/Down keys (for newer models) to get the power option. Swipe it to turn off your device and press the Power/Side key afterward to restart your phone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Fix the Pokemon Go No GPS Signal Issues on Android?
 
 Just like iPhone models, fixing the Pokemon Go GPS problem on Android phones is pretty easy and can be done in the following way:
@@ -397,15 +401,15 @@ If you have not granted the location services permission to Pokemon Go, then you
 
 ![pokemon go location access](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-access.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 3: Reinstall the Pokemon Go App
 
 As listed above, one of the reasons for this Pokemon Go GPS bug could be a corrupt or outdated app. The easiest way to fix this is by uninstalling Pokemon Go on your phone. Afterward, restart your phone and go to Play Store to install Pokemon Go on your Infinix Hot 30 5G again.
 
 ![pokemon go update](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-update.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Set GPS on High Accuracy
 
@@ -418,7 +422,7 @@ If the Pokemon Go GPS is not accurate on your device, then you need to change it
 If the problem persists and you've tried all of the above steps, you can contact Pokemon Go's support team for further assistance. They may be able to provide specific guidance based on your device and situation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Manually Set your Location to Any Place using Dr.Fone – Virtual Location (iOS)
@@ -434,10 +438,6 @@ If you are still getting Pokemon Go no GPS signal on your device, then you can u
 - There is no need to jailbreak your iPhone to spoof its location with Dr.Fone – Virtual Location (iOS) and it won’t compromise your account as well.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 I’m sure that after reading this post, you would be able to fix any Pokemon Go GPS problem on your iOS or Android device. Though, if the Pokemon Go GPS bug is still troubling you, then consider using Dr.Fone – Virtual Location (iOS). It is a user-friendly and 100% secure desktop application that would let you change your iPhone location anywhere you want in seconds.
 
@@ -459,20 +459,14 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-comprehensive-drone-racing-guide-and-5-top-fpv-uavs/"><u>[New] Comprehensive Drone Racing Guide & 5 Top FPV UAVs</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-supreme-cameras-for-extreme-sports-fans/"><u>[New] Supreme Cameras for Extreme Sports Fans</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/6-reasons-your-car-battery-keeps-dying/"><u>6 Reasons Your Car Battery Keeps Dying</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-lava-blaze-pro-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Lava Blaze Pro 5G to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/creating-the-perfect-biz-account-a-compreehsive-instagram-tutorial-for-2024/"><u>Creating the Perfect Biz Account A Compreehsive Instagram Tutorial for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Hacks to do pokemon go trainer battles For Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Motorola Moto G14? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On OnePlus Ace 2V? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Motorola Edge 40? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/steps-toward-overcoming-humanitys-inaction/"><u>Steps Toward Overcoming Humanity's Inaction</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unlock-the-mystery-7-common-fixes-for-iphone-screen-issues/"><u>Unlock the Mystery: 7 Common Fixes for iPhone Screen Issues</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-shadow-play-with-iphone-pro-photography-tips-for-2024/"><u>[Updated] Shadow Play with iPhone Pro Photography Tips for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-total-view-team-up-choosing-the-right-mcn/"><u>[Updated] Total View Team-Up Choosing the Right MCN</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-scripted-time-warps-a-cinematic-approach/"><u>2024 Approved Scripted Time Warps A Cinematic Approach</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013582-9781644119228-coma-and-near-death-experience/"><u>Coma and Near-Death Experience | Free Book</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Oppo Reno 10 5G? | Dr.fone</u></a></li>
 </ul></div>
 

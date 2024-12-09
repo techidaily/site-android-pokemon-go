@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Xiaomi Redmi K70E? | Dr.fone
-date: 2024-11-26T16:18:36.755Z
-updated: 2024-11-30T16:15:18.781Z
+date: 2024-12-04T21:13:34.518Z
+updated: 2024-12-08T16:21:05.831Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -23,6 +23,10 @@ Pokémon Go has been on the nerves of its players and this is all because of the
 
 The best part of this game is that it has been compiled keeping in view the location mechanics. The location analytics of the game has made sure that it becomes the overnight sensation. Three main attributes are associated with the location framework of the game. These attributes also show how important the location is for the game. Understanding these attributes will also make sure that the user can overcome the errors such as failed to detect location 12 GPS joystick 2019.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### i. Physical World Attribute
 
 The best part of this attribute is that it is the center of the user experience of the game. The second part is the fact that this map has evolved and there are no shortcuts to its success. Ingress was the previous game that was developed by Niantic and the crowdsourcing of this map started with the evolution of this application. This was developed by the same team that is working on the core of Google Earth.
@@ -38,6 +42,10 @@ The system within the system that has been designed by the game developers makes
 ## Part 2: Ways to Fix Error 12 on Pokémon Go
 
 Several ways can be used to make sure that the subject error is resolved with ease. This section of the article will deal with all such ways that can be used to get the work done with ease and perfection.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 1: Enable Mock Locations
 
@@ -63,6 +71,10 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 4](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2.** Tap on the passwords and security to proceed with the process:
 
 ![pokemon error 12 5](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_5.jpg)
@@ -70,10 +82,6 @@ This is another important and easy way to make sure that the Pokémon failed to 
 **Step 3.** Tap to turn on the location to finish the process and eliminate the failed to detect location 12 Pokémon Go errors.
 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 3: Reboot the Xiaomi Redmi K70E device
 
@@ -152,27 +160,15 @@ To understand the dynamics of team composition, you should know that there are i
 
 Based on these different types of Pokemons, you can come up with the following teams to win your next battle:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. 2x Physical Sweeper, 2x Special Sweeper, Tanker, and Annoyer
 
 If you want to have an attacking team, then this would be the perfect combination. While the annoyer and tanker would drain the HP of the opponents, your sweeper Pokemons can finish them with their high attacking stats.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. 3x Sweepers (Physical/Special/Mixed), Tanker, Wall, and Annoyer
 
 This is one of the most balanced Pokemon teams that would work in almost every situation. In this, we have a tanker and a wall to take damage from the opponent’s Pokemon. Also, we have three different types of sweepers to do maximum damage.
 
 ![Balanced Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Drainer, Tanker, Cleric, and 3 Sweepers (Physical/Special/Mixed)
 
@@ -183,7 +179,7 @@ In some situations (when there are lots of sweepers in the opponent’s team), t
 This is one of the most legendary teams in Pokemon that any player can have. The only issue is catching these legendary Pokemons can take a lot of time and effort, but it would certainly be worth it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Garchomp, Decidueye, Salazzle, Araquanid, Metagross, and Weavile
@@ -191,6 +187,10 @@ This is one of the most legendary teams in Pokemon that any player can have. The
 Even if you don’t have a lot of experience in the game, you can try this power-packed team in Pokemon games like Sun and Moon. It has the perfect balance of attacking and defensive Pokemons that would excel in every situation.
 
 ![Attacking Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Things to Consider while Creating your Pokemon Team
 
@@ -224,15 +224,7 @@ The overall interface would largely vary on the game that you are playing. Let�
 
 ![Swap Pokemon in a Team](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There you go! By following these tips, you would be able to come up with a winning Pokemon team for different games. I have included various examples of Pokemon team combinations here that you can also apply. Besides that, you can also follow the above-listed tips to create different styles of amazing teams in Pokemon games like Sword/Shield or Sun/Moon like a pro.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi Redmi K70E
 
@@ -297,6 +289,10 @@ Plus, it displays Low Sweep, Rock Tomb, and Brick Break as charged moves. The sp
 | **Weaknesses** | Fairy, Flying, Psychic |
 | **Resistance** | Bug, Dark, Rock |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Oddish
 
 ![oddish pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-5.jpg)
@@ -314,6 +310,10 @@ If exposed to neutral weather, it faints out after staying strong in 120.2 damag
 
 ![pawmo pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pawma, with 1468 CP, is eligible to play as the **best PvP Pokemon GO Great League**. Its best moves are Spark and Wild Charge, with 11.11 damage per second. This Pokémon has 147 attack, 82 defense, and 155 stamina score rates.
 
 Pawma shows its full rage in rainy and cloudy weather while showing its fast moves, Spark and Charge Beam. Additionally, it has charge or super moves such as Thunderbolt, Wild Charge, and Discharge. In addition, two of its family members include Pawmi and Pawmot.
@@ -322,10 +322,6 @@ Pawma shows its full rage in rainy and cloudy weather while showing its fast mov
 | --- | --- |
 | **Weaknesses** | Fairy, Ground, Psychic |
 | **Resistance** | Dark, Electric, Bug, Steel, Rock |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3. 5 Strongest Pokémon for Pokémon GO Ultra League
 
@@ -417,10 +413,6 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 
 ![mega charizard pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This Pokémon Go has a maximum of 5037 CP on level 50, which offers Blast Burn and Fire Spin among its best moves. Before fainting, it can deal with 688.4 damage and cause damage of 21.74 per second. When battling in neutral weather, it needs Elite Charge TM to get Blast Burn.
 
 It scores a maximum of 319 in attack, 212 in defense, and 186 in stamina. For the best combinations in attacking, users prefer going with Fire Spin and Blast Burn or Wing Attack and Blast Burn. This helps them attain the maximum damage out of the opponent Pokemon during showdowns.
@@ -429,6 +421,10 @@ It scores a maximum of 319 in attack, 212 in defense, and 186 in stamina. For th
 | --- | --- |
 | **Weaknesses** | Electric, Rock, Water |
 | **Resistance** | Bug, Grass, Fairy, Fighting, Fire, Ground, Steel |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Necrozma (Ultra)
 
@@ -469,11 +465,19 @@ Talking about other score rates, 310 attack, 251 defense, and 216 stamina scores
 | **Weaknesses** | Ice, Dragon, Fairy Rock |
 | **Resistance** | Bug, Ground, Grass, Fighting, Fire, Water |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5. Unleash Your Potential in Pokémon GO PVP Leagues With the Best Location Spoofer
 
 For **Pokémon GO PVP** Leagues aspirants, location restrictions are significant barriers. Overcoming this obstacle is possible without changing physical location. [<u>Wondershare Dr.Fone - Virtual Location</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is an ultimate solution and is considered the game changer. It has the caliber to explore different in-game regions and spoof locations.
 
 This way, players can access the strongest Pokémon from any region and ensure a win-win streak in battle leagues. Players and trainers can now sit in their rooms and enjoy convenient import and export options. The virtual location changer of Wondershare Dr.Fone allows you to save and review various routes effortlessly.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Incredible Features of Wondershare Dr.Fone-Virtual Location
 
@@ -496,10 +500,6 @@ Establish the connection of your phone to the PC or MacBook upon launching Wonde
 Once Teleport Mode is activated, head to the top left side, access the search bar, and type the required location. Then, hit the "Enter" key to mark that location on the map.
 
 ![search for required location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - Step 3. Adjust the Pin Location and Confirm Your Choice
 
@@ -543,16 +543,17 @@ To wrap up, Pokémon GO PvP leagues excitedly produce rewards and rankings. To g
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/levate-your-video-impact-20-essential-thumbnail-fonts/"><u>[New] Elevate Your Video Impact 20 Essential Thumbnail Fonts</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-deciphering-finances-how-much-do-youtubers-earn-per-ad/"><u>[Updated] In 2024, Deciphering Finances How Much Do YouTubers Earn Per Ad?</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210547708-9780648926115-a-burst-for-freedom/"><u>A Burst For Freedom | Free Book</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Motorola Defy 2 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/explore-how-apples-airpods-pro-and-max-stack-up-with-the-latest-release-insights-on-model-comparisons/"><u>Explore How Apple's AirPods Pro and Max Stack Up with the Latest Release - Insights on Model Comparisons</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo A78? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Lava Blaze 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Lava Yuva 3? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Tecno Pop 7 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-techniques-to-speed-up-shutdown-on-windows-11/"><u>Troubleshooting Techniques to Speed Up Shutdown on Windows 11</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-the-leading-wet-proof-phones-shields/"><u>Ultimate Guide: The Leading Wet-Proof Phones Shields</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-downloader-apps-youtube-videos-on-android-compared/"><u>[New] Top Downloader Apps YouTube Videos on Android Compared</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-quick-vimeo-transformation-tips-easy-to-create-gifs/"><u>2024 Approved Quick Vimeo Transformation Tips Easy-to-Create GIFs</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/fixing-elevation-problem-with-error-code-740-on-windows-11/"><u>Fixing Elevation Problem with Error Code 740 on Windows 11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-can-i-extract-videos-from-encrypted-dvds-on-a-mac-or-pc-with-handbrake-software/"><u>How Can I Extract Videos From Encrypted DVDs on a Mac or PC with HandBrake Software?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-xs-max-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone XS Max With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Itel P55T? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-through-youtube-settings-to-mute-snapshots/"><u>Navigating Through YouTube Settings to Mute Snapshots</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-childs-learning-experience-with-our-advanced-tablet-special-offer-inside/"><u>Revolutionize Your Child's Learning Experience with Our Advanced Tablet - Special Offer Inside!</u></a></li>
 </ul></div>
 
