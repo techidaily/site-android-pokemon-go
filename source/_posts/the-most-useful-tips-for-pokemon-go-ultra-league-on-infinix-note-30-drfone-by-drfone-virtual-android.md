@@ -1,7 +1,7 @@
 ---
 title: The Most Useful Tips for Pokemon Go Ultra League On Infinix Note 30 | Dr.fone
-date: 2025-01-17T21:26:47.074Z
-updated: 2025-01-20T17:59:52.022Z
+date: 2025-01-19T20:18:09.460Z
+updated: 2025-01-26T23:10:23.552Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -54,12 +54,16 @@ Here you go-
 The ability of this Pokemon to use the charged move sludge bomb prevents any troublesome Fairy-type Pokemon that you may confront. It includes the benefit over Rocky, Ground, and Water-type Pokemon due to its Grass-type move, making Venusaur help you win the match.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Charizard
 
 ![Pokemon go ultra league meta](https://drfone.wondershare.com/2020/Pokemon-go-ultra-league-meta.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Charizard among the Pokemon Go ultra league tier list shines as it balances effortlessly to hold off. With its second move on, it remains strong. There is a need to have such an iconic Pokemon of all the time in your team. What do you think?
 
@@ -67,11 +71,11 @@ Charizard among the Pokemon Go ultra league tier list shines as it balances effo
 
 ![best Pokemon for the ultra league](https://drfone.wondershare.com/2020/best-Pokemon-for%20the-ultra-league.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Neglecting the fighting, which is not as prevalent in the ultra League Pokemon Go as it was in the Great League, Machamp is still strong enough, especially when you are looking for something to round off some of the powerful picks as a counter option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Alolan Muk
 
@@ -107,10 +111,6 @@ Before playing best ultra league pokemon game, users should connect to the desk 
 
 ![best PVP pokemon go ultra league](https://drfone.wondershare.com/2020/best-PVP-pokemon-go-ultra-league.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4.** Enter a number in the new popup box to describe the number of times you want to move back and forth amid the two places. Then, finally, click “March” to begin simulating the movement.
 
 Now, you can easily view your position moving on the map with the cycle’s speed.
@@ -123,22 +123,22 @@ Pokémon Go is a viral game; hence many people try to cheat to achieve high scor
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
@@ -166,6 +166,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -209,6 +213,10 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
@@ -238,10 +246,6 @@ Connect your phone to the system and click on the "Get Started" button to start 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** Select a location to teleport
 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
@@ -251,6 +255,10 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Teleport your location on Pokémon Go
 
@@ -262,11 +270,11 @@ Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -318,10 +326,6 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 
 ![pokemon switch pair2](https://images.wondershare.com/drfone/2020/pokemon-switch-pair2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 9:** This will allow Pokemon Go to search for a Nintendo Switch game to connect with.
 
 **Step 10:** When you finally see that the Nintendo Switch console is locating the Pokemon Go account, select the “Yes” button on the console to establish the pairing.
@@ -337,10 +341,6 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 **Step 2:** In Fuschia City, talk to the Go Park Complex Attendant and select the “Bring Pokemon” option.
 
 ![bring pokemon](https://images.wondershare.com/drfone/2020/bring-pokemon.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3:** Open Pokemon Go.
 
@@ -358,10 +358,6 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Tips to get more meltan boxes
 
 There is a lot of confusion among the Pokemon trainers regarding how to get meltan in pokemon go. Here, we share a few tips for doing the same and reducing your confusion to zero.
@@ -369,6 +365,10 @@ There is a lot of confusion among the Pokemon trainers regarding how to get melt
 ### Tip No.1: Transfer Pokemon to Win a Mystery Box
 
 With the help of pairing and connecting your Pokemon Go to the Nintendo Switch, you can actually get the opportunity to transfer the Pokemon and win a mystery box for yourself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip No.2: Transfer Pokemon to Friend’s Switch
 
@@ -402,18 +402,17 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-optimizing-group-chats-with-google-meets-filtering-options/"><u>[New] In 2024, Optimizing Group Chats with Google Meet's Filtering Options</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-in-depth-guide-to-effortless-photo-and-video-file-transfers-in-windows-10/"><u>[Updated] 2024 Approved In-Depth Guide to Effortless Photo & Video File Transfers in Windows 10</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-proven-approaches-to-securing-photo-and-video-borders/"><u>[Updated] 2024 Approved Proven Approaches to Securing Photo & Video Borders</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-4-creative-ways-to-insert-youtube-content-in-presentations-for-2024/"><u>[Updated] 4 Creative Ways to Insert YouTube Content in Presentations for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-creators-revolutionizing-virtual-environments/"><u>2024 Approved Top Creators Revolutionizing Virtual Environments</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Oppo K11 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Samsung Galaxy F04? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/justifying-auto-gpts-role-without-gpt-4/"><u>Justifying Auto-GPT's Role Without GPT-4</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unveiling-channels-to-zero-cost-image-frames/"><u>Unveiling Channels to Zero-Cost Image Frames</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-windows-10-users-guide-to-microphones/"><u>[New] The Windows 10 User's Guide to Microphones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-the-perfect-harmony-fusing-lyrics-and-images-with-lyric-video-maker/"><u>[Updated] Crafting the Perfect Harmony Fusing Lyrics & Images with Lyric Video Maker</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-exploring-eight-premium-tablets-revolutionizing-photography-editing-for-2024/"><u>[Updated] Exploring Eight Premium Tablets Revolutionizing Photography Editing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-animation-advantage-boosting-profits-in-social-media-ads/"><u>[Updated] In 2024, The Animation Advantage Boosting Profits in Social Media Ads</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-srt-file-uploads-on-social-platforms-step-by-step-guide/"><u>[Updated] Mastering SRT File Uploads on Social Platforms Step-by-Step Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-vivo-y17s-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Vivo Y17s without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/comprehensive-guide-and-analysis-of-the-budget-friendly-apeman-c450-dashcam/"><u>Comprehensive Guide & Analysis of the Budget-Friendly Apeman C450 Dashcam</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-club-anthems-expertly-curated-dj-vids-downloads/"><u>In 2024, Club Anthems Expertly Curated DJ Vids Downloads</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-itel-a60-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Itel A60? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Infinix GT 10 Pro | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Itel P55 5G | Dr.fone
-date: 2024-12-09T20:56:55.235Z
-updated: 2024-12-14T23:50:57.047Z
+date: 2025-01-25T23:26:48.643Z
+updated: 2025-01-26T20:11:10.947Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -25,19 +25,15 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -110,7 +106,7 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
@@ -148,6 +144,10 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
@@ -164,19 +164,11 @@ When you want to stop this teleporting, simply click the "Stop Simulation" butto
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Which Pokémon can Evolve with a Moon Stone For Itel P55 5G?
 
 Evolution items play a significant role in evolving certain species in the Pokémon game. Moon Stone is one of these peculiar items that are worth adding to your Pokedex. However, getting Moon Stone Pokémon is a tough assignment and you have to pull your best bells and whistles. However, there are several hacks and tricks that can reduce your hunting pain. In this article, we shall take you through a complete guide on Moon Stone Pokémon and evolutions.
 
 ## Part 1. Moon Stone Pokémon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What is Moon Stone Pokémon?
 
@@ -189,6 +181,10 @@ The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to La
 ### Pokémon that Evolve with a Moon Stone
 
 Moon Stone makes certain species of Pokémon evolve. To evolve a Pokémon using Moon Stone in Pokémon Sword and Shield, simply open the bag and go to the "Other Items" section. Finally, use Moon Stone in any of the following Pokémon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Nidorina
 
@@ -206,10 +202,6 @@ This is a fairy-type Pokémon that was introduced in Generation I. It is a small
 
 This is a normal/fairy type of Pokémon that was also introduced in Generation I. Before Generation VI, this Pokémon was entirely a normal-type Pokémon. Jigglypuff itself is an evolution of Igglybuff and can evolve into Wigglytuff with the help of Moon Stone.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Skitty
 
 This is a normal type Pokémon that was introduced in Generation II. This Pokémon is pink and looks like a cat with a cute charm ability. Skitty can evolve to Delcatty using the Moon Stone.
@@ -217,6 +209,10 @@ This is a normal type Pokémon that was introduced in Generation II. This Pokém
 ### 6\. Munna
 
 Munna is a psychic-type Pokémon that was introduced in Generation V. It is a small Pokémon with a pink round body having purple flower painting on its back. With the use of Moon Stone, Munna evolves into a Musharna.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2. Tricks and Hacks to Get Moon Stone Pokémon
 
@@ -232,10 +228,6 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2.** Click the "Get Started" on the subsequent page to access the teleport options.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -249,7 +241,7 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Use Android Spoofing Tool- Pgsharp
@@ -260,15 +252,15 @@ Pgsharp is a fake GPS location tool for Android devices and is suitable for play
 
 Go-tcha Evolve is an application that allows you to set animations and vibration to alert you in the case of Pokémon or pokestops. You can use its "auto-catch" feature to allow it automatically grab the Pokémon or pokestops without having to respond to alerts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How PGSharp Save You from Ban While Spoofing Pokemon Go On Itel P55 5G?
 
 Pokémon Go is a location-based AR game and is very popular in the world of gaming. Catching little cuddles and fighting to catch more-powerful Pokémon is really fun. In addition to fun, this game also increases your knowledge about the surrounding area and the diversity around your location.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For example, if you want to catch the special characters or characters of another city, you have to that place. This is the only drawback for players. However, with location spoofing apps, you can catch characters from any location without actually moving there.
 
@@ -276,11 +268,11 @@ But, spoofing Pokémon Go is not easy, as Niantic keeps a close watch to spoofer
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-2.jpg)
 
-Let’s find out how PGSharp and Dr.Fone virtual location app save you from getting banned while spoofing Pokémon Go.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Let’s find out how PGSharp and Dr.Fone virtual location app save you from getting banned while spoofing Pokémon Go.
 
 ## Part 1: Ninatic Policies against Spoofing
 
@@ -329,6 +321,10 @@ Tap seven times on the build number to enable the developer options. Now, in the
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Remember to close all the background apps and launch PGSHARP. Now, you are ready to spoof Pokémon Go without getting banned. There will be no ban when using PGSharp.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-7.jpg)
@@ -361,6 +357,10 @@ The best part is that you can simulate the route according to your desire with D
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/save-you-from-ban-while-spoofing-pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There you will get a walking speed and vehicle speed option that you can customize according to your needs to catch Pokémon.
 
 To use this app, you only need to install and launch it on your device from the official site. It is easy to install and easy to use, as well.
@@ -383,18 +383,20 @@ Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-peeking-into-pixel-performance-a-complete-guide-to-measuring-views-and-income-on-youtube/"><u>[New] In 2024, Peeking Into Pixel Performance A Complete Guide to Measuring Views and Income on YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-dissecting-splitcams-superiority-as-a-recorder/"><u>[Updated] In 2024, Dissecting SplitCam’s Superiority as a Recorder</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-audio-with-headphones-on-a-windows-7-pc-expert-tips-and-tricks/"><u>How to Restore Audio with Headphones on a Windows 7 PC - Expert Tips & Tricks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Xiaomi Redmi 13C? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gigglegraphics-eyecatchermemes/"><u>In 2024, GiggleGraphics EyeCatcherMemes</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-the-facebook-protection-email-from-(securityfbcom)-real/"><u>Is the Facebook Protection Email From @<security@fb.com> Real?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcoming-launch-difficulties-for-modern-warfare-on-your-pc-2024-edition/"><u>Overcoming Launch Difficulties for Modern Warfare on Your PC - 2024 Edition</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-getting-your-mpow-microphone-to-work-on-a-pc/"><u>Troubleshooting Tips: Getting Your MPOW Microphone to Work on a PC</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/unleashing-potential-in-your-channel-through-studio/"><u>Unleashing Potential in Your Channel Through Studio</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-effortless-video-editing-how-to-split-and-merge-clips-in-windows-live-movie-maker/"><u>Updated Effortless Video Editing How to Split and Merge Clips in Windows Live Movie Maker</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-share-facebook-videos-to-whatsapp/"><u>[Updated] How to Share Facebook Videos to WhatsApp?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-trailblazers-in-auditory-and-visual-creation-list/"><u>[Updated] Trailblazers in Auditory & Visual Creation List</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-unlocking-professional-filming-on-windows-macos-ios/"><u>[Updated] Unlocking Professional Filming on Windows, macOS, iOS</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/guide-securing-online-versions-of-your-existing-movie-collection/"><u>Guide: Securing Online Versions of Your Existing Movie Collection</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-oppo-find-x6-frp-by-drfone-android/"><u>How Can We Bypass Oppo Find X6 FRP?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Xiaomi 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-oppo-find-x7-ultra-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Oppo Find X7 Ultra Data? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-ready-set-edit-top-15-fast-and-fun-tricks-to-use-in-pixlr/"><u>In 2024, Ready, Set, Edit! Top 15 Fast and Fun Tricks to Use in Pixlr</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Infinix Note 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-version-available-now-install-epson-wf-35203540-drivers-on-your-windows-computer/"><u>Latest Version Available Now: Install Epson WF 3520/3540 Drivers on Your Windows Computer</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/programele-video-editare-libera-si-intrigi-2024-oferile-la-deschiderea-continua/"><u>Programele Video Editare Libera Și Intrigi 2024 - Oferile La Deschiderea Continua</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Xiaomi Redmi 12? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Tecno Phantom V Flip? | Dr.fone
-date: 2024-09-20T04:05:04.118Z
-updated: 2024-09-22T10:07:04.446Z
+date: 2025-01-22T19:16:16.380Z
+updated: 2025-01-26T18:53:38.658Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -88,10 +88,7 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -174,6 +171,10 @@ Dratini has a 5% spawning chance every day, so if you have the time, you can spe
 
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
 
 This is quite a common question for those who are new to the Pokémon universe. Basically, Dratini nests and spawn points are the same for a period of two weeks. The nests then migrate leaving the spawn points to spawn different types of Pokémon.
@@ -201,18 +202,15 @@ On the official Dr.Fone page, download and install Dr.Fone on your computer or y
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
 
 Next, click on “Get Started”; you will now be able to start the spoofing process.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
@@ -283,19 +281,6 @@ Metal Claw and Powder Snow are its fast moves, whereas Blizzard, Gyro Ball, and 
 | **Weaknesses** | Ground, Fighting, Fire |
 | **Resistance** | Ice, Poison, Bug, Dragon, Fairy, Flying, Grass, Normal, Psychic |
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Nidorina
 
 ![nidorina pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-3.jpg)
@@ -312,6 +297,10 @@ On the contrary, it has Dig, Poison Fang, Thunderbolt, and Sludge Bomb as charge
 ### 3\. Timburr
 
 ![timburr pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While carrying squared logs, Timburr is always ready for construction. It comes up with 1487 CP, suitable to participate in the Great League. This Pokémon belongs to the Unova region and performs superbly in Cloudy weather. Reflecting on its fast moves, Timburr has Low Kicks and Pounds in its fast attacks.
 
@@ -335,6 +324,10 @@ If exposed to neutral weather, it faints out after staying strong in 120.2 damag
 | **Weaknesses** | Fire, Flying, Ice, Psychic |
 | **Resistance** | Grass, Electric, Fairy, Fighting, Water |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Pawmo
 
 ![pawmo pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-6.jpg)
@@ -347,6 +340,10 @@ Pawma shows its full rage in rainy and cloudy weather while showing its fast mov
 | --- | --- |
 | **Weaknesses** | Fairy, Ground, Psychic |
 | **Resistance** | Dark, Electric, Bug, Steel, Rock |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3. 5 Strongest Pokémon for Pokémon GO Ultra League
 
@@ -368,6 +365,10 @@ Regarding Raichu's family, it is found connected to Pikachu, Pichu, and Alolan R
 ### 2\. Xatu
 
 ![xatu pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Xatu is one more top-standing and **best PVP Pokémon GO ultra-league** with 2474 maximum CP. Its best movements are Future Sight and Air Slash, with 11.48 damage per second. Before Xatu faints, it can deal with 228.3 damage, and notably, it is boosted in windy weather.
 
@@ -395,6 +396,10 @@ So far, it has scored 156 in attack, 240 in defense, and 155 in stamina categori
 
 ![caramorant pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Cramorant Pokémon scored the highest at 2421 CP and counts in the Ultra League as the strongest Pokémon. The best moves it offers are Fly and Water Gun, with 12.94 damage per second. It works better in rainy and windy weather and faints in neutral weather after dealing with 298.9 damage.
 
 Players can also consider its 173-score record in attack, 163 in defense, and 172 in stamina portions. In fast attacks, it specializes in Water Gun and Peck moves. Meanwhile, Fly, Drill Peck, and Hydro Pump are its super and charged moves.
@@ -403,13 +408,6 @@ Players can also consider its 173-score record in attack, 163 in defense, and 17
 | --- | --- |
 | **Weaknesses** | Electric, Rock |
 | **Resistance** | Fighting, Ground, Bug, Fire, Water, Steel |
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Ribombee
 
@@ -428,13 +426,6 @@ Notably, it comes up with a max of 2488 CP under level 50 with 198 attack, 146 d
 
 The Master League allows players to play without any CP limit. It is suitable for trainers in the league to trend all over in PvP battles with high CP. Some Pokemon characters are not popular, but they have the potential to compete in the Master League. Let's uncover them in this section and move one step ahead at your intended rank:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Mega Gengar
 
 ![mega gengar pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-12.jpg)
@@ -447,6 +438,10 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 | --- | --- |
 | **Weaknesses** | Dark, Ghost, Ground, Psychic |
 | **Resistance** | Fighting, Bug, Normal, Poison, Fairy, Grass |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Mega Y Charizard
 
@@ -546,6 +541,10 @@ Upon selecting, decide whether you want a "Round Trip" or "Loop Trip," and enter
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Step 6. Initiate Multi-Sop Route and Define Parameters
 
 If you want to move between multi-routes, activate the “Multi-Stop Route" feature from the top-right side and set multiple stops on the map. You should first define the number of trips or speeds and press "Start Moving" for further processing. As the process starts, hit the "Pause" where you want to hold the simulation.
@@ -568,5 +567,19 @@ To wrap up, Pokémon GO PvP leagues excitedly produce rewards and rankings. To g
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-unlocking-video-potential-with-fraps-recorder/"><u>[New] Unlocking Video Potential with Fraps Recorder</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-compelling-content-on-reddit-a-stepwise-path/"><u>[Updated] Crafting Compelling Content on Reddit - A Stepwise Path</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-nikons-leap-to-4k-the-d500-breakdown/"><u>[Updated] In 2024, Nikon's Leap to 4K The D500 Breakdown</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-vivo-y78-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Vivo Y78 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effortless-fixes-for-tackling-windows-update-standstill-at-zero-percent/"><u>Effortless Fixes for Tackling Windows Update Standstill at Zero Percent</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/enter-the-ai-realm-easily-accessible-knowledge-in-our-9-communities/"><u>Enter the AI Realm: Easily Accessible Knowledge in Our 9 Communities</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-blue-screen-of-death-in-helldivers-version-2-expert-advice-here/"><u>Fixing 'Blue Screen of Death' In HellDivers Version 2 – Expert Advice Here</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://discover-great.techidaily.com/resolving-undetected-sound-card-issues-expert-advice-and-solutions-yl-tech-help/"><u>Resolving Undetected Sound Card Issues: Expert Advice and Solutions - YL Tech Help</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+</ul></div>
 

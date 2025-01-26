@@ -1,7 +1,7 @@
 ---
 title: In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Itel A05s | Dr.fone
-date: 2024-12-09T19:12:58.084Z
-updated: 2024-12-14T17:23:40.159Z
+date: 2025-01-21T16:31:14.645Z
+updated: 2025-01-26T22:03:25.247Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -35,15 +35,7 @@ As you know, there are three different leagues to participate in Pokemon Go PvP 
 
 ![leagues in pokemon pvp](https://images.wondershare.com/drfone/2020/leagues-in-pokemon-pvp.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Tip 2: Master all the Battle Moves
 
@@ -55,6 +47,10 @@ Ideally, there are four different moves in any PvP Poke battle that you must mas
 - **Swapping:** Since you get 3 Pokemons, don’t forget to swap them during the battle. You can only swap Pokemons once in every 60 seconds.
 
 ![moves in pokemon pvp](https://images.wondershare.com/drfone/2020/moves-in-pokemon-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 3: Check your Opponent’s Pokemons
 
@@ -77,11 +73,7 @@ Now, instead of going with your ultimate attack, only perform the mild one. Your
 ![shield baiting strategy pokemon pvp](https://images.wondershare.com/drfone/2020/shield-baiting-strategy-pokemon-pvp.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tip 6: Learn to Counter Fast Moves
@@ -93,7 +85,7 @@ During any PvP Poke battle, keep a count of your opponent’s moves to calculate
 ![fast moves in pokemon pvp](https://images.wondershare.com/drfone/2020/fast-moves-in-pokemon-pvp.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tip 7: Sacrifice Swap
@@ -131,6 +123,10 @@ Presently, some attacks like thunderbolt are considered extremely strong in PoGo
 Most importantly, you should be aware of the defense, attack, IV, CP, and all the vital stats of your Pokemons to pick the best ones in the league of your choice. Besides that, you should also do some research about the Meta tier in Pokemon PvP to know the best picks of the present time.
 
 ![meta pokemons in pvp](https://images.wondershare.com/drfone/2020/meta-pokemons-in-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Most of the experts consider the following points while picking any Pokemon in PvP battles.
 
@@ -186,10 +182,6 @@ When you use a Rare Candy, you get enough Exp. Points to move to the next level.
 
 ![Pokemon Rare Candy Trainer Card](https://images.wondershare.com/drfone/2020/Rare-Candy-Cheat-Fire-Red-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to get rare candy in Pokemon Go Fire Red?
 
 There are three main ways in which you can get Rare Candy in Pokemon Go Fire Red. The first one is using a location spoofer to catch rare candy without moving. The second one involves going to areas where you can find the Rare Cady and the last one involves using a Fire Red Rare Candy Code.
@@ -230,6 +222,10 @@ To simulate movement when spoofing your location, you can select either “One-S
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Getting Pokemon Go Fire Red Rare Candy Normally
 
 You would have to visit certain locations in order to get Pokemon Go Rare Candy in the normal way. The locations which have been found to give most Rare Candy are:
@@ -263,6 +259,10 @@ It can be used to get a single Rare Candy or to unlimited Rare Candy as shown be
 
 ![Pokemon Go Fire Red Rare Candy Storage](https://images.wondershare.com/drfone/2020/Rare-Candy-Cheat-Fire-Red.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pokemon Go Cheat Code for Unlimited Rare Candies
 
 82025840 0044
@@ -282,10 +282,6 @@ How to use the code:
 Wait for it to be activated and then save it.
 
 ![Enter details of the cheat code](https://images.wondershare.com/drfone/2020/my-boy-pokemon-fire-red-cheat-codes-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4 –** Enter the Pokéstop and deactivate the cheat code.
 
@@ -323,18 +319,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![kanto pokemon](https://images.wondershare.com/drfone/2020/202010/kanto-pokemon.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Taouros:** North America.
 - **Farfetch’d:** Asia.
 - **Mr. Mime:** Europe.
 - **Kangashkhan:** Australia/Pacific.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Gen 2/ Johto Pokémon
 
@@ -361,6 +349,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 
 ![sinnoh pokemon](https://images.wondershare.com/drfone/2020/202010/sinnoh-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Pachirisu:** Canada.
 - **Chatot:** Southern Hemisphere.
 - **Shellos:** Pink Variant – Western Hemisphere. Blue Variant – Eastern Hemisphere.
@@ -368,6 +360,10 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Uxie:** Available on select raid periods. Asia and Pacific.
 - **Azelf:** Available on select raid periods. America.
 - **Mesprit:** Available on select raid periods. Middle East, Africa, and India.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Gen 5/ Unova Pokémon
 
@@ -412,6 +408,10 @@ Now, click on the icon given in the upper right-hand corner. Enter your desired 
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Start Teleporting**
 
 Once the location of your choice pops up, click ‘Move here’ in the pop-up box.
@@ -419,6 +419,10 @@ Once the location of your choice pops up, click ‘Move here’ in the pop-up bo
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips to help catch Regional Pokémon
 
@@ -429,10 +433,6 @@ Catching regional Pokémon is just like catching any regular Pokémon. When they
 - **Keep Consistent:** The algorithm of the game is quite complex but eventually, a pattern emerges. You will notice that if you keep practicing with great or excellent catches with the smaller (low XP) Pokémon, it increases your chances of catching the ones that put up a fight.
 - **Save your Berries:** Feeding a Pokémon with Razz Berries increases your assurances of catching the Pokémon while also giving you a 15x bonus when you land a successful catch. Save your berries for those persistent Pokémon spawns.
 - **Use Powerful Poke balls:** Last but definitely not least, use powerful balls like the Great Ball or Ultra Ball to maximize your chances of catching Pokémon. You should also remember that these are diminishable resources so use them wisely. On catching a Pokémon with a Great ball you will get 15x and with an Ultra ball you would get 2x so utilize them accordingly to catch rare and super rare Pokémon.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -452,24 +452,18 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-windows-11-gamers-script-to-save-playbacks-for-2024/"><u>[New] Windows 11 Gamers' Script to Save Playbacks for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-revealing-hidden-pathways-understanding-facebooks-off-activity-tracking/"><u>[Updated] 2024 Approved Revealing Hidden Pathways Understanding Facebook's Off-Activity Tracking</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-positive-persuasion-the-secret-to-attracting-followers/"><u>[Updated] Positive Persuasion The Secret to Attracting Followers</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unwinding-a-livestream-in-seconds-seven-proven-methods-for-twitch-viewers/"><u>[Updated] Unwinding a Livestream in Seconds Seven Proven Methods for Twitch Viewers</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-hdr-reality-check-does-aurora-meet-expectations/"><u>2024 Approved HDR Reality Check Does Aurora Meet Expectations?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oneplus-12-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/fluent-in-content-sharing-tiktok-twitter-transition/"><u>Fluent in Content Sharing TikTok-Twitter Transition</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Motorola Moto G34 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oneplus-12-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On OnePlus Open | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Huawei Nova Y91 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Motorola Edge 2023? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagram-innovations-enhancers-that-excite/"><u>In 2024, Instagram Innovations Enhancers that Excite</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-infinix-note-30-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Infinix Note 30 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Oppo A1 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/incorporating-your-ca-state-id-into-digital-wallets-the-ultimate-walkthrough-for-iphone-and-android-users/"><u>Incorporating Your CA State ID Into Digital Wallets: The Ultimate Walkthrough for iPhone & Android Users</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Oppo Reno 11 5G? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1790248-9780762789597-spooky-indiana/"><u>Spooky Indiana | Free Book</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-efficient-translation-the-top-8-best-apps-reviewed/"><u>2024 Approved Free, Efficient Translation The Top 8 Best Apps Reviewed</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-lava-yuva-3-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Lava Yuva 3 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Xiaomi 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-itel-p40-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Itel P40? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/rotational-realities-how-to-captivate-with-instagrams-sideways-videos/"><u>Rotational Realities How to Captivate with Instagram's Sideways Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-real-scale-of-facebooks-user-exodus/"><u>The Real Scale of Facebook's User Exodus</u></a></li>
+<li><a href="https://win-forum.techidaily.com/understanding-modern-communication-a-deep-dive-into-facebook-twitter-instagram-youtube/"><u>Understanding Modern Communication: A Deep Dive Into Facebook, Twitter, Instagram, Youtube</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-itel-p55plus-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-free-tv-streaming-9-sites-you-need-to-know/"><u>Updated 2024 Approved Free TV Streaming 9 Sites You Need To Know</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/1728484017209-windows-11/"><u>ボリュームを復元する - Windows 11で失われたファイルの復旧法</u></a></li>
 </ul></div>
 

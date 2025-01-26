@@ -1,7 +1,7 @@
 ---
 title: In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Tecno Pop 8 | Dr.fone
-date: 2024-09-12T18:00:49.979Z
-updated: 2024-09-16T08:02:57.547Z
+date: 2025-01-24T18:32:46.173Z
+updated: 2025-01-26T21:55:27.547Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -32,6 +32,10 @@ Before I list some reliable sources for PoGo friend codes, let’s take a look a
 - Quora spaces
 - Discord Servers
 - Selective apps and website dedicated to Pokemon Go
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Find Pokemon go Friend Codes on Discord?
 
@@ -72,6 +76,10 @@ While some Discord groups are closed, most of the Reddit subs are open. It might
 
 ![pokemon go sub reddit](https://images.wondershare.com/drfone/2020/202009/pokemon-go-sub-reddit.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Other Places to Find Pokemon Go Friend Codes
 
 Apart from Discord and Reddit, you can find Pokemon Go codes to add friends from several other sources.
@@ -101,13 +109,6 @@ Pokemon Go Friend Code is a dedicated online directory having thousands of train
 - **Other sources**
 
 If you are looking for Pokemon Go friend codes, then the sky is the limit. Apart from dedicated apps and websites, you can also find Instagram pages, Twitter handles, and Quora spaces to exchange PoGo friend codes.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Add Friends in Pokemon Go?
 
@@ -142,6 +143,10 @@ Ever since the Pokemon Go PvP mode has been introduced by Nintendo, there has be
 
 ![pokemon pvp battle tips banner](https://images.wondershare.com/drfone/2020/pokemon-pvp-battle-tips-banner.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Pro Strategies to Follow in PvP Pokemon Go Battles
 
 If you want to be good at the Pokemon Go PvP battles, then you must understand how the game works. Once you are ready, I would recommend some of these Pokemon PvP strategies that are followed by pro players.
@@ -169,31 +174,21 @@ Ideally, there are four different moves in any PvP Poke battle that you must mas
 
 ![moves in pokemon pvp](https://images.wondershare.com/drfone/2020/moves-in-pokemon-pvp.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tip 3: Check your Opponent’s Pokemons
 
 This has to be the most important thing that you should check before you start any Pokemon Go PvP battle. Right before starting the battle, you can check a list of the prospective opponents in your league. You can have a glimpse of their main Pokemons and pick your Pokemons accordingly so that you can counter their picks.
 
 ![opponent screen pokemon pvp](https://images.wondershare.com/drfone/2020/opponent-screen-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 4: Know the current Meta
 
 In nutshell, Meta Pokemons are the ones that are considered superior to other picks since they are more powerful. You might already know that some Pokemons are just stronger than others. Since Nintendo keeps balancing Pokemons with constant nerfs and buffs, you should do some research in advance.
 
 There are several sources like the Silph Arena, PvPoke, and Pokebattler that you can check to know the current meta Pokemons.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Tip 5: Shield Baiting Strategy
 
@@ -203,6 +198,10 @@ Now, instead of going with your ultimate attack, only perform the mild one. Your
 
 ![shield baiting strategy pokemon pvp](https://images.wondershare.com/drfone/2020/shield-baiting-strategy-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 6: Learn to Counter Fast Moves
 
 To make the most of your shield and energy levels, you should learn how to counter moves. The first way to do this is by picking your Pokemons wisely. Your Pokemon would automatically get less damage if it can counter your opponent’s Pokemon.
@@ -210,6 +209,10 @@ To make the most of your shield and energy levels, you should learn how to count
 During any PvP Poke battle, keep a count of your opponent’s moves to calculate when they would do a charged attack. Since you would only get 2 shields at the starting of the battle, make sure that you only use them at the time of need.
 
 ![fast moves in pokemon pvp](https://images.wondershare.com/drfone/2020/fast-moves-in-pokemon-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 7: Sacrifice Swap
 
@@ -267,13 +270,6 @@ In the end, make sure that you have a perfect Pokemon that can end the battle an
 
 ![skarmory in pokemon go](https://images.wondershare.com/drfone/2020/skarmory-in-pokemon-go.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Secrets about the new Mechanics in PvP Pokemon Go Battles
 
 Lastly, if you want to level up in PvP Poke battles, then you should get to know about these three important mechanisms.
@@ -292,6 +288,10 @@ Switching is another strategic account in the new mechanism of Pokemon PvP battl
 
 ![mechanism in pokemon pvp battle](https://images.wondershare.com/drfone/2020/mechanism-in-pokemon-pvp-battle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There you go! I’m sure that after reading this post, you would be able to know every important thing about PvP Poke battles. From the meta Pokemons for PvP battles to essential mechanisms, I have listed it all in this guide. Now, it is time for you to implement these tips and become a Pokemon Go PvP champion in no time!
 
 ## Where Is the Best Place to Catch Dratini On Tecno Pop 8
@@ -301,6 +301,10 @@ Dratini is a rare Pokemon that can be found in the wild. It is a Dragon-type Pok
 Dratini is one of the Pokémon creatures that resemble a snake. It has an elongated blue body with a blue white underside. It carries three-pronged fins on each side of its head which are white in color. Dratini also has a white bump on the forehead.
 
 Dratini has an energy level that is constantly increasing, which makes it grow and can reach a length of more than 6 feet. It sheds its skin every time it has to grow, and usually hide behind a waterfall when shedding. The colony of Dratini lives underwater, living at the bottom feeding on food that falls from the upper levels. Outrage is the signature move for this Pokémon creature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What’s the evolution of Dratini?
 
@@ -368,10 +372,7 @@ Looking at the map, you can now see the actual location of your device. If the c
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
@@ -391,6 +392,10 @@ Camping and looking for other Pokémon in the area will help you cool down and t
 This is how your location will be viewed on the map.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is how your location will be viewed on another iPhone device.
 
@@ -414,5 +419,19 @@ When you need to, you can teleport your device to an area where Dratini is popul
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-pro-hdr-image-processing-a-lightroom-approach/"><u>[Updated] 2024 Approved Pro HDR Image Processing A Lightroom Approach</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-diy-photography-support-systems/"><u>[Updated] DIY Photography Support Systems</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-up-to-spectacle-adding-neon-borderlines-to-youtubes/"><u>[Updated] Step Up to Spectacle Adding Neon Borderlines to YouTubes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-immediate-favorites-weeks-top-youtube-clips/"><u>2024 Approved Immediate Favorites Week's Top Youtube Clips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-magical-voice-change-tools-for-efficient-calls/"><u>2024 Approved Magical Voice Change Tools for Efficient Calls</u></a></li>
+<li><a href="https://app-tips.techidaily.com/essential-fixes-for-the-recurring-issue-icloud-login-continually-asks-for-password/"><u>Essential Fixes for the Recurring Issue: ICloud Login Continually Asks for Password</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on OnePlus Ace 3? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-insights-crafting-tall-footage-in-final-cut-pro-x/"><u>In 2024, Instagram Insights Crafting Tall Footage in Final Cut Pro X</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Oppo F23 5G | Dr.fone</u></a></li>
+</ul></div>
 

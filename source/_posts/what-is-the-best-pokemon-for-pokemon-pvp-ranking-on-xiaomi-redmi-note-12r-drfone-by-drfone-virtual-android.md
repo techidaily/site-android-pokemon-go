@@ -1,7 +1,7 @@
 ---
 title: What is the best Pokemon for pokemon pvp ranking On Xiaomi Redmi Note 12R? | Dr.fone
-date: 2024-12-08T22:36:29.492Z
-updated: 2024-12-15T00:18:19.376Z
+date: 2025-01-20T21:40:04.507Z
+updated: 2025-01-26T20:37:18.014Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,19 +29,11 @@ Pokemon Go PvP rank battles are far different from other forms of duel in the ga
 
 There are lots of sensible reasons why you should engage in the Pokemon Go PvP rank game. Some of them are enumerated below. Check out the list to learn more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### It upgrades the gaming experience to a whole new level
 
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-1.jpg)
 
 Doing the same thing over and over sometimes frustrates us. Therefore, playing Pokemon Go PvP rank battles for a change of scenery is great. It somehow gives us a perfect dose of distraction at times when we feel bored and unmotivated.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### It allows players to learn new gaming skills and improve their techniques
 
@@ -64,16 +56,12 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 
 ![poke ball option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 3:** From there, click **Battle.**
 
 ![battle option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - **Step 4:** Choose your preferred Reward Track and then click the **Battle** button on your chosen track.
@@ -127,6 +115,10 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 
 In all Pokemon Go versions, a Rare Candy will automatically uplift you to the next level. These cadies are powerful and come with a lot of extra rewards. That said they are also very difficult to find, especially in Pokemon Fire Red. This article will show you some of the ways in which you can find Rare Cady, and level up quickly to improve your status in the game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is the rare candy in Pokémon Go Fire Red?
 
 All Pokemon Go game variations have Rare Candy, and they are mainly used to upgrade the level of any Pokemon by 1. If you were at level 9, you automatically go up to level 10, etc. This will save you from having to engage in battles to raise your level. You may also earn the level attacks that you would have earned at that level, even without having to fight.
@@ -176,6 +168,14 @@ The cursor on the map screen will move to the location you have entered on the m
 To simulate movement when spoofing your location, you can select either “One-Stop Route” or “Multi-Stop Route.” Both are the third and fourth options, respectively, on the toolbar near the top right corner. Now, choose the stop points, type of trip, walking speed, and other parameters. Once you are done, tap "Move Here" or "Start Moving" to initiate the movement.
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Getting Pokemon Go Fire Red Rare Candy Normally
 
@@ -244,6 +244,10 @@ Wait for it to be activated and then save it.
 
 Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are not easy to find and they may not be in a location that you can access easily. The article shows you the locations at which you can collect Pokemon Go Fire Red Candy using the normal gameplay. You may also use Pokemon Go GameShark cheat codes and get unlimited Rare Candy to use whenever you need them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Working Guide For Pachirisu Pokemon Go Map On Xiaomi Redmi Note 12R
 
 _**“I have been trying to catch Pachirisu for a while now, but I can’t seem to locate it anywhere. Can someone tell me about a working Pachirisu Pokemon Go map?”**_
@@ -251,6 +255,10 @@ _**“I have been trying to catch Pachirisu for a while now, but I can’t seem 
 If you are also planning to catch this electric-type Pokemon, then you can have a similar query as well. Since Pachirisu is a region-specific Pokemon, chances are that you might not see it spawning everywhere. Though, if you use the right Pokemon Go Pachirisu map, then you can easily locate it. In this post, I’m going to suggest some working Pachirisu regional maps so that you can catch this Pokemon like a pro.
 
 ## Part 1: Things You Should Know About Pachirisu
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What are Pokemon GO Pachirisu Features?
 
@@ -262,17 +270,9 @@ You can evolve it into Mega Pachirisu with mega gems, but more evolution isn’t
 
 <table><tbody><tr><td><b>Pokemon No</b></td><td>417</td></tr><tr><td><b>Maximum CP</b></td><td>1372</td></tr><tr><td><b>Attack</b></td><td>94</td></tr><tr><td><b>Stamin</b>a</td><td>155</td></tr><tr><td><b>Defense</b></td><td>172</td></tr><tr><td><b>Height</b></td><td>0.4m</td></tr><tr><td><b>Weight</b></td><td>3.9kg</td></tr></tbody></table>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Where to catch Pachirisu?
 
 As you know, some Pokemons like Pachirisu can be region-specific. Mostly, it is observed that Pachirisu is spawned in the northern regions of Canada, Alaska, and Russia. You can find it in the wildering, electric hubs, parks, and even some colder regions. Since it can hide pretty well, you would have to keep a keen eye to look for it. A Pokemon Go regional map for Pachirisu can further help you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Are there Pachirisu locations with coordinates?
 
@@ -298,15 +298,15 @@ If you are looking for an active Pachirisu Pokemon Go map, then you can head to 
 
 **Website:** [https://www.pokemap.net/](https://www.pokemap.net/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. PoGo Map
 
 Earlier, PoGo Map was available as an app, but now you can only use its website to know the spawning of Pokemons. Since it is a global directory, you can easily use it as a Pachirisu map for Pokemon Go. You can zoom in to know the spawn location of Pachirisu with its coordinates or the exact address. Besides Pachirisu, it can also help you catch several other regional Pokemons as well.
 
 **Website:** [https://www.pogomap.info/location/](https://www.pogomap.info/location/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. PokeHunter
 
@@ -329,7 +329,7 @@ To start with, just launch the Dr.Fone – Virtual Location (iOS) application on
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Teleport to any other location**
@@ -337,6 +337,10 @@ To start with, just launch the Dr.Fone – Virtual Location (iOS) application on
 After when your device is detected, Dr.Fone will automatically display its exact location on the screen. You can now go to the Teleport Mode from the top-right to spoof your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, go to the search bar and just enter the address of the target location or its coordinates that you can get from a Pachirisu Pokemon Go map.
 
@@ -352,17 +356,13 @@ Furthermore, you can even simulate your device movement to ensure that you visit
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you want to move naturally, then you can use the GPS joystick that would be enabled at the bottom of the screen. You can use your keyboard shortcuts or the mouse pointer to move in any route realistically.
 
 ![virtual location 15](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs about Pachirisu Pokémon GO Maps and Locations
 
@@ -392,22 +392,18 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-seamless-backgrounds-in-teamconferences-via-microsoft-teams/"><u>[New] 2024 Approved Seamless Backgrounds in TeamConferences via Microsoft Teams</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-transforming-your-channel-url-step-by-step-instructions/"><u>[New] In 2024, Transforming Your Channel URL Step-by-Step Instructions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-take-control-of-your-instagram-content/"><u>[New] Take Control of Your Instagram Content</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-top-5-sites-to-download-text-effects/"><u>[Updated] Top 5 Sites to Download Text Effects</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-essential-techniques-for-tiktok-response-vids/"><u>2024 Approved Essential Techniques for TikTok Response Vids</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/3-ways-to-erase-iphone-13-pro-max-when-its-locked-within-seconds-by-drfone-ios/"><u>3 Ways to Erase iPhone 13 Pro Max When Its Locked Within Seconds</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Nokia XR21? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-infinix-smart-7-hd-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For OnePlus Ace 2V? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Lava Yuva 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Motorola Defy 2? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Nokia C300 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Oppo Find X7? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/photoshop-lightroom-alternative-insights-for-2024/"><u>Photoshop Lightroom Alternative Insights for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-mastering-microphone-use-in-microsoft-powerpoint-windows-and-macos-guide/"><u>Updated Mastering Microphone Use in Microsoft PowerPoint Windows & macOS Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-depth-look-at-final-cut-pro-functions-and-features/"><u>[New] In-Depth Look at Final Cut Pro Functions and Features</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-end-game-for-youtube-content-pros-secrets-and-templates/"><u>[Updated] 2024 Approved End Game for YouTube Content Pros' Secrets & Templates</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-innovative-ways-to-convey-your-story-through-videos/"><u>[Updated] Innovative Ways to Convey Your Story Through Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-how-to-create-text-memes-with-meme-text-generator/"><u>2024 Approved How to Create Text Memes with Meme Text Generator?</u></a></li>
+<li><a href="https://win-hot.techidaily.com/como-solucionar-cuando-gmail-deja-de-sincronizarse-con-outlook-en-mac-las-mejores-opciones/"><u>Cómo Solucionar Cuando Gmail Deja De Sincronizarse Con Outlook en Mac: Las Mejores Opciones</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/effiziente-migration-von-dateien-auf-google-drive-einfache-schritte-und-tipps/"><u>Effiziente Migration Von Dateien Auf Google Drive: Einfache Schritte Und Tipps</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-oppo-a56s-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Oppo A56s 5G</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solving-the-user32dll-is-missing-dilemma-a-comprehensive-guide/"><u>Solving the 'User32.dll Is Missing' Dilemma: A Comprehensive Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Infinix Smart 7 HD | Dr.fone</u></a></li>
 </ul></div>
 

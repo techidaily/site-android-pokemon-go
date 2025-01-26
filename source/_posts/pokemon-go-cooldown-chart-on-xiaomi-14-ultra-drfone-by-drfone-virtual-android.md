@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Xiaomi 14 Ultra | Dr.fone
-date: 2025-01-14T17:44:13.111Z
-updated: 2025-01-20T19:27:51.104Z
+date: 2025-01-23T17:57:45.298Z
+updated: 2025-01-26T16:29:18.197Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -50,6 +50,10 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -101,6 +105,10 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -122,13 +130,13 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Select a location to teleport
 
@@ -152,10 +160,6 @@ Voila! You have teleported your location to the desired place.
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
@@ -178,13 +182,13 @@ List of different Regional Pokémon – Where and How to Catch them All!
 
 As of now, there are over 40 different regional Pokémon divided across generations that can be captured or hatched only in specific expanses of the world. There are of course occasional overlaps of Pokémon slipping out of their region and into other sectors. Let’s get into the list of all the region-specific Pokémon of different generations and where to find them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Gen 1/ Kanto Pokémon
 
 ![kanto pokemon](https://images.wondershare.com/drfone/2020/202010/kanto-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - **Taouros:** North America.
 - **Farfetch’d:** Asia.
@@ -196,14 +200,14 @@ As of now, there are over 40 different regional Pokémon divided across generati
 ![johto pokemon](https://images.wondershare.com/drfone/2020/202010/johto-pokemon.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - **Heracross:** South America/ Southern Florida.
 - **Corsola:** Equatorial Latitudes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Gen 3/ Hoenn Pokémon
@@ -257,10 +261,6 @@ Download Dr.Fone – Virtual Location. Install and launch the program. Click ‘
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Connect Device**
 
 Get the USB cable and connect your iPhone to the PC. And then click ‘Get Started’ to proceed.
@@ -274,7 +274,7 @@ When the location map opens, click on ‘Centre On’ to accurately pinpoint the
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Activate teleport mode**
@@ -283,19 +283,11 @@ Now, click on the icon given in the upper right-hand corner. Enter your desired 
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Start Teleporting**
 
 Once the location of your choice pops up, click ‘Move here’ in the pop-up box.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
 
@@ -313,15 +305,19 @@ Catching regional Pokémon is just like catching any regular Pokémon. When they
 
 The journey to completing your Pokedex may not be a short one as there are hundreds of Pokémon out there, and even hundreds more yet to be introduced into the game. Traveling the world in search of the rarest regional Pokémon is meant to be a fun and exciting experience, yet it may not be viable for some who wish to enjoy the game to the fullest. Utilizing a fake GPS and VPN can bridge the gaps in your Pokedex and keep the game fun for you at the same time. So keep playing and catching Pokémon as there are loads of other exciting installments yet to be introduced by Niantic in the future.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Pokémon Evolve with A Dawn Stone For Xiaomi 14 Ultra?
 
 If you are a diehard Pokémon Go player, you probably know how exciting it is when your Pokémon evolves. Evolutions mean a boost in stats and strength in raids. Plenty of Pokémon users are conversant with the traditional raiding as a way to evolve. However, you can use special items to evolve your Pokémon. One such item is the dawn stone. In this article, we are going to take you through a detailed guide on dawn stone evolutions and how to get it with ease.
 
-## Part 1. Dawn Stone Pokémon Evolutions
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 1. Dawn Stone Pokémon Evolutions
 
 ### What is Dawn Stone in Pokémon Sword and Shield?
 
@@ -338,6 +334,10 @@ As aforementioned, dawn stone is an evolution item that is used to evolve certai
 ### 1\. Kirlia
 
 Kirlia is a small humanoid Pokémon whose upper body and arms are white while the waist and legs are light green. This makes it appear as though it is wearing tights. Kirlia's natural abilities include synchronization and trace. It loves dancing on sunny mornings and becomes more beautiful when they sense e positive emotions of trainers. A vast majority of Kirlia live in the cities, although some are still found in the forest. Kirlia evolved from Ralts and has two possible evolutions, namely Gardevoir and Gallade. If it reaches level 30, it evolves to Gardevoir. However, if it is male and given a dawn stone, it will evolve to Gallade.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Snorunt
 
@@ -389,15 +389,19 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-best-watched-youtube-film-channels-ranked/"><u>[New] 2024 Approved Best-Watched YouTube Film Channels Ranked</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-winning-art-tools-comparison-chart-free-and-paid-apps/"><u>[New] 2024 Approved Winning Art Tools Comparison Chart FREE & PAID Apps</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-revolutionizing-video-quality-with-nikon-j5/"><u>[New] Revolutionizing Video Quality with Nikon J5</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-rip-audio-from-youtube-in-3-ways-free-and-safe-for-2024/"><u>[Updated] How to Rip Audio From YouTube in 3 Ways [Free and Safe] for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unravel-the-secrets-to-sequential-video-viewing-no-charges/"><u>[Updated] In 2024, Unravel the Secrets to Sequential Video Viewing (No Charges)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/exploring-instagrams-video-connectivity-techniques/"><u>Exploring Instagram’s Video Connectivity Techniques</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Tecno Pop 8? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-innovative-visual-alteration-solutions-pixelpioneers-edge-for-2024/"><u>[New] Innovative Visual Alteration Solutions PixelPioneer's Edge for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-magix-music-maker-review/"><u>[New] Magix Music Maker Review</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-beats-and-rhythms-capturing-sounds-with-mac/"><u>[Updated] 2024 Approved Beats & Rhythms Capturing Sounds with Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-perfecting-your-view-the-10-finest-iphoneipad-videoplays/"><u>[Updated] 2024 Approved Perfecting Your View The 10 Finest iPhone/iPad Videoplays</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-mini-video-medley-where-does-your-audience-flock-for-2024-youtubes-or-tiktoks/"><u>[Updated] The Mini-Video Medley Where Does Your Audience Flock for 2024 YouTubes or TikToks?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-v27e-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo V27e to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/best-practice-video-placement-on-facebook-vh-for-2024/"><u>Best Practice Video Placement on Facebook (V/H) for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/can-photoshops-image-smoothing-revolutionize-editing-in-2024/"><u>Can Photoshop’s Image Smoothing Revolutionize Editing, In 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/diving-into-color-grading-harness-the-power-of-3d-lut-in-adobe-photoshoot/"><u>Diving Into Color Grading Harness the Power of 3D LUT in Adobe Photoshoot</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-infinix-note-30-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Infinix Note 30? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-itel-p40-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Itel P40? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

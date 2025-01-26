@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Tecno Pop 8? | Dr.fone
-date: 2024-09-09T00:15:59.132Z
-updated: 2024-09-16T01:31:51.147Z
+date: 2025-01-22T17:12:25.822Z
+updated: 2025-01-26T22:16:22.009Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -23,9 +23,17 @@ In the game, players control a female or male character. It starts with three Po
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
 
@@ -62,6 +70,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **13\. Regirock:** Located in Rock Peak Ruins, Regirock is a level 30 legendary Pokemon in the Platinum version. Transfer the Regigigas obtained from the 11th movie and team up with it. After that, you can access a special cave in Route 228, where you will find another cave. Go there with Regigigas Platinum and enter a new cave. You will find a status in the cave. Go up to it and Regirock will attack you.
 
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
@@ -103,6 +115,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -126,6 +142,10 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -152,6 +172,10 @@ Unfortunately, iSpoofer isn’t available for Android. It’s an exclusive geo s
 
 However, the good news is that you don’t need iSpoofer to fake GPS location on an Android smartphone. There are dozens of Android-specific location spoofing apps that’ll help you simulate the GPS location and play Pokemon Go with a fake location. Some of these tools also come with a dedicated GPS Joystick feature, which means you’ll also be able to control your movement while sitting at one spot.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ****Part 2:  Common ways to spoof on Android****
 
 When it comes to choosing the right location spoofing methods for Android, you’ll have to be extra cautious. _Why?_ Because there are many fake GPS apps on Android that aren’t reliable and may damage your smartphone’s overall functionality as well.
@@ -175,6 +199,10 @@ Another way to fake location on Android is to root your device. Rooting an Andro
 PGSharp is one of the best alternatives to **iSpoofer for Android**. It’s a tweaked version of the original Pokemon Go app that comes with a few additional features such as spoofing and GPS Joystick. The best part about using PGSharp is that it’s compatible with all Android devices. You won’t have to root your device to install and run PGSharp.
 
 ![pgsharp](https://images.wondershare.com/drfone/2020/202010/pgsharp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can either choose the free or the paid version of the app. Of course, the latter comes with a few additional features, but if you only want to fake location in Pokemon Go, the free version of PGSharp will get the job done as well.
 
@@ -226,6 +254,10 @@ That’s how you can change GPS location on an iPhone/iPad using Dr.Fone - Virtu
 
 _**Tips:** Are you finding the 100 IV Pokémon Go map? Discover the ultimate solution with Dr.Fone - Virtual Location, your key to pinpointing and capturing those coveted 100 IV Pokémon! Try it now and unlock endless possibilities!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Does 100 IV Mean in Pokémon Go?
 
 IV stands for Individual Value, which depicts the overall performance of any Pokémon in the game. You can say that it is a kind of rank of Pokémon in the game. Ideally, not all Pokémon of the same species have the exact efficiencies. Any Pokémon in the game is measured by three tactics – attack, defense, and stamina. A value from 0 to 15 is allocated for all these parameters. A Pokémon with 15/15/15 perfect stats would get a 100 Individual Value.
@@ -253,13 +285,6 @@ You can check the true percentages of your characters’ IVs in the gaming app i
 
 Further, you can also click on the arrows on the left and right to see the stats of the next Pokémon.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.2 Know Pokémon IV using search filters
 
 ![know pokemon iv](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-2.jpg)
@@ -267,6 +292,10 @@ Further, you can also click on the arrows on the left and right to see the stats
 Pokémon Go app has a search feature that you can use to know the exact IV of Pokémon. To do this, tap the search icon present at the top of your Pokémon menu. Now in the search bar, type the name of any Pokémon, say type “shiny”. This will show all the shiny mons with different star ratings.
 
 Now check the Pokémon by their star rating, as this is the easy way to know about the IVs of characters. Type “4\*” in the search bar, and you will see characters with a 4-star rating. Mostly a star Pokémon are a 100 IV Pokémon map.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips to Catch 100 IV Pokémon in the Game
 
@@ -283,13 +312,6 @@ Trading is one way to improve the chances of catching the 100 IV Pokémon Go map
 
 ![trading increases the chance of perfect ivs](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - For example, with good friend trade, the chances are 1 in 3,375
 - With great friend trade, the chances are 1 in 2,744
 - When you make a trade with ultra-friend, the chances are 1 in 2,197
@@ -302,19 +324,6 @@ But, again, trading Pokémon is not very helpful. If you only rely on trading, y
 Apart from the above-listed tips, you can also use a **100 IV Pokémon Go map** to check the spawning location of these Pokémon. The populated areas and cities heavily rely on reporting rare Pokémon locations. To know the location of the best Pokémon, you can use Pokémon maps. With the maps, you can get live locations of all the rarest and 100 IV Pokémon Go maps.
 
 Here are some of these reliable 100 IV Pokémon Go trackers that you can use.
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. [The Silph Road](https://drfone.wondershare.com/virtual-location/pokemon-go-silph-road-shut-down.html)
 
@@ -362,6 +371,10 @@ This map is for Android devices. However, it is not available on the Play Store,
 
 _You may be interested in: [8 Best Alternatives of PokeCrew: Find Pokemons on an online map and see the distance to them.](https://drfone.wondershare.com/pokemon-map/pokecrew-map.html)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: An Expert Tip to Catch 100 IV Pokémon Sitting at Home?
 
 Using a 100 IV Pokémon Go map, you can easily know their spawning locations and whereabouts. Since it is not possible to physically visit these locations to catch Pokémon, you can spoof your iPhone location instead. To do that, just take the assistance of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With just a few clicks, it will let you spoof your iPhone location without jailbreaking or undergoing any technical hassle.
@@ -385,20 +398,6 @@ If you want to spoof your Pokémon Go virtual location on Android, you can refer
 After connecting your iPhone to the application, go to its Teleport mode and enter the coordinates or the address of any location. You can obtain these coordinates from a **Pokémon Go 100 IV map**. Later, you can adjust the pin on the map and drop it anywhere. This will spoof your iPhone location to the designated place so that you can catch more Pokémon.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Simulate your iPhone movement
 
@@ -424,5 +423,26 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-live-sounds-made-simple-the-ultimate-guide-to-digital-recording/"><u>[New] In 2024, Live Sounds Made Simple The Ultimate Guide to Digital Recording</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/echniques-for-swiftly-cleaning-your-youtube-buffered-queue/"><u>[New] Techniques for Swiftly Cleaning Your YouTube Buffered Queue</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-10-secrets-for-effortless-instagram-grouping/"><u>[Updated] 10 Secrets for Effortless Instagram Grouping</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-constructing-cozy-cornerstones-easy-mc-house-plans-for-2024/"><u>[Updated] Constructing Cozy Cornerstones Easy MC House Plans for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-filmmakers-choice-converting-avi-files-to-gif-via-filmora-software-windowsmac/"><u>[Updated] In 2024, Filmmaker's Choice Converting AVI Files to GIF via Filmora Software (Windows/Mac)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-question-collection-for-lively-podcast-discussions/"><u>[Updated] Innovative Question Collection for Lively Podcast Discussions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-conquer-youtube-photos-an-experts-step-by-step-guide/"><u>2024 Approved Conquer YouTube Photos An Expert's Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/cd2024/"><u>音楽CDを自由に使える最新コピーソフト2024年版 - 簡単データ移行と編集</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nokia-c12-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-poco-c50-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Poco C50 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Nokia C12? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/speedy-viewing-manipulating-stories-frame-rate-on-instagram/"><u>Speedy Viewing Manipulating Stories' Frame Rate on Instagram</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Lenovo ThinkPhone? | Dr.fone</u></a></li>
+</ul></div>
 
