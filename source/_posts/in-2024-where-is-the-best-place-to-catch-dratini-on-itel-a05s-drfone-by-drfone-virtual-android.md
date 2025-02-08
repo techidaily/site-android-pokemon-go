@@ -1,7 +1,7 @@
 ---
 title: In 2024, Where Is the Best Place to Catch Dratini On Itel A05s | Dr.fone
-date: 2025-01-25T16:11:48.109Z
-updated: 2025-01-26T19:17:57.207Z
+date: 2025-02-01T17:26:27.186Z
+updated: 2025-02-08T16:22:04.815Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -34,7 +34,7 @@ This is an evolution of Dratini, which has a long scaly serpent-like body. It st
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Dragonite
@@ -54,7 +54,7 @@ Dratini has a 5% spawning chance every day, so if you have the time, you can spe
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
@@ -84,33 +84,25 @@ On the official Dr.Fone page, download and install Dr.Fone on your computer or y
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
 
 Next, click on “Get Started”; you will now be able to start the spoofing process.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
 The image below shows an example of coordinates entered for Rome, Italy.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
@@ -119,6 +111,10 @@ You may now camp and keep hitting the Dratini nest so you can farm as many as po
 Camping and looking for other Pokémon in the area will help you cool down and therefore avoid being banned from the game for spoofing your iOS device.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is how your location will be viewed on the map.
 
@@ -186,17 +182,9 @@ While there are numerous benefits of using a Pokemon Go joystick, its constant u
 
     ![Pokemon Go Account Ban](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
     To avoid the banning of your Pokemon Go account, you can consider a “cooldown duration”. This simply suggests waiting for a specific duration before changing your location in the game.
 
     ![Pokemon Go Cooldown Duration](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - Software Hack on Jailbroken Devices
 
@@ -217,6 +205,10 @@ As you can see, picking a reliable Pokemon Go joystick is the most important thi
 - There is also an option to mark certain routes as favorites or import/export routes as GPX files.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -249,6 +241,10 @@ The following are the reasons that may cause to ban your account:
 
 If you think your account may get terminated, you should keep the terms and conditions of the game in mind. However, you can spoof location smartly with safe fake GPS like PGSharp for Android and Dr.Fone virtual location iOS.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Thumb Rule for spoofing with PGSharp
 
 Once you decided to spoof Pokémon Go, you need to install a reliable and secure spoofing app. Also, you should not use your main account while spoofing. With PGSharp, you need to create a PTC account to safely spoof the game.
@@ -256,6 +252,10 @@ Once you decided to spoof Pokémon Go, you need to install a reliable and secure
 Do not spoof or change location frequently, as this may bring you in the radar of Niantic, and your account may get banned.
 
 Use an app with a real map-like interface that is difficult to notice from Niantic.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2.1 Spoof Pokémon with PGSharp without a ban
 
@@ -266,7 +266,7 @@ Now, when it gets installed, you can opt for a free trial or paid option. For a 
 ![pgsharp plan](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
@@ -276,6 +276,10 @@ To get a free beta key, go to the official site of PGSharp and look for a beta k
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, once you got the beta key, fill it in the login details to use the PGSharp. Now, you are ready to spoof location with PGSharp on Pokémon Go.
 
@@ -297,10 +301,6 @@ Spoofing is not legal, thus to spoof Pokemon Go, you need to use the PTC account
 
 Also, make sure to uninstall the official account to spoof the location to help you catch more Pokémon in less time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Why Opt Dr.Fone Virtual Location?
 
 Spoofing on the iPhone is a little more difficult than on Android. So, if you own an iPhone, you can use [Dr.Fone - Virtual Location app](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to fake location. It is easy to use and easy to install. Further, this app is 100% safe to install on the iPhone as it causes no threat to your device or data.
@@ -314,7 +314,7 @@ To use it, you will need to install it on your device from the official site or 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -335,15 +335,19 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-adhering-to-correct-aspect-ratio-in-twitter-videos/"><u>[New] 2024 Approved Adhering to Correct Aspect Ratio in Twitter Videos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-masterclass-8-selecting-top-live-stream-cameras/"><u>[New] Masterclass 8 Selecting Top Live Stream Cameras</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-pathway-to-profitability-navigating-youtube-adsense/"><u>2024 Approved The Pathway to Profitability Navigating YouTube AdSense</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-vs-bing-ai-exploring-10-key-differences-in-their-functionality/"><u>ChatGPT vs Bing AI: Exploring 10 Key Differences in Their Functionality</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Itel A05s? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Xiaomi 13T? | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-complete-handbook-for-telegram-web-newbies/"><u>In 2024, The Complete Handbook for Telegram Web Newbies</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-infinix-gt-10-pro-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Infinix GT 10 Pro Device</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Itel A70 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Infinix Zero 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-brief-scene-structure-summary-for-2024/"><u>[New] Brief Scene Structure Summary for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-mastery-in-simulating-chrono-displacement/"><u>[New] Mastery in Simulating Chrono-Displacement</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elevate-your-youtube-screens-video-zoom-guide/"><u>[Updated] Elevate Your YouTube Screens Video Zoom Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-live-stream-to-youtube-with-wirecast/"><u>[Updated] How to Live Stream to Youtube with Wirecast?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-understanding-color-spaces-srgb-vs-rgb/"><u>[Updated] Understanding Color Spaces Srgb vs Rgb</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-create-an-affordable-customizable-virtual-reality-gear/"><u>How to Create an Affordable, Customizable Virtual Reality Gear</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/how-to-safely-download-and-watch-your-favorite-shows-from-cbs-a-step-by-step-guide-for-macwindows-users/"><u>How to Safely Download and Watch Your Favorite Shows From CBS: A Step-by-Step Guide for Mac/Windows Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-transform-your-edits-how-to-negate-distracting-surroundings-using-affinity-photo/"><u>In 2024, Transform Your Edits How to Negate Distracting Surroundings Using Affinity Photo</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/locked-out-of-iphone-se-5-ways-to-get-into-a-locked-iphone-se-drfone-by-drfone-ios/"><u>Locked Out of iPhone SE? 5 Ways to get into a Locked iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Oppo Reno 11F 5G | Dr.fone</u></a></li>
 </ul></div>
 

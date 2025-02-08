@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Pokémon Evolve with A Dawn Stone For Infinix Hot 40 Pro? | Dr.fone
-date: 2025-01-23T18:52:52.906Z
-updated: 2025-01-26T17:00:04.434Z
+date: 2025-02-05T18:59:35.190Z
+updated: 2025-02-08T18:49:27.753Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -35,17 +35,9 @@ As aforementioned, dawn stone is an evolution item that is used to evolve certai
 
 Kirlia is a small humanoid Pokémon whose upper body and arms are white while the waist and legs are light green. This makes it appear as though it is wearing tights. Kirlia's natural abilities include synchronization and trace. It loves dancing on sunny mornings and becomes more beautiful when they sense e positive emotions of trainers. A vast majority of Kirlia live in the cities, although some are still found in the forest. Kirlia evolved from Ralts and has two possible evolutions, namely Gardevoir and Gallade. If it reaches level 30, it evolves to Gardevoir. However, if it is male and given a dawn stone, it will evolve to Gallade.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Snorunt
 
 Snorunt is an ice-type Pokémon that was introduced in Generation III. It is also referred to as the "Snow Hat Pokémon." You can find Snorunt in seafoam café, snow canyon, or even in Mysterious Grotto. Furthermore, you can obtain it by trading or Pokémon Roulette. Snorunt can evolve into Glalie or Froslass. If it reaches level 42, Snorunt evolves to Glalie. For Snorunt to evolve into Froslass, it requires a dawn stone. However, the Snorunt must be a female to evolve to Froslass.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2. Hacks and Tricks to get Dawn Stone Pokémon
 
@@ -63,17 +55,9 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3.** You should see three icons on the top-right of the subsequent page. Click the third icon to switch to the teleport mode. At the top-left, enter the location of the place you want to teleport to and click "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4.** When the program has found the location, a dialog box will appear in the background. Click "Move Here" to teleport to this location.
 
@@ -112,6 +96,10 @@ Based on these different types of Pokemons, you can come up with the following t
 
 If you want to have an attacking team, then this would be the perfect combination. While the annoyer and tanker would drain the HP of the opponents, your sweeper Pokemons can finish them with their high attacking stats.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. 3x Sweepers (Physical/Special/Mixed), Tanker, Wall, and Annoyer
 
 This is one of the most balanced Pokemon teams that would work in almost every situation. In this, we have a tanker and a wall to take damage from the opponent’s Pokemon. Also, we have three different types of sweepers to do maximum damage.
@@ -132,6 +120,10 @@ Even if you don’t have a lot of experience in the game, you can try this power
 
 ![Attacking Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Things to Consider while Creating your Pokemon Team
 
 Since there could be so many ways for coming up with a Pokemon team, I would recommend following these suggestions:
@@ -140,9 +132,17 @@ Since there could be so many ways for coming up with a Pokemon team, I would rec
 
 The most important thing that you need to know is the overall strategy that you have to focus on game. For instance, at times, players would like to play defensively while others want to focus on attacking. Therefore, you can come up with a team composition according to your needs.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 2: Try to attain a balanced team
 
 Needless to say, if you have all attacking or all defensive Pokemons in your team, then you might not get the desired results. That’s why it is recommended to have a mixed bag of sweepers, healers, tankers, annoyers, etc. in your team.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 3: Don’t pick Pokemons with common weaknesses
 
@@ -152,9 +152,17 @@ It is always recommended to have a diverse team so that your opponent can’t ha
 
 Even if you have a decent team, it doesn’t mean that it would excel in all scenarios. It is always recommended to keep practicing with your team every now and team. Also, feel free to edit your team by swapping Pokemons. We have discussed how to edit Pokemon teams in the next section.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 5: Research and pick rare Pokemons
 
 Most importantly, keep looking up for Pokemon team suggestions by experts online and via other Pokemon-related communities. Also, a lot of players suggest picking rare or legendary Pokemons as they have limited weaknesses, making them harder to be countered.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Edit your Pokemon Team in the Game?
 
@@ -174,12 +182,16 @@ Ever since the Pokemon Go PvP mode has been introduced by Nintendo, there has be
 
 ![pokemon pvp battle tips banner](https://images.wondershare.com/drfone/2020/pokemon-pvp-battle-tips-banner.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Pro Strategies to Follow in PvP Pokemon Go Battles
 
 If you want to be good at the Pokemon Go PvP battles, then you must understand how the game works. Once you are ready, I would recommend some of these Pokemon PvP strategies that are followed by pro players.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tip 1: Start from the low leagues
@@ -192,11 +204,11 @@ As you know, there are three different leagues to participate in Pokemon Go PvP 
 
 ![leagues in pokemon pvp](https://images.wondershare.com/drfone/2020/leagues-in-pokemon-pvp.jpg)
 
-The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+The Master Leagues is mostly reserved for pro players since there is no CP limit for Pokemons. The Great League is the best category to learn and try different Pokemon combinations.
 
 ### Tip 2: Master all the Battle Moves
 
@@ -229,10 +241,6 @@ Now, instead of going with your ultimate attack, only perform the mild one. Your
 
 ![shield baiting strategy pokemon pvp](https://images.wondershare.com/drfone/2020/shield-baiting-strategy-pokemon-pvp.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tip 6: Learn to Counter Fast Moves
 
 To make the most of your shield and energy levels, you should learn how to counter moves. The first way to do this is by picking your Pokemons wisely. Your Pokemon would automatically get less damage if it can counter your opponent’s Pokemon.
@@ -240,10 +248,6 @@ To make the most of your shield and energy levels, you should learn how to count
 During any PvP Poke battle, keep a count of your opponent’s moves to calculate when they would do a charged attack. Since you would only get 2 shields at the starting of the battle, make sure that you only use them at the time of need.
 
 ![fast moves in pokemon pvp](https://images.wondershare.com/drfone/2020/fast-moves-in-pokemon-pvp.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Tip 7: Sacrifice Swap
 
@@ -262,6 +266,10 @@ Even after the much-anticipated release of PoGo PvP, a lot of players are not sa
 - The PoGo PvP battles are more centric on the picks and less on the actual battle. Players would like more strategic moves and in-battle options to help them fight.
 
 ![cp iv level trick pokemon](https://images.wondershare.com/drfone/2020/cp-iv-level-trick-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Select the Best Pokemons for PvP Battles?
 
@@ -301,10 +309,6 @@ In the end, make sure that you have a perfect Pokemon that can end the battle an
 
 ![skarmory in pokemon go](https://images.wondershare.com/drfone/2020/skarmory-in-pokemon-go.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Secrets about the new Mechanics in PvP Pokemon Go Battles
 
 Lastly, if you want to level up in PvP Poke battles, then you should get to know about these three important mechanisms.
@@ -323,10 +327,6 @@ Switching is another strategic account in the new mechanism of Pokemon PvP battl
 
 ![mechanism in pokemon pvp battle](https://images.wondershare.com/drfone/2020/mechanism-in-pokemon-pvp-battle.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There you go! I’m sure that after reading this post, you would be able to know every important thing about PvP Poke battles. From the meta Pokemons for PvP battles to essential mechanisms, I have listed it all in this guide. Now, it is time for you to implement these tips and become a Pokemon Go PvP champion in no time!
 
 <ins class="adsbygoogle"
@@ -343,17 +343,20 @@ There you go! I’m sure that after reading this post, you would be able to know
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-exploring-youtubes-latest-revenue-guidelines-for-2024/"><u>[New] Exploring YouTube's Latest Revenue Guidelines for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-enhancing-visual-presentation-before-and-after-team-calls/"><u>[New] In 2024, Enhancing Visual Presentation Before & After Team Calls</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-channel-expansion-sharing-your-show-across-30-platforms/"><u>[Updated] 2024 Approved Channel Expansion Sharing Your Show Across 30 Platforms</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-echo-amplification-record-computer-audio-for-2024/"><u>[Updated] Echo Amplification Record Computer Audio for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-an-ultimate-overview-of-polarr-photo-editor/"><u>[Updated] In 2024, An Ultimate Overview of Polarr Photo Editor</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-maximizing-meeting-visibility-in-microsoft-teams-for-2024/"><u>[Updated] Maximizing Meeting Visibility in Microsoft Teams for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Infinix Hot 30i? | Dr.fone</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/losung-fur-die-fehlende-suchfunktion-in-windows-explorer-erkunden-sie-mythrecover/"><u>Lösung Für Die Fehlende Suchfunktion in Windows Explorer - Erkunden Sie MythRecover</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-poco-x5-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-from-snap-to-stunning-photo-editing-secrets/"><u>[Updated] In 2024, From Snap to Stunning Photo Editing Secrets</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-6-creative-editors-on-the-latest-macos-big-sur/"><u>[Updated] Top 6 Creative Editors on the Latest macOS Big Sur</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unraveling-the-mystery-of-phantoms-velocity-inversion/"><u>[Updated] Unraveling the Mystery of Phantom's Velocity Inversion</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/beginners-guide-to-windows-11-audible-recording-for-2024/"><u>Beginner's Guide to Windows 11 Audible Recording for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-realme-narzo-60-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Realme Narzo 60 5G Phone that is Locked?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For HTC U23? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/samsung-galaxy-f14-5g-won-t-play-hevc-h-265-media-how-to-fix-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Samsung Galaxy F14 5G won’t play HEVC H.265 media, how to fix? </u></a></li>
+<li><a href="https://win-able.techidaily.com/sony-vegas-stability-solutions-how-to-prevent-unexpected-software-shutdowns/"><u>Sony Vegas Stability Solutions: How To Prevent Unexpected Software Shutdowns</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-realme-gt-3-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Realme GT 3 Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 

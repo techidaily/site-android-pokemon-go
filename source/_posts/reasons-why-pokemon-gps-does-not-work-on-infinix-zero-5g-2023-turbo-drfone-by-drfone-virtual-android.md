@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Infinix Zero 5G 2023 Turbo? | Dr.fone
-date: 2024-12-09T17:02:54.655Z
-updated: 2024-12-14T17:35:17.251Z
+date: 2025-02-06T18:14:59.496Z
+updated: 2025-02-08T17:33:00.510Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -38,10 +38,6 @@ This is another important aspect that should be taken care of if the Pokémon Go
 
 ![Reload game iPhone](https://drfone.wondershare.com/2020/Reload_game_iPhone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fixture 3: Restart the Phone
 
 Press and hold the volume button and the side button. The power off slider appears, just wait for 30 seconds for the Infinix Zero 5G 2023 Turbo device to restart. In most cases restarting the Infinix Zero 5G 2023 Turbo device will get the issue of GPS not working Pokémon go iPhone resolved.
@@ -65,6 +61,10 @@ Download the exe file and install the program, to begin with, the process.
 Connect the iPhone with the system and click on the button that states get started to enable the virtual location.
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Device Location**
 
@@ -105,6 +105,10 @@ Swipe down to access the notification panel of the program. Make sure that the l
 This is another important way to get the GPS signal as it will refresh the phone. Just long-press the power button and select the option of restart from the screen that appears.
 
 ![Restart android phone](https://drfone.wondershare.com/2020/Restart_android_phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 3: Update the Application
 
@@ -163,18 +167,18 @@ For this step, you’ve got nothing to do. All three objectives have been automa
 ![giovani special research](https://images.wondershare.com/drfone/2020/giovani-special-research.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After completing the quest above, Giovani Special Research or Looming in the Shadows is the next and final quest you have to complete to face Giovani. It's a six-step Special Research that introduces the Team Go Rocket Grunts and Leaders: Cliff, Arlo, and Sierra.
 
 ![a troubling situation task](https://images.wondershare.com/drfone/2020/a-troubling-situation-task.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On completing one research step, you will be given a reward called the Super Rocket Radar. Like the Rocket Radar, the Super Rocket Radar can be equipped and unequipped from your Bag. This reward doesn't only show Giovani’s hideout, it also shows some of his Grunts hideouts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2. What does the Pokemon Go Giovani Counter Contain?
 
@@ -199,10 +203,6 @@ Picking any of these great ice-type Pokemon, Mamoswine, Glaceon, or Weavile when
 Once you defeat Team Go Rocket's second lineup creatures, you will have to battle against the legendary psychic Pokemon, Mewtwo, who is weak to this set of Pokemon; bug, ghost, and Dark-type Pokemon. So beating this Pokemon Go Giovani grunt shouldn't be a tedious task as you’ve got a plethora of choices when deciding the Pokemon-type to use. Origin Giratina and Tyranitar are some strong Dark-type Pokemon you can use to defeat Mewtwo.
 
 Now you know the best Giovani Pokemon Go counters to use against each lineup of creatures, leverage it to advance to the next phase of the game where you will face the big bad boss himself, Giovani.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3. Tips to Beat Giovani in Pokemon Go
 
@@ -234,17 +234,9 @@ Click on Get Started to change your location.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Your current location will appear on the PC screen. Switch location by entering the name or address of the place in the field at the upper left corner of the application.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4:** The interface below will pop up on your screen. Click on the Move Here icon to teleport to your chosen location.
 
@@ -257,6 +249,10 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 Pokemon Go is a popular game that has taken the world by storm. It is an augmented reality game that allows players to catch Pokemon in the real world using their smartphones. However, many players have reported encountering the "Failed to detect location (12)" error while playing the game. This error can be frustrating as it prevents players from playing the game properly. In this article, we will discuss what causes the "Failed to detect location (12)" error in Pokemon Go and how you can fix it on your Infinix Zero 5G 2023 Turbo.
 
 Pokémon Go has been on the nerves of its players and this is all because of the AR notion that it presents. The failed to detect location 12 is one of the most common errors that are faced by the players while playing this game. You might not believe but the GPS signals and the location settings on iPhone or Android are the two main reasons for this error. It can be resolved with ease and this article has been written to get the work done with ease. Applying the methods explained will ensure that you get the best results overall.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Why is Location Important in Pokémon Go?
 
@@ -274,6 +270,10 @@ The augmented reality is another important aspect that is related to Pokemon Go 
 
 The system within the system that has been designed by the game developers makes sure that the location inaccuracies are accounted for. This also means that the 4-meter accuracy of the GPS is further enhanced to deal with the perfect location identification of each player.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Ways to Fix Error 12 on Pokémon Go
 
 Several ways can be used to make sure that the subject error is resolved with ease. This section of the article will deal with all such ways that can be used to get the work done with ease and perfection.
@@ -286,13 +286,13 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 ![pokemon error 12 1](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2.** Install the Fake GPS that is a free application and can easily be found on the Play Store.
 
 ![pokemon error 12 2](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3.** Launch the application and you can easily enjoy Pokémon Go without any hassle and trouble and resolve the Pokémon go failed to detect location 12 fake GPS error.
 
@@ -322,10 +322,6 @@ Just long-press the power button and choose the reboot option from the menu that
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
@@ -339,6 +335,10 @@ Just long-press the power button and choose the reboot option from the menu that
 To begin the process, download and install the program to get going with the process.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Enable Virtual Location**
 
@@ -358,15 +358,15 @@ On the upper right corner click the icon on the third to begin teleportation or 
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Move to the teleported location**
 
 Click on move here and the system will move you to the location that has been entered.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 6: Validate and Completion**
 
@@ -375,7 +375,7 @@ The location will be locked by the program and your iPhone will also show the sa
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -396,21 +396,20 @@ The location will be locked by the program and your iPhone will also show the sa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-ultimate-meme-list-social-media-giants-clash/"><u>[New] 2024 Approved The Ultimate Meme List Social Media Giants Clash</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-captivating-spokesperson-appraisal-8th-analysis-for-2024/"><u>[New] Captivating Spokesperson Appraisal 8Th Analysis for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/movietsvob-movavi/"><u>免費在線MOVIE專家系統：TS到VOB轉換 - Movavi上的順暢功能</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For OnePlus Ace 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Vivo V29 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-y100-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo Y100 Is Unlocked</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Xiaomi 14 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-se-2020-passcode-without-computer-by-drfone-ios/"><u>How to Unlock iPhone SE (2020) Passcode without Computer?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-gamers-secrets-to-effective-playback-logging/"><u>In 2024, Gamers' Secrets to Effective Playback Logging</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Nokia G42 5G? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-y36-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo Y36 to PC? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/integrating-shared-games-in-ps5-settings/"><u>Integrating Shared Games in PS5 Settings</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-simplified-steps-for-saving-gotomeeting-sessions-for-2024/"><u>[New] Simplified Steps for Saving GoToMeeting Sessions for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-assemble-visual-pieces-into-watchable-arrays/"><u>2024 Approved Assemble Visual Pieces Into Watchable Arrays</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-motorola-edge-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-itel-a70-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-oneplus-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change OnePlus Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/leading-no-cost-convert-heic-images-to-jpg-expert-opinions-and-guides/"><u>Leading No-Cost Convert HEIC Images to JPG: Expert Opinions & Guides</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/make-waves-in-the-social-ocean-integrate-tiktok-into-your-insta-reels-for-2024/"><u>Make Waves in the Social Ocean Integrate TikTok Into Your Insta Reels for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/stop-auto-changing-visuals-on-win11-pcs/"><u>Stop Auto-Changing Visuals on Win11 PCs</u></a></li>
+<li><a href="https://win-news.techidaily.com/1728501231338-windows-11/"><u>データ損失ゼロでWindows 11のバックアップと移行方法：別ディスクへ</u></a></li>
 </ul></div>
 

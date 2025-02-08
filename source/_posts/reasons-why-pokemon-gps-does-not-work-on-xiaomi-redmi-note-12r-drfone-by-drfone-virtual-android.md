@@ -1,7 +1,7 @@
 ---
 title: Reasons why Pokémon GPS does not Work On Xiaomi Redmi Note 12R? | Dr.fone
-date: 2025-01-22T21:36:25.760Z
-updated: 2025-01-26T21:40:42.300Z
+date: 2025-02-02T16:23:41.375Z
+updated: 2025-02-08T16:32:59.133Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -22,6 +22,10 @@ There are several reasons for which Pokémon GPS does not work. Whether you are 
 
 ![GPS Signal Not Found Pokemon](https://drfone.wondershare.com/2020/GPS_Signal_Not_Found_Pokemon%2Cjpg.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: 3 Ways to fix Pokémon GPS not working on iOS devices
 
 For iOS devices, many issues can be faced by users. This is because the GPS signals might not work perfectly with the iOS device as well. There are several ways to fix the issue and this section will deal with all of these ways to make the process easy for you.
@@ -38,13 +42,17 @@ This is another important aspect that should be taken care of if the Pokémon Go
 
 ![Reload game iPhone](https://drfone.wondershare.com/2020/Reload_game_iPhone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fixture 3: Restart the Phone
 
 Press and hold the volume button and the side button. The power off slider appears, just wait for 30 seconds for the Xiaomi Redmi Note 12R device to restart. In most cases restarting the Xiaomi Redmi Note 12R device will get the issue of GPS not working Pokémon go iPhone resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: The best GPS Spoofer to be used
 
@@ -66,15 +74,15 @@ Connect the iPhone with the system and click on the button that states get start
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Device Location**
 
 The center on button is there on the program. Press it and the program will detect the location on your device.
 
 ![virtual location 3](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Changing Location**
 
@@ -116,21 +124,9 @@ This is another important aspect. There are auto-updates disabled by some users 
 
 ![Update pokemon go android](https://drfone.wondershare.com/2020/Update_pokemon_go_android.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 The Dr. Fone Virtual location is the best and the most advanced program that can be used to make sure that location spoofing is made easy. The program is not only easy to use but it has been developed to get the players the best location services that they want. For all the location and AR-based games, it is advised to use this program as it will overcome all sorts of issues. With Dr. Fone's virtual location it is easy to make sure that the location is spoofed for iOS that does not let it do otherwise. Dr. Fone will not only get you the lifetime of updates but will also ensure that you get the best results with respect to location.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi Redmi Note 12R
 
@@ -151,6 +147,10 @@ Before I list some reliable sources for PoGo friend codes, let’s take a look a
 - Quora spaces
 - Discord Servers
 - Selective apps and website dedicated to Pokemon Go
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Find Pokemon go Friend Codes on Discord?
 
@@ -217,6 +217,10 @@ Pokemon Go Friend Code is a dedicated online directory having thousands of train
 
 ![pokemon go friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-friend-codes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Other sources**
 
 If you are looking for Pokemon Go friend codes, then the sky is the limit. Apart from dedicated apps and websites, you can also find Instagram pages, Twitter handles, and Quora spaces to exchange PoGo friend codes.
@@ -233,7 +237,7 @@ Once you have found Pokemon Go codes for friends, you can add them to your netwo
 ![pokemon go add friend codes](https://images.wondershare.com/drfone/2020/202009/pokemon-go-add-friend-codes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Find new Pokemons to Level-up in the Game?
@@ -264,17 +268,9 @@ Like Shiny Stone, dusk stone, Sun Stone, and Moon Stone, Dawn Stone is another p
 
 You can get dawn stone from the Digging Duo found near the Wild Area nursery. You will, however, be required to pay them 500 watts before digging random items for you. Remember, this is a trial and error thing, and you might have to spend a lot of watts before finding a dawn stone. Also, you can get any evolutionary stone, including the Dawn Stone in the Lake of Outrage. Here, you will have to first obtain a Rotom Bike on route 9 to move across the water.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Pokémon that Evolve with Dawn Stone
 
 As aforementioned, dawn stone is an evolution item that is used to evolve certain species of Pokémon. To evolve your Pokémon using Dawn Stone in Pokémon Sword and Shield, enter the bag menu and choose the "Other Items" tab. Hover on the Dawn Stone and select the "Use this item" option. Finally, select the Pokémon to evolve. These Pokémon that can be evolved using dawn stone include:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Kirlia
 
@@ -296,20 +292,20 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2.** On the next page, click the "Get Started" button to proceed.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3.** You should see three icons on the top-right of the subsequent page. Click the third icon to switch to the teleport mode. At the top-left, enter the location of the place you want to teleport to and click "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4.** When the program has found the location, a dialog box will appear in the background. Click "Move Here" to teleport to this location.
@@ -319,6 +315,10 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 ### 2\. Use Pokémon Gotcha
 
 Pokémon Go-tcha makes hunting Pokémon and evolution items much easier. With this tool, you can go for a hunt without looking at your smartphone. When you run Go-tcha Evolve on the Pokémon Go application, you can set color animations and vibrations to alert you about Pokémon and pokestops that are in range. Moreover, you can use the auto-catch feature so that you don't have to respond to alerts. You can also check on time, your stats, and leverage the new pedometer feature to count your steps. This program comes with various exciting colors for you to choose from and a bunch of other great features.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Use iTools
 
@@ -338,24 +338,18 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-from-iphone-13-pro-max-or-ipad-by-drfone-ios/"><u>How to Bypass Activation Lock from iPhone 13 Pro Max or iPad?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-nokia-xr21-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Nokia XR21</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Itel P55+? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-vivo-v30-lite-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Vivo V30 Lite 5G Devices</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-oneplus-11-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From OnePlus 11 5G to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Itel S23+? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/master-iphone-photography-rotate-tilt-and-flip-effortlessly-for-2024/"><u>Master iPhone Photography Rotate, Tilt & Flip Effortlessly for 2024</u></a></li>
-<li><a href="https://techidaily.com/remove-spark-go-2024-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Spark Go (2024) unlock screen</u></a></li>
-<li><a href="https://win-forum.techidaily.com/social-media-synergy-leveraging-facebook-twitter-instagram-and-youtube-for-maximum-reach/"><u>Social Media Synergy: Leveraging Facebook, Twitter, Instagram and YouTube for Maximum Reach</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-converting-and-playing-mkv-files-on-the-xbox-360/"><u>Step-by-Step Guide: Converting & Playing MKV Files on the Xbox 360</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Infinix Hot 30i? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/why-one-antivirus-works-best-for-windows-users/"><u>Why One Antivirus Works Best for Windows Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-avoid-being-overwhelmed-by-tiktok-drafts-edits-for-orderliness/"><u>In 2024, Avoid Being Overwhelmed by TikTok Drafts Edits for Orderliness</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-agility-challenge-your-speaking-skills/"><u>Linguistic Agility: Challenge Your Speaking Skills</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-phone-number-free-signups-unlock-access-to-popular-tools-such-as-chatgpt-whatsapp-and-telegram/"><u>Mastering Phone-Number-Free Signups: Unlock Access to Popular Tools Such as ChatGPT, WhatsApp & Telegram.</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/transform-your-viewing-with-the-tcl-50-inch-50s425-roku-tv-value-meets-4k-excellence/"><u>Transform Your Viewing With The TCL 50 Inch (50S425) Roku TV - Value Meets 4K Excellence</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723017022574-troubleshoot-and-repair-your-astro-a50s-mic-problem-easily/"><u>Troubleshoot and Repair Your Astro A50's Mic Problem Easily</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-youtube-videos-how-to-restore-playback-sync-between-visuals-and-sound-on-browsers/"><u>Troubleshooting YouTube Videos: How to Restore Playback Sync Between Visuals and Sound on Browsers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleash-creativity-fast-windows-10-photo-edits-made-simple-for-2024/"><u>Unleash Creativity Fast Windows 10 Photo Edits Made Simple for 2024</u></a></li>
 </ul></div>
 

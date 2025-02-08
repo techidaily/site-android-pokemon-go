@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Tecno Phantom V Flip? | Dr.fone
-date: 2024-09-19T00:45:43.428Z
-updated: 2024-09-22T06:20:39.976Z
+date: 2025-02-02T16:14:12.891Z
+updated: 2025-02-08T16:03:58.372Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -30,6 +30,10 @@ The best part of this attribute is that it is the center of the user experience 
 ### ii. Real World Gestures
 
 The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### iii. Place Attribution
 
@@ -71,6 +75,10 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 3: Reboot the Tecno Phantom V Flip device
 
 This might seems weird but this trick has been working to quiet some time now and has been proven to eliminate the failed location 12 Pokémon Go issue. There is a possibility that the server location is not synced with the Tecno Phantom V Flip device. Restarting the Tecno Phantom V Flip device will make sure that both the locations are sync and the problem is resolved with ease.
@@ -99,13 +107,6 @@ Connect your iPhone and enable virtual location from the options of the program.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Locate yourself**
 
 The center on the button on the next screen is to be clicked to get the accurate location.
@@ -117,13 +118,6 @@ The center on the button on the next screen is to be clicked to get the accurate
 On the upper right corner click the icon on the third to begin teleportation or spoofing to be precise. Enter the name of the place where you want to teleport to.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5: Move to the teleported location**
 
@@ -169,6 +163,10 @@ Start your Pokémon Go Battle by tapping the Poke Ball and Battle option. Afterw
 
 ![alolan sandshrew pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With 1462 CP, this Pokémon is a strong option for the Great League. It has Metal Claw and Blizzard as its best moves and a capacity of 8.74 damage. This Pokémon works better in snow and faints after receiving 132.7 damage when exposed to foggy weather.
 
 Metal Claw and Powder Snow are its fast moves, whereas Blizzard, Gyro Ball, and Night Slash are the super ones. Moreover, Alolan Sandshrew has a record of 125 attack, 129 defense, and 137 stamina scores. Some of its family members include Sandshrew, Sandslash, and Shadow Alolan Sandslash.
@@ -204,13 +202,6 @@ Plus, it displays Low Sweep, Rock Tomb, and Brick Break as charged moves. The sp
 | **Weaknesses** | Fairy, Flying, Psychic |
 | **Resistance** | Bug, Dark, Rock |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Oddish
 
 ![oddish pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-5.jpg)
@@ -236,6 +227,10 @@ Pawma shows its full rage in rainy and cloudy weather while showing its fast mov
 | --- | --- |
 | **Weaknesses** | Fairy, Ground, Psychic |
 | **Resistance** | Dark, Electric, Bug, Steel, Rock |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3. 5 Strongest Pokémon for Pokémon GO Ultra League
 
@@ -323,6 +318,10 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 | **Weaknesses** | Dark, Ghost, Ground, Psychic |
 | **Resistance** | Fighting, Bug, Normal, Poison, Fairy, Grass |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Mega Y Charizard
 
 ![mega charizard pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-13.jpg)
@@ -349,6 +348,10 @@ Besides, there is a 20km buddy distance recorded so far with 337 attack, 196 def
 | **Weaknesses** | Bug, Dark, Dragon, Fairy, Ghost, Ice |
 | **Resistance** | Electric, Fighting, Fire, Grass, Psychic, Water |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Lugia
 
 ![lugia ultra pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-15.jpg)
@@ -362,16 +365,13 @@ Reportedly, it shows 193 attack, 310 defense, and 235 stamina scores. Dragon Tai
 | **Weaknesses** | Dark, Electric, Ghost, Ice, Rock |
 | **Resistance** | Fighting, Ground, Grass, Psychic |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Mega Salamence
 
 ![mega salamence pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-16.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Mega Salamence is also the strongest Pokémon, with the highest 5688 CP at level 50 in **Pokémon Go PvP**. The best moves it offers are Dragon Tail and Draco Meteor, with 19.87 damage per second. It was first located in the Heonn region and is boosted by Windy weather.
 
@@ -463,10 +463,11 @@ This detailed guide for iSpoofer installation is for those who still possess the
 ![change your phone location](https://images.wondershare.com/drfone/2020/2020/change-your-phone-location.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use the iSpoofer when you play pokemon
@@ -501,6 +502,10 @@ Pokemon Go Spoofers using iOS need not depend on iSpoofer for jumping locations.
 - **The map view gives a 360o view –** By scrolling around the screen, you can get to see all the routes around you and plan accordingly.
 - **Auto-walk feature -** The game has an auto-walk feature in case you do not want to use the joystick to move around manually.
 - **Keyboard movement commands –** The player can also use the A, S, W and D keys on the keyboard to move around
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step by Step Guide to Install and use Dr. Fone Virtual Location -
 
@@ -562,5 +567,18 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-exploring-the-capabilities-of-bandicam-for-multimedia-creators/"><u>[New] 2024 Approved Exploring the Capabilities of Bandicam for Multimedia Creators</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ornate-asian-dwellings-for-your-next-build-off/"><u>[New] Ornate Asian Dwellings for Your Next Build-Off</u></a></li>
+<li><a href="https://discover-great.techidaily.com/extend-your-devices-uptime-effective-battery-optimization-for-windows-nk-insights-by-yl-software/"><u>Extend Your Device’s Uptime: Effective Battery Optimization for Windows Nk - Insights by YL Software</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>How Can I Create My Pokemon Overworld Maps On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/how-to-convert-live-photo-to-video-for-2024/"><u>How to Convert Live Photo to Video for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-use-the-teleport-command-in-minecraft/"><u>How to Use the Teleport Command in Minecraft</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Itel S23+? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/securely-stream-for-free-top-2-dependable-ways-to-watch-spongebob-episodes-online/"><u>Securely Stream for Free: Top 2 Dependable Ways to Watch SpongeBob Episodes Online</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-itel-s23-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Itel S23? | Dr.fone</u></a></li>
+</ul></div>
 

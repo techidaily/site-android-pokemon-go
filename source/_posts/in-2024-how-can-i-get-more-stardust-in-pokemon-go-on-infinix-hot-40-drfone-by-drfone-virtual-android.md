@@ -1,7 +1,7 @@
 ---
 title: In 2024, How can I get more stardust in pokemon go On Infinix Hot 40? | Dr.fone
-date: 2025-01-19T16:19:35.399Z
-updated: 2025-01-26T16:18:33.251Z
+date: 2025-02-07T16:48:37.802Z
+updated: 2025-02-08T16:08:20.643Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -22,10 +22,6 @@ One of the essential items you can get is Stardust, which will help you become t
 ## Part 1. What Is Stardust in Pokemon Go?
 
 Stardust is a consumable item that allows you to strengthen your Pokemon. This item will help you reach the maximum of your Pokemon, making them more resilient and ready for potential fights. Moreover, Stardust is essential for trading – you must have a specific Stardust level to trade your valuables with another trainer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2. How Is Stardust Used in Pokemon Go?
 
@@ -64,7 +60,7 @@ The maximum Stardust you can get in one gift is 300, which may not seem like a l
 ![opening gifts in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### By Hatching Pokemon
@@ -82,6 +78,10 @@ You can check out the list below to determine how much Stardust you’ll collect
 You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Catching Pokemon
 
@@ -102,6 +102,10 @@ Once you and your team defeat the Boss, you can collect the prizes. You’ll win
 If you defeat the boss, you’ll also get a chance to catch the Pokemon, which can bring you even more Stardust points!
 
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Getting Rocket Rewards
 
@@ -129,6 +133,14 @@ You’ll earn 20 Stardust points for each berry you give a Pokemon. It may be th
 
 ![giving berries to pokemon characters](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Claim Stardust Quickly in Pokemon Go by Using Location Spoofing
 
 If you live in a rural area and don’t get too many chances to walk around and catch Pokemon characters, you can use a classic trick of location spoofing. It will allow you to change your virtual location and wander the streets of another city to discover more Pokemon opportunities.
@@ -140,6 +152,10 @@ Virtual Location will allow you to head to any city in the world, collect the ra
 1. Open Dr. Fone Virtual Location and select the mode in the top right corner (**One-Stop**, **Multistop**, or **Joystick Route**).
 
 ![choose the route mode](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2. Set the desired parameters.
 
@@ -206,10 +222,6 @@ Pokemon Go can be played by using the toolkit of Dr. Fone without shifting. Open
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can press the Get Started" button to start the process upon phone detection.
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -228,10 +240,6 @@ For the Pokemon Go application, the new position will appear as real and will pr
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
 **Step 3: Movement Simulation between more than two spots:**
@@ -242,13 +250,13 @@ Click the 'March' button to allow the system to simulate motion by selecting the
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Essential Requirement and Evolving Pokémon's Using Sinnoh Stone
 
 Only the trainers above the 10th Level have access to acquire Sinnoh Stone. The Sinnoh Stone can be obtained from Training Battles and Training with Team Leaders. You also need 100 candies for each of the Pokemon. Once you have got your hands on Sinnoh Stones and now you want to know where they should be used, there’s numerous 4th generation Pokémon who require Sinnoh Stone for their upgrade. Mamoswine is one of the best if you're prioritizing attackers for a raid because it has a mix of extremely high CP with the strong ground and ice-type moves.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -266,11 +274,11 @@ The Pokémon emerald master ball can do this with no effort on your part. Simply
 
 ![An image of a Pokémon Master Ball](https://images.wondershare.com/drfone/2020/virtual-location/masterball-pokemon.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _**Tips:** Catch Pokémon like a Pro with Dr.Fone - Virtual Location! Capture as many Pokémon as possible within a short time, no matter where they appear. Explore different locations virtually and become a Pokémon-catching master! Try it now!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Do you know the Pokémon Emerald Master Ball?
 
@@ -283,6 +291,10 @@ The Pokémon Emerald Master Ball has a spherical shape juts like the regular Pok
 The Pokémon master ball emerald will capture all Pokémon in the wild apart from the ghost Marowak when it is in the Pokémon Tower. When you use the ball, you bypass the Pokéball throwing process and animation, and you simply move on to the scene where the Pokémon has been captured. Even when Legendary Pokémon tries to swat the master ball away, they miss and they are captured in an instant.
 
 The one downside about the Pokémon ball emerald is that it cannot be used where you can easily use a normal Pokéball. For example, when you are in a wild battle that has two or more opposing trainers, you will lose the Pokémon emerald master ball if you use it; the opposing trainers can swat the ball away in this case, and you waste a valuable asset.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Does the master ball cheat code still work?
 
@@ -320,17 +332,9 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 
 ![Entering the cheat codes](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3 -** If you have a Pokémon Emerald Master Ball GameShark code, then you should hit the “GameShark” button to enter the code.
 
 ![Entering the GameShark Pokémon Emerald Master Ball cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4 -** Now proceed and enter the master ball code. The small cod will have to be enabled before you can switch on the Pokémon Emerald Master Ball GameShark cheat code. To do this, Go to the description and then enter the master code. Now you need to paste in the following into the “Code Field”.  
 **D8BAE4D9 4864DCE5**
@@ -345,19 +349,11 @@ Only one Master Ball can be bought at a time, but you can do this as many times 
 
 ![Buy as many Pokémon Emerald Master Balls as you would like using the cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When you have shopped for Pokémon Emerald Master Balls to your fill, you need to disable the code so your store can go back to normal. All you have to do is go back to the “Cheat List” window and then uncheck the two little lines of Pokémon Emerald Master ball cheat codes.
 
 Make sure that you exit the store and go back again to finish the process properly.
 
 ![Disable the Pokémon Emerald Master Ball cheat code when you are finished shopping](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The best thing about this method is that you do not need to enter another master ball cheat code in the future. All you have to do is go back to your Cheat List and check the box for the code once more.
 
@@ -397,6 +393,10 @@ But how do you catch as many Pokémon as possible within a short time?
 
 This is where teleporting tools such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) comes in. This is a wonderful and powerful tool that allows you to teleport from one area to another without the game realizing that you are spoofing your location.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
 
 1-click location changer to catch as many Pokémon as possible!
@@ -435,14 +435,24 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-removing-unseen-frames-from-video-recordings/"><u>[New] 2024 Approved Removing Unseen Frames From Video Recordings</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-complete-guide-for-seamlessly-linking-content-into-your-tiktok-profile/"><u>[Updated] Complete Guide for Seamlessly Linking Content Into Your TikTok Profile</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snappy-side-hustles-earning-with-snapchat/"><u>[Updated] In 2024, Snappy Side Hustles Earning with Snapchat</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-harnessing-the-power-of-software-for-seamless-vimeo-video-downloads/"><u>2024 Approved Harnessing the Power of Software for Seamless Vimeo Video Downloads</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Xiaomi Mix Fold 3? | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/strategizing-onedrives-positioning-within-windows-directory-space/"><u>Strategizing OneDrive's Positioning Within Windows Directory Space</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Itel P40+ | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Infinix Smart 7 HD? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-syncing-webcam-footage-with-screen-recording/"><u>[New] 2024 Approved Syncing Webcam Footage with Screen Recording</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-securely-archiving-your-google-voice-talks-for-2024/"><u>[New] Securely Archiving Your Google Voice Talks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unveiling-instagrams-background-replace-technique-for-2024/"><u>[Updated] Unveiling Instagram’s Background Replace Technique for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-step-by-step-guide-to-saving-insta-story-content/"><u>2024 Approved Step-by-Step Guide to Saving Insta Story Content</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-lenovo-thinkphone-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Lenovo ThinkPhone Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Lava Yuva 3? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Oppo Reno 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Nokia C32? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/master-the-art-of-steam-refunds-a-comprehensive-guide/"><u>Master the Art of Steam Refunds: A Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/master-the-game-with-these-premier-gaming-chair-reviews-and-ratings/"><u>Master the Game with These Premier Gaming Chair Reviews and Ratings</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Nokia C02? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-complete-breakdown-of-facebooks-changes-for-2024/"><u>The Complete Breakdown of Facebook's Changes for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/troubleshooting-frozen-footage-in-photo-booths/"><u>Troubleshooting Frozen Footage in Photo Booths</u></a></li>
 </ul></div>
 

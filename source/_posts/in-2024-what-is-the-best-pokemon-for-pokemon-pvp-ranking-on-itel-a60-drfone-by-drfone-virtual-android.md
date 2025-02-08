@@ -1,7 +1,7 @@
 ---
 title: In 2024, What is the best Pokemon for pokemon pvp ranking On Itel A60? | Dr.fone
-date: 2025-01-21T20:25:06.132Z
-updated: 2025-01-26T16:17:33.840Z
+date: 2025-02-05T17:37:08.005Z
+updated: 2025-02-08T17:07:36.709Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -28,6 +28,10 @@ When talking about Pokemon Go, the first thing that usually comes to mind is Pok
 Pokemon Go PvP rank battles are far different from other forms of duel in the game. Why so? The simplest explanation is that your opponent in PvP is a real human trainer, not a pre-mediated computer program. That’s why you may expect that winning on this battlefield is not going to be a smooth ride. You have to gear up your gaming skills very well and prepare a competent strategy to bring home victory. Don’t worry. It’s just a matter of timing and practice. Just go to a match regularly and learn from every experience. That’s the ultimate secret to ace Pokemon Go PvP rank battles.
 
 There are lots of sensible reasons why you should engage in the Pokemon Go PvP rank game. Some of them are enumerated below. Check out the list to learn more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It upgrades the gaming experience to a whole new level
 
@@ -56,9 +60,17 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 
 ![poke ball option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 3:** From there, click **Battle.**
 
 ![battle option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - **Step 4:** Choose your preferred Reward Track and then click the **Battle** button on your chosen track.
 
@@ -75,6 +87,10 @@ The lowest Pokemon PvP ranking in the Go Battle League is Rank 1. The ranks go h
 Go Battle League features a total of 24 ranks starting from Rank 1. The last four high ranks are called Ace, Veteran, Expert, and Legend. With regard to the reward, the set of items that winners will receive varies from one rank to another. More prizes are at stake as you climb the ladder. Thus, work your way up until you become a legend in the Pokemon Go PvP rank battles. You can surely do it. Just trust yourself enough and implement an efficient game plan. By any means possible, it will certainly work magic.
 
 For your information, the Pokemon PvP ranking in the Go Battle League refreshes every season. That means the participants will all go back to Rank 1 once the new season approaches and sets in. Don’t worry. It’s not a big deal. If you’re able to make it last season, you can absolutely do it again one more time. Just stick to your original strategy and be patient at every turn. That’s how you do it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tips For Winning Pokemon Go PvP Rank Battles
 
@@ -95,21 +111,17 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 5:** Configure the settings according to your liking. Start by specifying your preferred number and type of trips. Then, adjust the movement speed by dragging the slider from left to right. After that, it’s time to commence the simulation. Click **Move Here** to proceed. If you wish to reset your inputs, click **Clear** instead.
 
 ![simulation settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 6:** The simulation will begin in a second. Use the details on the map to monitor the real-time progress. If you wish to halt the movement for a little while, click **Pause.** Should you wish to start all over again, click **Clear** instead and repeat the entire process one more time.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -123,6 +135,10 @@ This is one of the many queries that we have got lately about the Pokemon Go GPS
 
 ![pokemon go no gps signal banner](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-no-gps-signal-banner.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Common Reasons for Pokemon Go GPS Problems
 
 Ideally, the Pokemon Go no GPS signal could be caused by either of these reasons:
@@ -135,6 +151,10 @@ Ideally, the Pokemon Go no GPS signal could be caused by either of these reasons
 - There could be any other app or firmware-related issue causing this problem.
 
 ![pokemon gps signal not found](https://images.wondershare.com/drfone/2020/pokemon/pokemon-gps-signal-not-found.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Fix Pokemon Go No GPS Signal Issue on iOS Devices?
 
@@ -178,10 +198,6 @@ You can also press the Power or the Side + Volume Up/Down keys (for newer models
 
 Just like iPhone models, fixing the Pokemon Go GPS problem on Android phones is pretty easy and can be done in the following way:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1: Check the Location Services on your phone
 
 Needless to say, the first thing that you should do is to check the location settings on your phone to fix the GPS Pokemon Go problem.
@@ -197,7 +213,7 @@ If you have not granted the location services permission to Pokemon Go, then you
 ![pokemon go location access](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-access.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 3: Reinstall the Pokemon Go App
@@ -213,16 +229,12 @@ If the Pokemon Go GPS is not accurate on your device, then you need to change it
 ![android location mode accuracy](https://images.wondershare.com/drfone/2020/pokemon/android-location-mode-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 5: Contact Pokemon Go Support
 
 If the problem persists and you've tried all of the above steps, you can contact Pokemon Go's support team for further assistance. They may be able to provide specific guidance based on your device and situation.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Manually Set your Location to Any Place using Dr.Fone – Virtual Location (iOS)
 
@@ -250,10 +262,6 @@ If you are a Pokemon Go player, then you might already know how crucial it is to
 
 ![Pokemon Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Part 1: Where can I find the Best Pokemon Go Discord Servers?**
 
 Ideally, there are hundreds of Discord servers dedicated to Pokemon Go that you can find. Since it is not possible to join so many servers, I would recommend considering the following options to pick some appropriate Pokemon Discord servers.
@@ -268,10 +276,6 @@ _Website:_ [_https://thesilphroad.com/map#2/_](https://thesilphroad.com/map#2/)
 
 ![The Silph Road Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2. **Discord Servers**
 
 As the name suggests, this is one of the biggest directories of Discord servers worldwide. Once you visit the website of Discord Servers, just enter relevant keywords on the search bar. For instance, you can enter “Pokemon Go” and simply get relevant results for Pokemon Go Discord servers. Apart from that, you can also check details about the server and know how active it is.
@@ -281,7 +285,7 @@ _Website:_ [_https://discordservers.com/search/Pokemon%20Go_](https://discordser
 ![Discord Servers Directory](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3. **DisBoard**
@@ -295,10 +299,6 @@ _Website:_ [_https://disboard.org/servers/tag/pokemon-go_](https://disboard.org/
 4. **Other Places to find Discord Servers**
 
 Just like DisBoard, you can also explore several other websites and Discord server directories to find appropriate Pokemon Go Discord servers. A lot of gamers also explore social networks like Reddit, Twitter, Facebook, Twitch, Instagram, etc. to find all kinds of Pokemon Discord servers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Part 2: How to Join a Pokemon Go Discord Server?**
 
@@ -378,17 +378,22 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-delving-into-past-our-top-10-picks-of-history-channels-online/"><u>[Updated] 2024 Approved Delving Into Past Our Top 10 Picks of History Channels Online</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-choosing-prime-top-8-budget-friendly-srt-translator-tools/"><u>[Updated] Choosing Prime Top 8 Budget-Friendly SRT Translator Tools</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/free-youtube-channel-art-templates-find-them-here-for-2024/"><u>Free YouTube Channel Art Templates - Find Them Here for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-tecno-spark-10-4g-by-drfone-android/"><u>How to Bypass FRP from Tecno Spark 10 4G?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Xiaomi Redmi 13C? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Infinix Note 30 VIP? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Itel A70? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/photography-toolkit-a-comprehensive-app-analysis-for-2024/"><u>Photography Toolkit A Comprehensive App Analysis for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/strategies-to-resolve-xbox-one-joystick-faults/"><u>Strategies to Resolve Xbox One Joystick Faults</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/vss-yses-and/"><u>VSS 儲存夥伴體析​​yses & 如何建立？ - 教程視頻</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-essential-tools-for-quality-4k-video-recording-for-2024/"><u>[New] Essential Tools for Quality 4K Video Recording for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-combating-content-id-blocks-on-youtube-with-knowledge/"><u>[Updated] In 2024, Combating Content ID Blocks on YouTube with Knowledge</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-essential-list-of-8-authentic-youtube-boosters/"><u>2024 Approved The Essential List of 8 Authentic YouTube Boosters</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/1728467934166-usb/"><u>間違えてUSB上の重要なファイルを削除してしまった！完全修復法について学ぶ</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oppo-a78-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-tvs-to-accompany-your-highest-rated-consoles-for-2024/"><u>Best TVs to Accompany Your Highest Rated Consoles for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-community.techidaily.com/efficiently-handle-exe-files-via-windows-control-panel-a-comprehensive-guide-by-yl-computing/"><u>Efficiently Handle EXE Files Via Windows Control Panel - A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exploring-chatgpts-remarkable-yet-boundary-limited-memory-capabilities-an-insightful-perspective/"><u>Exploring ChatGPT's Remarkable Yet Boundary-Limited Memory Capabilities: An Insightful Perspective</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-how-to-mix-audio-tracks-into-one-file-for-a-video-for-2024/"><u>New How to Mix Audio Tracks Into One File for A Video for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Find X7 | Dr.fone</u></a></li>
 </ul></div>
 

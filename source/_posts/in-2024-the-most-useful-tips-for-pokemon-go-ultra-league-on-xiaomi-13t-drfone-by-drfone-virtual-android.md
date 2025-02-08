@@ -1,7 +1,7 @@
 ---
 title: In 2024, The Most Useful Tips for Pokemon Go Ultra League On Xiaomi 13T | Dr.fone
-date: 2025-01-21T21:31:08.953Z
-updated: 2025-01-26T17:07:29.860Z
+date: 2025-02-01T17:32:17.522Z
+updated: 2025-02-08T16:10:13.810Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -53,11 +53,19 @@ Here you go-
 
 The ability of this Pokemon to use the charged move sludge bomb prevents any troublesome Fairy-type Pokemon that you may confront. It includes the benefit over Rocky, Ground, and Water-type Pokemon due to its Grass-type move, making Venusaur help you win the match.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Charizard
 
 ![Pokemon go ultra league meta](https://drfone.wondershare.com/2020/Pokemon-go-ultra-league-meta.jpg)
 
 Charizard among the Pokemon Go ultra league tier list shines as it balances effortlessly to hold off. With its second move on, it remains strong. There is a need to have such an iconic Pokemon of all the time in your team. What do you think?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Machamp
 
@@ -75,9 +83,17 @@ One of the finest defenders in Pokemon go ultra league team, Alolan Muk has the 
 
 ![Pokemon go best ultra league team](https://drfone.wondershare.com/2020/Pokemon-go-best-ultra-league-team.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 A tremendous defensive option for many reasons, Snorlax is one whom you can drop into Pokemon go best ultra league team with little effort while you look for a reliable third option.
 
 These are the Pokemons currently in the Pokemon go ultra league meta for you to use. However, it doesn’t mean you have only these options. Don’t forget about the bunch of newcomers, including Raikou, Togekiss, Meganium, Lucario, Lapras, and more. Thus you have to select your team with your mixes by keeping such information in mind.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Where to Catch the best Pokemon for Ultra League?
 
@@ -99,19 +115,11 @@ Before playing best ultra league pokemon game, users should connect to the desk 
 
 ![best PVP pokemon go ultra league](https://drfone.wondershare.com/2020/best-PVP-pokemon-go-ultra-league.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4.** Enter a number in the new popup box to describe the number of times you want to move back and forth amid the two places. Then, finally, click “March” to begin simulating the movement.
 
 Now, you can easily view your position moving on the map with the cycle’s speed.
 
 Who has given a thought to the involvement of a navigation app for experiencing the best ultra league PVP pokemon go? Experience the game and have fun!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why does the pokemon go battle league not available On Xiaomi 13T
 
@@ -134,6 +142,10 @@ Several trainers immediately tweeted this excruciating bug to Niantic requesting
 Players when entering the Battle League are shown – Pokemon Go Battle League Not Available Right Now, and all matches that were in progress were not concluded.
 
 ![pokemon 1](https://images.wondershare.com/drfone/2020/pokemon-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Thankfully, the issue has been resolved and trainers can get back into the league without any change in the previous features.
 
@@ -164,7 +176,7 @@ Few players with the assist of Melmetal (ground and steel type) could lodge cons
 ![pokemon 2](https://images.wondershare.com/drfone/2020/pokemon-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After this issue was tweeted to the notice of the game publisher, Ninattic temporarily paused Battle League. Trainers while accessing the live tournament event would be notified with – “Pokemon Go Battle League Not Available” by the game.
@@ -180,10 +192,6 @@ Here’s a list of exciting updates that will be included in the upcoming season
 - From Rank 3 all the way to Rank 10, a higher number of battles must be won to proceed.
 - Season 5 will be completed once you reach rank 7 which will earn you the Elite Charged TM rather than an Elite Fast TM.
 - In Season 5 few Pokémon’s will get new updated move sets which the trainers can use to train and prepare for upcoming tournaments.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Tips you want to level up your pokemon go?
 
@@ -202,7 +210,7 @@ There are several adjustments to the program that makes it fun to use. You can a
 ![drfone](https://images.wondershare.com/drfone/2020/drfone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Key Features:**
@@ -229,6 +237,10 @@ There are several adjustments to the program that makes it fun to use. You can a
 
 Pokémon Go continues to amaze trainers and fans of the franchise, and is becoming a most engaging and fun experience. Trainers are going to keep enjoying new and improved updates that brings a cooler jazz to the game. Even though there was a hold up in the fun Niantic has improved upon their initial flaws to give us the battle league tournaments we all love.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Working Guide For Pachirisu Pokemon Go Map On Xiaomi 13T
 
 _**“I have been trying to catch Pachirisu for a while now, but I can’t seem to locate it anywhere. Can someone tell me about a working Pachirisu Pokemon Go map?”**_
@@ -236,10 +248,14 @@ _**“I have been trying to catch Pachirisu for a while now, but I can’t seem 
 If you are also planning to catch this electric-type Pokemon, then you can have a similar query as well. Since Pachirisu is a region-specific Pokemon, chances are that you might not see it spawning everywhere. Though, if you use the right Pokemon Go Pachirisu map, then you can easily locate it. In this post, I’m going to suggest some working Pachirisu regional maps so that you can catch this Pokemon like a pro.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Things You Should Know About Pachirisu
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What are Pokemon GO Pachirisu Features?
 
@@ -267,10 +283,6 @@ To increase your chances of finding Pachirisu, it is recommended to visit areas 
 
 Since Pachirisu is mostly spawned in Alaska, Canada, and Russia, you might need to take some extra measures to locate it. I would recommend these Pachirisu Pokemon Go spawn maps to assist you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. The Silph Road
 
 The Silph Road is the biggest crowd-sourced Pokemon Go map that will let you know about the recently spawning of Pachirisu. Since the directory has data about tons of Pokemons, you can go to its filters and select Pachirisu to save time. This will let you know the recent spawning of the Pokemon with its exact coordinates.
@@ -296,10 +308,6 @@ PokeHunter is a well-known Pokemon GO tracker that provides exact information on
 **Website:** [https://pokehunter.co/](https://pokehunter.co/)
 
 ![pokehunter pokemon go map](https://images.wondershare.com/drfone/article/2024/01/pachirisu-pokemon-go-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Catch Pachirisu on Pokemon Go from Home?
 
@@ -327,10 +335,6 @@ Simply adjust the pin on the map so that you can drop it to the desired spot. Cl
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Simulate your movement**
 
 Furthermore, you can even simulate your device movement to ensure that you visit the correct Pachirisu Pokemon Go spawn map location. You can go to the one-stop or multi-stop mode on the screen and drop the pins on the map. This will form a route on which you can simulate your movement at the speed of your choice.
@@ -351,10 +355,6 @@ Pachirisu is a regional-exclusive Pokemon that only spawns in Alaska, Canada, an
 
 Yes, Pachirisu is an event-exclusive Pokemon that appears in the Pokémon GO Fest Global event. This event is restricted to a few days and limited hours, and you also need tickets to participate.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 There you go! After getting to know about these Pokemon Go regional maps for Pachirisu, you can easily catch this electric-type Pokemon. Since it is not possible to go to Canada or Russia to catch it, you can use a Pachirisu Pokemon Go map to get its spawn coordinates. Later, you can use an application like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS) to spoof your iPhone location and catch a new Pachirisu without going out. For that, you don’t have to go through any technical hassle or even jailbreak your device!
@@ -373,21 +373,17 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-a-day-in-the-life-on-facebook-enhancing-participation-for-2024/"><u>[Updated] A Day in the Life on Facebook Enhancing Participation for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-youtubes-prime-stream-essential-tech-equipment-guide-for-creators-for-2024/"><u>[Updated] YouTube's Prime Stream Essential Tech, Equipment Guide for Creators for 2024</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/2024-approved-auditory-excellence-pinpointing-the-best-songs-to-accompany-your-montage-narrative/"><u>2024 Approved Auditory Excellence Pinpointing the Best Songs to Accompany Your Montage Narrative</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/deciphering-codegpt-ais-coding-potential/"><u>Deciphering CodeGPT: AI's Coding Potential</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-hot-is-too-hot-when-gaming/"><u>How Hot Is Too Hot When Gaming?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Infinix Smart 7? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intels-next-gen-mobile-processors-suffer-malfunctions-distinct-causes-from-infamous-desktop-bug-revealed/"><u>Intel's Next-Gen Mobile Processors Suffer Malfunctions; Distinct Causes From Infamous Desktop Bug Revealed</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-canon-mx492-printer-driver-software-and-updates-for-windows-complete-guide/"><u>Latest Canon MX492 Printer Driver Software and Updates for Windows: Complete Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/secure-your-apple-watch-series-10-today-exclusive-99-pre-order-deal-at-best-buy-learn-the-steps-with-our-guide/"><u>Secure Your Apple Watch Series 10 Today: Exclusive $99 Pre-Order Deal at Best Buy! Learn the Steps with Our Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-zte-nubia-flip-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On ZTE Nubia Flip 5G? Fixed | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pros-best-top-8-tripods-excelling-at-4k-video-capture/"><u>[New] Pro's Best Top 8 Tripods Excelling at 4K Video Capture</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-secureyourcam-top-10-reviews-for-protected-shopping/"><u>[Updated] 2024 Approved SecureYourCam Top 10 Reviews for Protected Shopping</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-digital-workshop-archives-for-2024/"><u>[Updated] Digital Workshop Archives for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/boosting-apple-watch-battery-performance-discover-key-adjustments-with-expert-tips-from-zdnet/"><u>Boosting Apple Watch Battery Performance: Discover Key Adjustments with Expert Tips From ZDNET</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/easy-steps-to-change-file-extensions-on-windows-a-comprehensive-guide-by-yl-computing/"><u>Easy Steps to Change File Extensions on Windows: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/innovative-approaches-for-enhancing-audience-interaction-through-fb-lives-multi-view-features/"><u>Innovative Approaches for Enhancing Audience Interaction Through FB Live's Multi-View Features</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/restoring-default-configuration-a-guide-to-reinitializing-your-windows-vga-drivers-expert-tips-by-techgenius/"><u>Restoring Default Configuration: A Guide to Reinitializing Your Windows VGA Drivers - Expert Tips by TechGenius</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
 </ul></div>
 

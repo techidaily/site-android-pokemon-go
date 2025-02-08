@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Tecno Pova 5 Pro? | Dr.fone
-date: 2024-09-18T19:47:51.927Z
-updated: 2024-09-22T12:43:04.295Z
+date: 2025-02-04T16:10:13.566Z
+updated: 2025-02-08T18:24:27.963Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -61,16 +61,13 @@ Once your iPhone is connected, its present location would automatically be displ
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Simulate the iPhone Movement with a joystick**
 
@@ -108,6 +105,10 @@ Besides that, you can also tap on the map option to directly enter the address o
 
 ![pokemon go joystick](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can further visit the GPS Joystick settings to set up preferred walking, jogging, or running speeds for the simulated movement.
 
 ![GPS Joystick Set Speed](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-6.jpg)
@@ -137,16 +138,7 @@ Great! Now, you can just launch the FGL Pro app on your phone and tap on the sea
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
@@ -158,6 +150,10 @@ If you want to avoid getting your account banned and still use a reliable spoofi
 - Try to spoof your location in the same district or state first and wait for a few hours before changing your whereabouts. The following cooldown duration chart would help you determine this in advance.
 
     ![Pokemon Go Cooldown Chart](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Make sure that the Pokemon Go joystick you are using is a reliable solution (like the ones listed above).
 - If you have already got a warning on your Pokemon Go account, then consider creating another account for using any fake GPS Pokemon Go hack instead.
@@ -173,10 +169,7 @@ If you have been using iSpoofer for a while to change your iPhone location, you 
 ![ispoofer shutdown banner](https://drfone.wondershare.com/2020/ispoofer-shutdown-banner.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why did iSpoofer shutdown?
@@ -234,6 +227,10 @@ As you would select the target location, the application will automatically chan
 
 ![virtual location 5](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can now launch Pokemon Go or any other GPS-based app to check the spoofed location of your iPhone.
 
 ![virtual location 7](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
@@ -270,20 +267,21 @@ That’s it! Now you can launch the mock location app and enter the address or c
 
 ![fake location on lexa](https://drfone.wondershare.com/2020/fake-location-on-lexa.jpg)
 
-There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your iPhone location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your iPhone anywhere you like and that too without jailbreaking your phone.
-
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your iPhone location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your iPhone anywhere you like and that too without jailbreaking your phone.
 
 ## Here are Some of the Best Pokemon Discord Servers to Join On Tecno Pova 5 Pro
 
 If you are a Pokemon Go player, then you might already know how crucial it is to have some active friends in the game. By playing Pokemon Go with your friends, you can create teams, participate in raids, and do so much more. Though, the best way to make new friends in the game is by joining an active Pokemon Go Discord server. The good news is that Discord has tons of international and local Pokemon Go servers that you can join. Find out how to find the most appropriate Pokemon Go Discord servers in this guide.
 
 ![Pokemon Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 1: Where can I find the Best Pokemon Go Discord Servers?**
 
@@ -315,6 +313,10 @@ _Website:_ [_https://disboard.org/servers/tag/pokemon-go_](https://disboard.org/
 
 ![DisBoard Discord Servers](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. **Other Places to find Discord Servers**
 
 Just like DisBoard, you can also explore several other websites and Discord server directories to find appropriate Pokemon Go Discord servers. A lot of gamers also explore social networks like Reddit, Twitter, Facebook, Twitch, Instagram, etc. to find all kinds of Pokemon Discord servers.
@@ -327,13 +329,6 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 
 ![Discord Add a Server](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2. Now, you will be given an option to either create a new server or simply join an existing server. From here, you can select an option to join an existing server instead.
 
 ![Discord Server Options](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-6.jpg)
@@ -343,6 +338,10 @@ By exploring the above-listed options, you would be able to find all kinds of Po
 ![Join a Server on Discord](https://images.wondershare.com/drfone/2020/202010/find-pokemon-go-discord-servers-7.jpg)
 
 By following the same drill, you can join as many Discord servers for Pokemon Go as you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 3: Some Popular Pokemon Discord Servers to Join**
 
@@ -402,5 +401,24 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-effortless-facebook-video-extras-the-best-fire-browser-plugins-of-2023/"><u>[New] 2024 Approved Effortless Facebook Video Extras The Best Fire-Browser Plugins of 2023</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-unknown-to-social-superstar-master-these-15-insta-growth-strategies-for-fast-results-for-2024/"><u>[New] From Unknown to Social Superstar Master These 15 Insta Growth Strategies for Fast Results for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-elevating-your-content-becoming-a-staff-pick-favorite-on-vimeo-for-2024/"><u>[Updated] Elevating Your Content Becoming a Staff Pick Favorite on Vimeo for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-breaking-down-20mb-files-timing/"><u>[Updated] In 2024, Breaking Down 20MB File's Timing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-vivo-y17s-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Vivo Y17s Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-infinix-hot-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-itel-p55-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Itel P55? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Nokia C12? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimal-habits-to-protect-xbox-series-x-investment/"><u>Optimal Habits to Protect Xbox Series X Investment</u></a></li>
+<li><a href="https://fox-making.techidaily.com/step-by-step-tutorial-on-saving-and-transforming-ufc-fights-to-mp4avimov-files/"><u>Step-by-Step Tutorial on Saving and Transforming UFC Fights to MP4/AVI/MOV Files</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Oppo A1x 5G | Dr.fone</u></a></li>
+</ul></div>
 

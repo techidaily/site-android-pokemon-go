@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Use Pokémon Emerald Master Ball Cheat On Infinix Smart 7 HD | Dr.fone
-date: 2025-01-19T20:14:05.837Z
-updated: 2025-01-26T22:45:51.817Z
+date: 2025-02-04T18:19:21.991Z
+updated: 2025-02-08T19:02:02.771Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -38,10 +38,6 @@ The Pokémon Emerald Master Ball has a spherical shape juts like the regular Pok
 The Pokémon master ball emerald will capture all Pokémon in the wild apart from the ghost Marowak when it is in the Pokémon Tower. When you use the ball, you bypass the Pokéball throwing process and animation, and you simply move on to the scene where the Pokémon has been captured. Even when Legendary Pokémon tries to swat the master ball away, they miss and they are captured in an instant.
 
 The one downside about the Pokémon ball emerald is that it cannot be used where you can easily use a normal Pokéball. For example, when you are in a wild battle that has two or more opposing trainers, you will lose the Pokémon emerald master ball if you use it; the opposing trainers can swat the ball away in this case, and you waste a valuable asset.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Does the master ball cheat code still work?
 
@@ -84,7 +80,7 @@ When you are using Pokémon game emulators such as the GameShark, you can take a
 ![Entering the GameShark Pokémon Emerald Master Ball cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4 -** Now proceed and enter the master ball code. The small cod will have to be enabled before you can switch on the Pokémon Emerald Master Ball GameShark cheat code. To do this, Go to the description and then enter the master code. Now you need to paste in the following into the “Code Field”.  
@@ -100,6 +96,10 @@ Only one Master Ball can be bought at a time, but you can do this as many times 
 
 ![Buy as many Pokémon Emerald Master Balls as you would like using the cheat code](https://images.wondershare.com/drfone/2020/virtual-location/pokemon-master-ball-cheat-code-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you have shopped for Pokémon Emerald Master Balls to your fill, you need to disable the code so your store can go back to normal. All you have to do is go back to the “Cheat List” window and then uncheck the two little lines of Pokémon Emerald Master ball cheat codes.
 
 Make sure that you exit the store and go back again to finish the process properly.
@@ -109,7 +109,7 @@ Make sure that you exit the store and go back again to finish the process proper
 The best thing about this method is that you do not need to enter another master ball cheat code in the future. All you have to do is go back to your Cheat List and check the box for the code once more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Other tips to level up on Pokémon go
@@ -139,6 +139,10 @@ Raiding Gyms can get you a lot of XP. This is more so when you go for Legendary 
 - Fix up a Raid Train, which is the process of moving from one Raid to another as a group, and this allows you to Raid as much as possible in a short time.
 
 Do as many of these Raids as you can.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mass catching and Mass evolving
 
@@ -198,6 +202,10 @@ Kirlia is a small humanoid Pokémon whose upper body and arms are white while th
 
 Snorunt is an ice-type Pokémon that was introduced in Generation III. It is also referred to as the "Snow Hat Pokémon." You can find Snorunt in seafoam café, snow canyon, or even in Mysterious Grotto. Furthermore, you can obtain it by trading or Pokémon Roulette. Snorunt can evolve into Glalie or Froslass. If it reaches level 42, Snorunt evolves to Glalie. For Snorunt to evolve into Froslass, it requires a dawn stone. However, the Snorunt must be a female to evolve to Froslass.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2. Hacks and Tricks to get Dawn Stone Pokémon
 
 It is every player's wish to avoid the long hunt for a Dawn Stone into their Podex. This issue has given birth to some of the hacks and tricks to help players cross territory and find the intended evolution item or Pokémon. Some of these tricks include:
@@ -210,13 +218,13 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2.** On the next page, click the "Get Started" button to proceed.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3.** You should see three icons on the top-right of the subsequent page. Click the third icon to switch to the teleport mode. At the top-left, enter the location of the place you want to teleport to and click "Go."
 
@@ -227,11 +235,7 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Use Pokémon Gotcha
@@ -242,10 +246,6 @@ Pokémon Go-tcha makes hunting Pokémon and evolution items much easier. With th
 
 iTools location spoofer is another good GPS mocking tool that is suitable for Pokémon Go games. By faking the GPS location, you can easily access territories where rare Pokémon or evolution items are available while seated at home or in the office. This program supports iOS 12 devices or earlier versions. However, there are scores of people who have complained about several crashes. Nevertheless, you can try it if you have got some penny to spare.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Legendaries Are In Pokemon Platinum On Infinix Smart 7 HD?
 
 Pokemon Platinum is an engaging role-playing video game introduced by Nintendo and Game Freak. Released in 2008 in Japan, Platinum is an enhanced version of Pokemon Pearl and Diamond.
@@ -255,6 +255,10 @@ Pokemon Platinum is an engaging role-playing video game introduced by Nintendo a
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
@@ -308,6 +312,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -336,6 +344,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -344,19 +356,11 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5:** For GPS location spoofing on your iPhone map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -367,10 +371,6 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -390,21 +390,17 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-for-students-discover-the-top-10-historical-youtube-channels-now/"><u>[New] 2024 Approved For Students, Discover the Top 10 Historical YouTube Channels Now</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-diy-photography-support-systems/"><u>[Updated] DIY Photography Support Systems</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-epic-webcam-connectivity-quests/"><u>[Updated] In 2024, Epic Webcam Connectivity Quests</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-streamers-dilemma-is-vlc-superior-to-mpc-in-2024/"><u>[Updated] Streamer's Dilemma Is VLC Superior to MPC, In 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-transform-shots-to-boost-circular-vignette-features/"><u>2024 Approved Transform Shots to Boost Circular Vignette Features</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Infinix GT 10 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/moviemakermag-extreme-review-complete-take-on-androvid-editor/"><u>MovieMakerMag Extreme Review – Complete Take on AndroVid Editor</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Infinix Hot 40i? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/resolving-issues-with-youtube-playback-fixing-pauses-and-freezes/"><u>Resolving Issues with YouTube Playback - Fixing Pauses and Freezes</u></a></li>
-<li><a href="https://driver-install.techidaily.com/strategies-for-updating-audio-support-in-w10/"><u>Strategies for Updating Audio Support in W10</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/unveiling-the-michael-kors-access-gen-5e-mkgo-timepiece-a-blend-of-luxury-and-clever-designs/"><u>Unveiling The Michael Kors Access Gen 5E MKGO Timepiece: A Blend of Luxury and Clever Designs</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-guide-to-instagram-video-backup-with-computer-or-laptop/"><u>[Updated] In 2024, Guide to Instagram Video Backup with Computer or Laptop</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-parrot-ar-drone-evaluation-elite-edition/"><u>[Updated] Parrot AR Drone Evaluation - Elite Edition</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-artistic-excellence-foremost-ios-art-tools/"><u>2024 Approved Artistic Excellence Foremost iOS Art Tools</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-a-non-responsive-dns-server-quick-and-effective-remedies/"><u>How to Fix a Non-Responsive DNS Server: Quick & Effective Remedies</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-apple-iphone-8-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or Apple iPhone 8 from iCloud</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-motorola-edge-40-neo-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Motorola Edge 40 Neo? Fixed | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/the-essential-tutorial-for-making-memes-on-9gag/"><u>The Essential Tutorial for Making Memes on 9GAG</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-workings-explained-gpt4all-insights/"><u>The Workings Explained: GPT4All Insights</u></a></li>
 </ul></div>
 

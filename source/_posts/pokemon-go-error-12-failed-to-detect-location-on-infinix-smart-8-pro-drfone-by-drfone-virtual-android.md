@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Infinix Smart 8 Pro? | Dr.fone
-date: 2025-01-22T19:30:36.755Z
-updated: 2025-01-26T18:07:46.039Z
+date: 2025-02-01T19:10:37.915Z
+updated: 2025-02-08T18:34:01.357Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,7 +24,7 @@ Pokémon Go has been on the nerves of its players and this is all because of the
 The best part of this game is that it has been compiled keeping in view the location mechanics. The location analytics of the game has made sure that it becomes the overnight sensation. Three main attributes are associated with the location framework of the game. These attributes also show how important the location is for the game. Understanding these attributes will also make sure that the user can overcome the errors such as failed to detect location 12 GPS joystick 2019.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### i. Physical World Attribute
@@ -35,10 +35,6 @@ The best part of this attribute is that it is the center of the user experience 
 
 The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### iii. Place Attribution
 
 The system within the system that has been designed by the game developers makes sure that the location inaccuracies are accounted for. This also means that the 4-meter accuracy of the GPS is further enhanced to deal with the perfect location identification of each player.
@@ -46,6 +42,10 @@ The system within the system that has been designed by the game developers makes
 ## Part 2: Ways to Fix Error 12 on Pokémon Go
 
 Several ways can be used to make sure that the subject error is resolved with ease. This section of the article will deal with all such ways that can be used to get the work done with ease and perfection.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 1: Enable Mock Locations
 
@@ -88,7 +88,7 @@ Just long-press the power button and choose the reboot option from the menu that
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
@@ -96,6 +96,10 @@ Just long-press the power button and choose the reboot option from the menu that
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best tool to overcome issues such as failure to detect location 12 Pokémon go on iPhone. The program has been designed to make sure that the GPS location is spoofed and you get the perfect outcome in resolving the error under discussion.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Process
 
@@ -129,6 +133,10 @@ Click on move here and the system will move you to the location that has been en
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6: Validate and Completion**
 
 The location will be locked by the program and your iPhone will also show the same location as on Dr. Fone. This also completes the process in full:
@@ -136,20 +144,12 @@ The location will be locked by the program and your iPhone will also show the sa
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
 
 [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the state-of-the-art program to overcome Pokémon go unable to detect location 12 on iOS devices. It has an intuitive interface and it also allows the users to overcome the issues that traditional spoofing programs present. It is being updated constantly which also means that you will be able to get the best results. There is no program on the internet that can resolve the error that failed to detect location 12 in Pokémon go as easily as this one does.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Preparation to Beat Giovani in Pokemon Go For Infinix Smart 8 Pro
 
@@ -203,6 +203,10 @@ After completing the quest above, Giovani Special Research or Looming in the Sha
 
 On completing one research step, you will be given a reward called the Super Rocket Radar. Like the Rocket Radar, the Super Rocket Radar can be equipped and unequipped from your Bag. This reward doesn't only show Giovani’s hideout, it also shows some of his Grunts hideouts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2. What does the Pokemon Go Giovani Counter Contain?
 
 Giovani remains the toughest beast amongst all the Team Go Rocket Leaders. When you find him in the game, be prepared to face his wrath. To defeat him, you need a powerful team.
@@ -226,10 +230,6 @@ Picking any of these great ice-type Pokemon, Mamoswine, Glaceon, or Weavile when
 Once you defeat Team Go Rocket's second lineup creatures, you will have to battle against the legendary psychic Pokemon, Mewtwo, who is weak to this set of Pokemon; bug, ghost, and Dark-type Pokemon. So beating this Pokemon Go Giovani grunt shouldn't be a tedious task as you’ve got a plethora of choices when deciding the Pokemon-type to use. Origin Giratina and Tyranitar are some strong Dark-type Pokemon you can use to defeat Mewtwo.
 
 Now you know the best Giovani Pokemon Go counters to use against each lineup of creatures, leverage it to advance to the next phase of the game where you will face the big bad boss himself, Giovani.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3. Tips to Beat Giovani in Pokemon Go
 
@@ -256,6 +256,10 @@ Guide to Use Dr.fone Virtual Location to Get Stronger Pokemon in Giovanni Pokemo
 **Step 2:** The interface above will appear on your screen. With the aid of a lightning cable, connect your iPhone to a PC, then click on the Virtual Location icon. A new interface will pop up as shown in the image below
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on Get Started to change your location.
 
@@ -295,13 +299,13 @@ A while back, Niantic realized that a lot of people are misusing the app by expl
 
 ![Pokemon Go spoofing risks](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: 3 Best Methods for Android Pokemon Go Spoofing
 
 As you can see, if you are using any unreliable Pokemon Go spoofing app on Android, then it can even get your account suspended. Not just that, it can also harm your device and make it vulnerable to security threats. To help you pick the best spoofing app for Pokemon Go Android, we have handpicked the 3 most secure options here. Let's explore these Pokemon Go spoofing solutions for Android in 2019.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3.1 Use a VPN
 
@@ -317,6 +321,10 @@ Some of the Virtual Private Networks that I have tried are Express VPN, Nord VPN
 
 ![vpn for android](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3.2 Use Fake GPS Go
 
 If you have an Android device, you can use tons of fake GPS apps to spoof your location on Pokemon Go. Most of these apps would not even need root access on the Infinix Smart 8 Pro device. You can just unlock the Developer Options on your Infinix Smart 8 Pro and enable the mock location feature from it. Fake GPS Go is a freely available application that will let you pin your location to any desired place. This will let you spoof Pokemon Go on Android pretty easily without getting detected.
@@ -324,10 +332,6 @@ If you have an Android device, you can use tons of fake GPS apps to spoof your l
 **Step 1.** Firstly, go to your phone's Settings > System > About Phone and tap on the "Build Number" option seven consecutive times. This will unlock the Developer Options on your phone.
 
 ![Fake GPS Go](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2.** Now, install and launch the Fake GPS Go app on your device and grant it the needed access. Later, go to the Infinix Smart 8 Pro device's Settings > Developer Options and turn it on. From the Mock Location App feature, select Fake GPS Go and give it the access to change your device's location.
 
@@ -348,10 +352,6 @@ This is another fake GPS app that is available for free and can easily be used o
 **Step 2.** Once the app is installed, go to Settings > Developer Options and tap on the mock location app feature to grant Fake GPS free the needed access.
 
 ![grant Fake GPS access](https://images.wondershare.com/drfone/article/2019/09/android-pokemon-go-spoofing-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3.** Afterward, launch the Fake GPS Free application on your device and look for any desired location. You can also manually zoom in or out the map to mark your new location.
 
@@ -377,22 +377,14 @@ There you go! After following this guide, you would be able to [spoof Pokemon Go
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-ace-picks-top-ranked-gaming-screens-in-4k/"><u>[New] 2024 Approved Ace Picks Top-Ranked Gaming Screens in 4K</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-controlling-youtubes-playback-speed-mobile-and-pc/"><u>[New] Controlling YouTube's Playback Speed - Mobile and PC</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-flip-the-narrative-ios-video-playback-upside-down-for-2024/"><u>[New] Flip the Narrative IOS Video Playback Upside-Down for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-get-into-a-friends-live-showcase-effortlessly/"><u>[New] In 2024, Get Into a Friend's Live Showcase Effortlessly</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-live-stream-titans-clash-twitch-vs-youtube-analysis/"><u>[Updated] Live-Stream Titans Clash Twitch Vs YouTube Analysis</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-step-by-step-guide-to-seamlessly-downloading-and-modifying-tamil-ringtones/"><u>[Updated] Step-by-Step Guide to Seamlessly Downloading and Modifying Tamil Ringtones</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-webcammastery-practicalrecordingsteps/"><u>[Updated] WebCamMastery PracticalRecordingSteps</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-print-to-pdf-feature-issues-on-windows-10-and-11/"><u>Fixing 'Print to PDF' Feature Issues on Windows 10 & 11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-successfully-bypass-icloud-activation-lock-on-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, How to Successfully Bypass iCloud Activation Lock on Apple iPhone 8 Plus</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Itel P40? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-protective-recording-strategies-to-mask-personal-information/"><u>[New] In 2024, Protective Recording Strategies to Mask Personal Information</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-collabs-for-youtube-channel-expansion-for-2024/"><u>Crafting Collabs for YouTube Channel Expansion for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Tecno Spark 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tutorial-transforming-photos-into-works-of-art/"><u>In 2024, Tutorial Transforming Photos Into Works of Art</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723010692599-phoenix-point-crash-dilemma-heres-how-you-can-get-back-on-track/"><u>Phoenix Point Crash Dilemma? Here's How You Can Get Back on Track!</u></a></li>
 </ul></div>
 
