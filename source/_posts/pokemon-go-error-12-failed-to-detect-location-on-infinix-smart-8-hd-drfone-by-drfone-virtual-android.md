@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Infinix Smart 8 HD? | Dr.fone
-date: 2025-02-05T16:26:45.813Z
-updated: 2025-02-08T17:57:38.389Z
+date: 2025-02-13T16:58:14.395Z
+updated: 2025-02-18T16:34:53.066Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -19,17 +19,9 @@ Pokemon Go is a popular game that has taken the world by storm. It is an augment
 
 Pokémon Go has been on the nerves of its players and this is all because of the AR notion that it presents. The failed to detect location 12 is one of the most common errors that are faced by the players while playing this game. You might not believe but the GPS signals and the location settings on iPhone or Android are the two main reasons for this error. It can be resolved with ease and this article has been written to get the work done with ease. Applying the methods explained will ensure that you get the best results overall.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why is Location Important in Pokémon Go?
 
 The best part of this game is that it has been compiled keeping in view the location mechanics. The location analytics of the game has made sure that it becomes the overnight sensation. Three main attributes are associated with the location framework of the game. These attributes also show how important the location is for the game. Understanding these attributes will also make sure that the user can overcome the errors such as failed to detect location 12 GPS joystick 2019.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### i. Physical World Attribute
 
@@ -38,10 +30,6 @@ The best part of this attribute is that it is the center of the user experience 
 ### ii. Real World Gestures
 
 The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### iii. Place Attribution
 
@@ -67,10 +55,6 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 ![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 2: Location Activation
 
 This is another important and easy way to make sure that the Pokémon failed to detect location 12 error is resolved with ease and perfection. To execute the process the steps are mentioned as follows:
@@ -95,6 +79,10 @@ Just long-press the power button and choose the reboot option from the menu that
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
@@ -108,10 +96,6 @@ Just long-press the power button and choose the reboot option from the menu that
 To begin the process, download and install the program to get going with the process.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2: Enable Virtual Location**
 
@@ -137,6 +121,10 @@ Click on move here and the system will move you to the location that has been en
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6: Validate and Completion**
 
 The location will be locked by the program and your iPhone will also show the same location as on Dr. Fone. This also completes the process in full:
@@ -146,6 +134,10 @@ The location will be locked by the program and your iPhone will also show the sa
 ## Conclusion
 
 [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best and the state-of-the-art program to overcome Pokémon go unable to detect location 12 on iOS devices. It has an intuitive interface and it also allows the users to overcome the issues that traditional spoofing programs present. It is being updated constantly which also means that you will be able to get the best results. There is no program on the internet that can resolve the error that failed to detect location 12 in Pokémon go as easily as this one does.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Additional Tips About Sinnoh Stone For Infinix Smart 8 HD
 
@@ -178,10 +170,6 @@ The Sinnoh Stone is a new evolution item, and all eighteen-4th generation Pokém
 | Swinub | Mamoswine |
 | Kirlia | Gallade |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Obtaining Sinnoh Stones to Level Up
 
 Sinnoh Stone can be obtained during the battle against the three leaders on Community Day, on the completion of the final day of your 7-day Research Task, and During PVP. You won't be finding them at Poke Stops. Main places where you can find Sinnoh Stones are on the 7th Day of your Research Task and award for taking part in PVP. Another place that is not popular but odds to find Sinnoh Stone is present includes the introduction to PVP when you're new to it. Players can obtain up to 10 Sinnoh Stones during the February Community Day and when the month is Pokemon Go Community Day. 5 Sinnoh Stones can be obtained by beating the three leaders in the battles and another 5 from winning PVP battles against friends. Defeating a Team Go Rocket Leader and Go Battle Reward is Sinnoh Stone.
@@ -195,10 +183,6 @@ You can use [Dr. Fone's Virtual Location](https://tools.techidaily.com/wondersha
 Pokemon Go can be played by using the toolkit of Dr. Fone without shifting. Open the Virtual Location feature using a functioning lightning cable to mock the location and ensure that the iOS device is linked to the application.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can press the Get Started" button to start the process upon phone detection.
 
@@ -218,7 +202,15 @@ For the Pokemon Go application, the new position will appear as real and will pr
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Movement Simulation between more than two spots:**
 
@@ -231,10 +223,6 @@ Click the 'March' button to allow the system to simulate motion by selecting the
 ## Part 3: Essential Requirement and Evolving Pokémon's Using Sinnoh Stone
 
 Only the trainers above the 10th Level have access to acquire Sinnoh Stone. The Sinnoh Stone can be obtained from Training Battles and Training with Team Leaders. You also need 100 candies for each of the Pokemon. Once you have got your hands on Sinnoh Stones and now you want to know where they should be used, there’s numerous 4th generation Pokémon who require Sinnoh Stone for their upgrade. Mamoswine is one of the best if you're prioritizing attackers for a raid because it has a mix of extremely high CP with the strong ground and ice-type moves.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -274,12 +262,16 @@ Well, it can be tempting to put your highest rated Pokemon into the ultra League
 
 Here you go-
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Venusaur
 
 ![Ultra league Pokemon Go](https://drfone.wondershare.com/2020/Ultra-league-Pokemon-Go.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The ability of this Pokemon to use the charged move sludge bomb prevents any troublesome Fairy-type Pokemon that you may confront. It includes the benefit over Rocky, Ground, and Water-type Pokemon due to its Grass-type move, making Venusaur help you win the match.
@@ -288,10 +280,14 @@ The ability of this Pokemon to use the charged move sludge bomb prevents any tro
 
 ![Pokemon go ultra league meta](https://drfone.wondershare.com/2020/Pokemon-go-ultra-league-meta.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Charizard among the Pokemon Go ultra league tier list shines as it balances effortlessly to hold off. With its second move on, it remains strong. There is a need to have such an iconic Pokemon of all the time in your team. What do you think?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Machamp
@@ -334,6 +330,10 @@ Before playing best ultra league pokemon game, users should connect to the desk 
 
 ![best PVP pokemon go ultra league](https://drfone.wondershare.com/2020/best-PVP-pokemon-go-ultra-league.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4.** Enter a number in the new popup box to describe the number of times you want to move back and forth amid the two places. Then, finally, click “March” to begin simulating the movement.
 
 Now, you can easily view your position moving on the map with the cycle’s speed.
@@ -354,18 +354,20 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-help.techidaily.com/beyond-the-branches-a-new-era-of-animal-architectural-mastery/"><u>Beyond the Branches: A New Era of Animal Architectural Mastery</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-itel-a70-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Itel A70 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effective-fixes-when-your-persona-3-reloaded-title-doesnt-load-correctly/"><u>Effective Fixes When Your Persona 3 Reloaded Title Doesn't Load Correctly</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/expert-image-restoration-mastering-stellar-repair-on-your-windows-device/"><u>Expert Image Restoration: Mastering Stellar Repair on Your Windows Device</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/get-your-chats-sound-proofed-voicemod-guide-for-discord-users/"><u>Get Your Chats Sound-Proofed VoiceMod Guide for Discord Users</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Spark Go (2024) | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-charging-issues-for-windows-surface-pcs-quick-tips-and-tricks/"><u>Solving Charging Issues for Windows Surface PCs – Quick Tips & Tricks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/top-screen-recording-tools-in-top-8-free-for-your-android-device-for-2024/"><u>Top Screen Recording Tools in Top 8 FREE FOR YOUR Android Device for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-potential-with-ankers-superspeed-usb-hub-in-depth-analysis-and-review/"><u>Unlocking Potential with Anker's SuperSpeed USB Hub - In-Depth Analysis & Review</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-beginner-friendly-free-video-editors-cut-trim-and-merge/"><u>Updated In 2024, Beginner-Friendly Free Video Editors Cut, Trim, and Merge</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-go-backwards-the-iphones-playback-power/"><u>[New] Go Backwards The iPhone's Playback Power</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-the-ultimate-youtube-musical-collection/"><u>[Updated] 2024 Approved Building the Ultimate YouTube Musical Collection</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-uncovering-quantum-hdrs-core-principles/"><u>[Updated] 2024 Approved Uncovering Quantum HDR's Core Principles</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-sketch-whimsical-graphics-on-giphy/"><u>2024 Approved Sketch Whimsical Graphics on Giphy</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-vivo-y78t-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Vivo Y78t Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On OnePlus 12? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/lg-watch-style-review/"><u>LG Watch Style Review</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-meizu-21-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Lava Blaze 2 | Dr.fone</u></a></li>
 </ul></div>
 

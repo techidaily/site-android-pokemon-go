@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Infinix Hot 40i? | Dr.fone
-date: 2025-02-07T19:16:30.406Z
-updated: 2025-02-08T19:17:30.615Z
+date: 2025-02-12T16:56:07.850Z
+updated: 2025-02-18T16:54:01.301Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -39,10 +39,6 @@ The system within the system that has been designed by the game developers makes
 
 Several ways can be used to make sure that the subject error is resolved with ease. This section of the article will deal with all such ways that can be used to get the work done with ease and perfection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 1: Enable Mock Locations
 
 As the name suggests it is to set the fake location using the build-in iPhone feature. It will also make sure that the feature of the game continues to work perfectly.
@@ -71,13 +67,13 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 5](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3.** Tap to turn on the location to finish the process and eliminate the failed to detect location 12 Pokémon Go errors.
 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 3: Reboot the Infinix Hot 40i device
 
@@ -92,6 +88,10 @@ Just long-press the power button and choose the reboot option from the menu that
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 [Dr. Fone Virtual location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is the best tool to overcome issues such as failure to detect location 12 Pokémon go on iPhone. The program has been designed to make sure that the GPS location is spoofed and you get the perfect outcome in resolving the error under discussion.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Process
 
@@ -119,10 +119,6 @@ On the upper right corner click the icon on the third to begin teleportation or 
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Move to the teleported location**
 
 Click on move here and the system will move you to the location that has been entered.
@@ -134,10 +130,6 @@ Click on move here and the system will move you to the location that has been en
 The location will be locked by the program and your iPhone will also show the same location as on Dr. Fone. This also completes the process in full:
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -177,21 +169,17 @@ _**Step 2:**_ Open the program and you can connect your phone to your computer o
 
 ![teleport to desired location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_Step 6:_** Finally, it will show you that chosen location that you typed and you can then check your current location on your phone which shows the same place.
 
 ![current location in program](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Here is a video for you to learn how to teleport your iPhone GPS location:**
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Best AR Games like Pokémon GO
 
@@ -206,6 +194,10 @@ If you like zombie movies, this game is the right one to download. “The Walkin
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US)_
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 14\. Dragon Quest Walk
 
 Dragon Quest Walk is a game for those people who love watching or reading about magical adventures. In this game, you embarge on different quests where you fight off different magical creatures. As you win more battles, your character levels up, and you can access more parts of the game. In addition, you can find different quests in different locations that you need to win and even some collectibles that you can use.
@@ -213,6 +205,10 @@ Dragon Quest Walk is a game for those people who love watching or reading about 
 ![dragon quest walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-2.jpg)
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.square_enix.android_googleplay.dqwalkj&hl=en&gl=US)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 13\. Pokémon Sword And Shield
 
@@ -237,10 +233,6 @@ Ghost Busters World is a game that was created and inspired by the Ghost Busters
 
 ![ghost busters world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android)_
 
 ### 10\. Geocaching
@@ -248,6 +240,10 @@ Ghost Busters World is a game that was created and inspired by the Ghost Busters
 If you love searching and hunting for treasure, then Geocaching is the perfect game for you. Geocaching is known to be the “world’s largest treasure hunt” where you search for treasures that were hidden by other enthusiasts such as yourself. This game was created way before Pokémon Go was released back in 2000 and has created a generation of geocachers. Players will need to solve puzzles to be able to get the treasure which makes your treasure hunting more exciting.
 
 ![geocaching](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.groundspeak.geocaching.intro&hl=en&gl=US)_
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/geocaching/id329541503)_
@@ -260,10 +256,6 @@ For those players who are into running or are physically fit, you playing the ga
 
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.zombiesrunclient&hl=en)_
 - _App Download for iOS: [Link](https://apps.apple.com/us/app/zombies-run/id503519713)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Orna
 
@@ -292,7 +284,7 @@ The Witcher: Monster Slayer is a game that will be a big hit for gamers who like
 - _App Download for iOS: [Link](https://apps.apple.com/th/app/the-witcher-monster-slayer/id1509704647)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. The Walk
@@ -326,6 +318,10 @@ If you grew up watching Harry Potter and would love to be a wizard, you should d
 
 ![harry potter: wizards unite](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en&gl=RU)_
 
 ### 1\. Ingress Prime
@@ -342,7 +338,7 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 These are all the games that are similar to Pokémon Go and something that you can try on your own time to see the different concepts of how AR is integrated into this game. Though the games require you to walk and track your GPS, it will motivate you to move a little and get out of the room. If you are not keen on doing that, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), can also help you to virtually go to any place on the earth without having to get up from your couch. These games will surely entertain not only you but also the friends that you can play with.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Additional Tips About Sinnoh Stone For Infinix Hot 40i
@@ -422,6 +418,10 @@ Click the 'March' button to allow the system to simulate motion by selecting the
 
 Only the trainers above the 10th Level have access to acquire Sinnoh Stone. The Sinnoh Stone can be obtained from Training Battles and Training with Team Leaders. You also need 100 candies for each of the Pokemon. Once you have got your hands on Sinnoh Stones and now you want to know where they should be used, there’s numerous 4th generation Pokémon who require Sinnoh Stone for their upgrade. Mamoswine is one of the best if you're prioritizing attackers for a raid because it has a mix of extremely high CP with the strong ground and ice-type moves.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting you evolve your favorite Pokemon and keep them throughout your journey in the game. Dr.Fone's virtual application lets you find them with ease without any real movement on your part and helps you enjoy the game to the fullest.
@@ -440,20 +440,18 @@ Sinnoh Stone, a rare evolution item, is one of the Perks of Pokemon Go letting y
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-ace-your-online-presence-youtubes-studio-command-center-for-2024/"><u>[New] Ace Your Online Presence YouTube's Studio Command Center for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-building-competence-with-lut-software/"><u>[New] Building Competence with LUT Software</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-top-12-flip-screen-cams-for-dynamic-videography/"><u>[New] In 2024, Top 12 Flip-Screen Cams for Dynamic Videography</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-achieving-a-noiseless-presence-on-social-video-platforms/"><u>[Updated] Achieving a Noiseless Presence on Social Video Platforms</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-8-best-screen-capture-tools-for-linux/"><u>[Updated] In 2024, 8 Best Screen Capture Tools for Linux</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Oppo K11 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accents-around-the-globe-from-cockney-to-kangaroo-english/"><u>Accents Around the Globe: From Cockney to Kangaroo-English</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/get-started-with-vn-video-editor-on-mac-or-find-alternative-solutions/"><u>Get Started with VN Video Editor on Mac or Find Alternative Solutions</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-htc-u23-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Nokia C300? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-windows-11s-0x802e401c-update-malfunction/"><u>Overcoming Windows 11'S 0X802e401c Update Malfunction</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-quick-cuts-editing-instagram-videos-on-macos/"><u>[New] Quick Cuts Editing Instagram Videos on macOS</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unrivaled-handwear-elevate-your-vr-world/"><u>[New] Unrivaled Handwear Elevate Your VR World</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-obs-vs-shadowplay-which-recording-tool-takes-the-prize/"><u>[Updated] In 2024, OBS Vs ShadowPlay Which Recording Tool Takes the Prize?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-personalized-branding-craft-your-logo-from-free-designs/"><u>[Updated] In 2024, Personalized Branding Craft Your Logo From Free Designs</u></a></li>
+<li><a href="https://win11.techidaily.com/a-photographers-companion-fixing-your-windows-camera/"><u>A Photographer’s Companion: Fixing Your Window's Camera</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/high-quality-audi-steppenwolf-hd-desktop-wallpaper-graphics-downloadable-pack-by-yl-software/"><u>High-Quality Audi Steppenwolf HD Desktop Wallpaper Graphics - Downloadable Pack by YL Software</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-itel-a60s-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Itel A60s? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-time-lapse-tiktoks-capturing-anime-elements-and-styles/"><u>In 2024, Time-Lapse TikToks Capturing Anime Elements and Styles</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/memorial-day-sale-save-60-on-the-apple-watch-se-the-best-buy-of-the-year-revealed/"><u>Memorial Day Sale: Save $60 on the Apple Watch SE - The Best Buy of the Year Revealed !</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/surprisingly-positive-how-my-experience-with-the-ring-spotlight-cam-pro-exceeded-expectations-a-zdnet-review/"><u>Surprisingly Positive: How My Experience with the Ring Spotlight Cam Pro Exceeded Expectations - A ZDNet Review</u></a></li>
 </ul></div>
 
