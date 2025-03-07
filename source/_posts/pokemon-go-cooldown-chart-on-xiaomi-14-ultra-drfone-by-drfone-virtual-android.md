@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Xiaomi 14 Ultra | Dr.fone
-date: 2025-02-17T16:26:13.756Z
-updated: 2025-02-18T16:42:34.249Z
+date: 2025-03-06T05:55:44.014Z
+updated: 2025-03-06T18:23:35.022Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -50,10 +50,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -105,10 +101,6 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -144,10 +136,6 @@ Now, you can choose the location by entering its name in the search bar or coord
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Teleport your location on Pokémon Go
 
 When you reach the target location and move your pin, click the "Move Here" button.
@@ -157,10 +145,6 @@ When you reach the target location and move your pin, click the "Move Here" butt
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
@@ -202,17 +186,9 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Heracross:** South America/ Southern Florida.
 - **Corsola:** Equatorial Latitudes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Gen 3/ Hoenn Pokémon
 
 ![hoenn pokemon](https://images.wondershare.com/drfone/2020/202010/hoenn-pokemon.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - **Tropius:** The Middle East and Africa.
 - **Torkoal:** Southeast Asia.
@@ -235,10 +211,6 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Uxie:** Available on select raid periods. Asia and Pacific.
 - **Azelf:** Available on select raid periods. America.
 - **Mesprit:** Available on select raid periods. Middle East, Africa, and India.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Gen 5/ Unova Pokémon
 
@@ -335,10 +307,6 @@ Snorunt is an ice-type Pokémon that was introduced in Generation III. It is als
 
 It is every player's wish to avoid the long hunt for a Dawn Stone into their Podex. This issue has given birth to some of the hacks and tricks to help players cross territory and find the intended evolution item or Pokémon. Some of these tricks include:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Use iOS spoofing tool- Dr. Fone Virtual Location
 
 [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is an amazing iOS spoofer tool that allows users to fake their actual location. This makes it a good tool for location-based games like Pokémon Go. With Dr. Fone Virtual Location, you can teleport to whichever place across the globe by a click of a button. If you want to simulate movements to confuse the game app, you can simulate two or multiple points. Furthermore, you can leverage the joystick to improve the flexibility of GPS control. To teleport to any place in the world with Dr. Fone Virtual Location's help, follow the steps below.
@@ -347,10 +315,6 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2.** On the next page, click the "Get Started" button to proceed.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -358,10 +322,6 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 **Step 3.** You should see three icons on the top-right of the subsequent page. Click the third icon to switch to the teleport mode. At the top-left, enter the location of the place you want to teleport to and click "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4.** When the program has found the location, a dialog box will appear in the background. Click "Move Here" to teleport to this location.
 
@@ -389,22 +349,18 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-expert-analysis-on-slomo-video-softwares-performance/"><u>[Updated] 2024 Approved Expert Analysis on SloMo Video Software's Performance</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-max-views-max-impact-discover-best-posting-days-for-2024/"><u>[Updated] Max Views, Max Impact Discover Best Posting Days for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/digital-storytelling-unlocked-creating-memorable-slideshows-on-fb-for-2024/"><u>Digital Storytelling Unlocked Creating Memorable Slideshows on FB for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/how-to-handle-user-accounts-with-yl-software-a-guide-to-control-panel-options/"><u>How to Handle User Accounts with YL Software: A Guide to Control Panel Options</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo A79 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Lava Storm 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Motorola Moto G84 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Find X7 | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/is-your-money-well-spent-on-chatgpt-plus-uncover-these-5-persuasive-arguments-for-signing-up/"><u>Is Your Money Well-Spent on ChatGPT Plus? Uncover These 5 Persuasive Arguments for Signing Up</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/problembehandlung-fur-unerwartetes-automatisches-tippen-auf-ihrem-iphone-losungsvorschlage-und-tipps/"><u>Problembehandlung Für Unerwartetes Automatisches Tippen Auf Ihrem iPhone - Lösungsvorschläge Und Tipps</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/quick-fixes-for-a-faster-laptop-or-desktop-yl-softwares-guide-to-performance-enhancement/"><u>Quick Fixes for a Faster Laptop or Desktop - YL Software's Guide to Performance Enhancement</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/resolving-the-bad-pool-caller-glitch-in-windows-10-a-comprehensive-fix-guide/"><u>Resolving the 'Bad Pool Caller' Glitch in Windows 10: A Comprehensive Fix Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Sony Xperia 1 V | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-vivo-y36i-by-drfone-android/"><u>Universal Unlock Pattern for Vivo Y36i</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-style-with-confidence-adding-border-artistry-to-your-instagram-posts-for-2024/"><u>[Updated] Style with Confidence Adding Border Artistry to Your Instagram Posts for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo A58 4G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/jest-journeys-charting-7-comedic-paths-to-viral-videos/"><u>Jest Journeys Charting 7 Comedic Paths to Viral Videos</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revamp-your-viewing-experience-by-tweaking-these-5-tv-settings-enhanced-clarity-awaitsvideo/"><u>Revamp Your Viewing Experience by Tweaking These 5 TV Settings - Enhanced Clarity Awaits![Video]</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/sm-bus-controller-installation-package-available-for-various-windows-versions-including-11-10-8-and-7/"><u>SM Bus Controller Installation Package - Available for Various Windows Versions Including 11, 10, 8 & 7</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-your-microphones-volume-issues-a-comprehensive-guide/"><u>Solve Your Microphone's Volume Issues: A Comprehensive Guide</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/ultimate-solution-to-your-storahcisys-bsod-problem-in-windows-computers/"><u>Ultimate Solution to Your Storahci.sys BSOD Problem in Windows Computers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/uncovering-the-most-recent-facebook-changes/"><u>Uncovering the Most Recent Facebook Changes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-marvels-avengers-a-comprehensive-critique/"><u>Unpacking Marvel's Avengers: A Comprehensive Critique</u></a></li>
 </ul></div>
 

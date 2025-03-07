@@ -1,7 +1,7 @@
 ---
 title: What is the best Pokemon for pokemon pvp ranking On Tecno Spark 10 4G? | Dr.fone
-date: 2024-07-23T03:51:57.265Z
-updated: 2024-07-24T03:51:57.265Z
+date: 2025-02-28T03:08:09.932Z
+updated: 2025-03-07T02:38:47.678Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,9 +21,6 @@ Should you play Pokemon Go PvP rank games? Absolutely yes. Such experiences offe
 
 In this article, we will discuss everything about the Pokemon Go PvP rank game. We will also provide a short guide on how to access it on the mobile application quickly and easily. Continue reading below to learn more.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1. What is the Pokemon Go PvP Rank Game?
 
 When talking about Pokemon Go, the first thing that usually comes to mind is Pokemon hunting and spinning PokeStops. Well, it’s true to a certain degree. Your main goal as a trainer is to build large Pokemon collections and obtain as many rewards as you can. However, there’s actually more to it. Players are also given the option to increase their ranking by battling another trainer. Yes. That is called the Pokemon Go PvP rank game.
@@ -32,9 +29,6 @@ Pokemon Go PvP rank battles are far different from other forms of duel in the ga
 
 There are lots of sensible reasons why you should engage in the Pokemon Go PvP rank game. Some of them are enumerated below. Check out the list to learn more.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### It upgrades the gaming experience to a whole new level
 
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-1.jpg)
@@ -47,16 +41,10 @@ Sure. Catching Pokemon in the wild and visiting nearby PokeStops are incredibly 
 
 ### It serves as your key to special tournaments and worldwide events
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-2.JPG)
 
 Pokemon Go is holding various tournaments from time to time. However, some of these events require players to garner a specific rank or rating in Pokemon Go PvP battles. That means you cannot join if you don’t meet a particular rank level required in the game. Therefore, strive harder to participate in PvP games and win as many duels as you can. Your Pokemon PvP ranking is not just a mere group of numbers. It actually defines your eligibility to join prestigious Pokemon Go events. Hence, take it very seriously.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Part 2. How to Get Started With Pokemon Go PvP Rank Battles?
 
 Go Battle League is the most basic type of Pokemon Go PvP battle. It is available to level 10 (and above) trainers whose account is in good standing. Generally, the Go Battle League comes in three game formats, namely Great League, Ultra League, and Master League. You can participate in any of them if you have the required type of Pokemon and amount of Combat Power. On a regular day, you’re given a chance to play at least five sets of battles for each league. Take advantage of this opportunity and win as many battles as you can to increase your rank in no time. Yes. Aside from special prizes, you also level up in every battle you win. That’s why you should prepare a lot and make sure to beat your opponent every chance you get.
@@ -66,9 +54,6 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 - **Step 1:** Launch the Pokemon Go mobile application.
 - **Step 2:** On the map view, click the Poke Ball icon at the bottom of your screen to bring out the main menu.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![poke ball option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-3.jpg)
 
 - **Step 3:** From there, click **Battle.**
@@ -81,9 +66,6 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 
 - **Step 5:** Finalize your three-member Pokemon team and start battling against another trainer you match with.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3. Explained: Pokemon PvP Ranking in Go Battle League
 
 The lowest Pokemon PvP ranking in the Go Battle League is Rank 1. The ranks go higher as the player accomplishes more battles going forward. However, you have to win each of them if you wish to increase your Battle Ratings quickly. It is important to keep tabs on your ratings because it’s among the crucial components of Pokemon PvP ranking.
@@ -94,9 +76,6 @@ Go Battle League features a total of 24 ranks starting from Rank 1. The last fou
 
 For your information, the Pokemon PvP ranking in the Go Battle League refreshes every season. That means the participants will all go back to Rank 1 once the new season approaches and sets in. Don’t worry. It’s not a big deal. If you’re able to make it last season, you can absolutely do it again one more time. Just stick to your original strategy and be patient at every turn. That’s how you do it.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tips For Winning Pokemon Go PvP Rank Battles
 
 Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check out the expert tips listed below. Implement each of them on your next trainer duel.
@@ -105,23 +84,15 @@ Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check o
 - Your priority during the Pokemon Go PvP rank battle is to cause damage to your opponent. It’s a tough job unless you’re aware of the Pokemon’s weaknesses and strengths. Study the type advantages of Pokemon so that you can intelligently strategize during the match.
 - Deploy Charged Attacks as often as possible during the battle. As for your defense, make sure to utilize Protect Shield for the most valuable member of your team.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4. Win Pokemon Go PvP Rank Battles With [<u>Wondershare Dr.Fone</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
 
 It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on how well you prepare. That’s why you should catch as many strong Pokemon as possible beforehand. Sure. Catching Pokemon in the wild is not as easy as falling off a log. You have to travel a distance and wander aimlessly until you come across your target. But did you know that there’s actually a tool that can help you do all this stuff without going outdoors? Yes. Wondershare Dr.Fone has a potent Virtual Location feature capable of modifying your current whereabouts and simulating GPS movements. Do you want to try it out? Here’s a short guide to get you started.
-
-
 
 - **Step 1:** Download Wondershare Dr.Fone from its [<u>official website. </u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) Right after, install it on your computer.
 - **Step 2:** Open the newly installed application on your desktop. Once it fully loads up, connect your smartphone using a data cable. Follow the on-screen instructions to ensure the connection between the two devices is strong and reliable.
 - **Step 3:** Head over to the left-side panel and then click **Toolbox.** On the main dashboard, click **Virtual Location.** Let Wondershare Dr.Fone download additional resources if it’s your first time accessing this feature.
 - **Step 4:** Once the downloading process has been completed, Wondershare Dr.Fone - Virtual Location will subsequently open in a separate window. From there, access the top-right menu bar and then click **One-Stop Route.** The starting point for the simulation will be determined according to your current location. If you wish to change it, click **Teleport Mode** on the menu bar and then assign your preferred location. As for the destination, enter your desired location into the search bar or tap anywhere on the map.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
 - **Step 5:** Configure the settings according to your liking. Start by specifying your preferred number and type of trips. Then, adjust the movement speed by dragging the slider from left to right. After that, it’s time to commence the simulation. Click **Move Here** to proceed. If you wish to reset your inputs, click **Clear** instead.
@@ -130,20 +101,12 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 
 - **Step 6:** The simulation will begin in a second. Use the details on the map to monitor the real-time progress. If you wish to halt the movement for a little while, click **Pause.** Should you wish to start all over again, click **Clear** instead and repeat the entire process one more time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 ## Conclusion
 
 Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players who just want to have fun. That’s totally fine. Pokemon Go surely has in store for them that don’t require trainer battles. But if you’re among the players who wish to go the extra mile, try the Pokemon Go PvP rank games. Read the discussions above because it can help you get started with the Go Battle League. Work your way up as you go along throughout the season. For preparations, download [<u>Wondershare Dr.Fone.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It offers a powerful Virtual Location feature capable of simulating GPS movements needed when catching Pokemon. Try it out and take advantage of its wonderful benefits.
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why does the pokemon go battle league not available On Tecno Spark 10 4G
 
 After the incredible hype of finally getting the chance to battle other players, trainers hit a wall marked – Pokémon Go battle leagues Not Available.
@@ -216,18 +179,12 @@ Although it might seem like a long and hard journey, it doesn’t need to. You c
 
 Here’s some tips you can put to easy use in Levelling Up in Pokémon Go:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ### Tip #1: Use dr.fone Virtual Location
 
 Use Wondershare [Dr.Fone – Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to easily teleport to catch more poke stops at an adjustable speed and free-hand direction. The program is easy to use and a quicker way to grab more powerful Pokémon using lure.
 
 There are several adjustments to the program that makes it fun to use. You can adjust the speed according km/hr so that the speed of the pointer would be determined as either walking, biking or driving in the game. This increases your chances to catch Pokémon at your desired pace.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drfone](https://images.wondershare.com/drfone/2020/drfone.jpg)
 
 **Key Features:**
@@ -237,9 +194,6 @@ There are several adjustments to the program that makes it fun to use. You can a
 - You can set the speed according your choice and all other apps would track you as your pointer is teleported manually or automatically.
 - You can also use a free hand joystick to move the pointer on the map according to the movement of your finger.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip #2
 
 - You can set up multiple lures on several Poke stops and return to those exact coordinates to catch your lured Pokémon.
@@ -257,11 +211,6 @@ There are several adjustments to the program that makes it fun to use. You can a
 
 Pokémon Go continues to amaze trainers and fans of the franchise, and is becoming a most engaging and fun experience. Trainers are going to keep enjoying new and improved updates that brings a cooler jazz to the game. Even though there was a hold up in the fun Niantic has improved upon their initial flaws to give us the battle league tournaments we all love.
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## How does the stardust trade cost In pokemon go On Tecno Spark 10 4G?
 
 Pokemon go has been around for a while now and has arisen as one of the most talked-about games in the gaming community. The fact that it is a location-based game and needs you to move around while playing the game makes it further interesting. Trading in Pokemon go is one of the most talked-about features. Today, we will help you explore more about stardust trade costs and how can you easily perform trades! Hang on as we dwell deeper into Pokemon go and trade stardust costs.
@@ -283,9 +232,6 @@ However, Pokemon go also has levels of friendship and you can trade pokemon of d
 
 The levels of your friendship with a player on Pokemon go increase with the increase in the number of days you stay friends with them. Within a month of friendship, you can become best friends with a player on Pokemon go! You also need stardust points on Pokemon go. So what is stardust trade cost? Before you trade any pokemon you must spend stardust coins. Not having enough stardust trade coins will not allow the trade of pokemon to happen. Hence, you must have enough stardust trade costs.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How much stardust do you need in pokemon trading costs?
 
 Trading in Pokemon go is quite complex. This is because the needed Stardust points will be different in every case and will depend on several factors. Factors such as whether you already half got that Pokemon in your pokedesk or not, the friendship level of you and your friend who are interested in trading, or whether the Pokemon is rare or common. Given below are the Stardust trade costs for each Pokemon.
@@ -323,9 +269,6 @@ Teleport to anywhere in the world
 
 **Step 1:** Firstly, you need to install Dr.Fone- Virtual location (iOS/Android) on your computer(Win/Mac). Then, install and launch the program on your computer. Click on "Virtual Location" from the options on the main interface.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![click virtual location](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 **Step 2:** Now, you need to connect your iPhone to the PC and click on "Get Started".
@@ -334,16 +277,10 @@ Teleport to anywhere in the world
 
 **Step 3:** A new window would now pop up where you can see your current location. If you are unable to see your current location, then click on "center on" icon at the bottom. Doing so will lead you to show your location on the map.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![map screen](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 **Step 4:** Now click on "Teleport mode" using the button on the top right corner of the window. Enter the place you want your location to be set to and then click on "Go". Once done the click on "Move Here". Well, that's it! We're done with changing our location to the desired location!
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![enter location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 ### 2\. Exchange the gift with friends to level up a friendship
@@ -358,7 +295,6 @@ Investing more and more time on the game will lead you to catching more pokemons
 
 Well, the article did give us a lot of idea about stardust trade cost and how to increase Stardust trade points in Pokemon go. We dwelled more into major facts about the game and learned a lot about it. We also explored what is drfone-Virtual location ( iOS) and how it can help you to teleport from one place to another! Using the app will help you a lot in improving the game and wouldn't require you to do much! All you've to do is teleport from one place to another, catch more and more pokemons and get more stardust! As a player, it shall improve your stats by a huge margin!
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -371,7 +307,20 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-expert-tips-activating-or-deactivating-youtube-comments/"><u>[Updated] Expert Tips Activating or Deactivating YouTube Comments</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-upload-with-ease-instagram-and-vimeo-harmony/"><u>[Updated] Upload with Ease Instagram and Vimeo Harmony</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-standard-to-personalized-installing-unique-ringtones-and-sounds-on-android/"><u>2024 Approved From Standard to Personalized Installing Unique Ringtones & Sounds on Android</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-top-3-affordable-switch-game-counterparts/"><u>2024 Approved Top 3 Affordable Switch Game Counterparts</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-the-art-of-backward-movies-on-snapchat/"><u>Mastering the Art of Backward Movies on Snapchat</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-price-of-playing-free-to-play-switch-gems/"><u>The Price of Playing: Free-to-Play Switch Gems</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-the-power-of-chatgpt-a-look-at-its-inherent-plug-ins-and-their-roles/"><u>Unlocking the Power of ChatGPT: A Look at Its Inherent Plug-Ins and Their Roles</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Oppo Reno 10 5G? | Dr.fone</u></a></li>
+</ul></div>
 

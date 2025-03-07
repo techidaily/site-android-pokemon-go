@@ -1,7 +1,7 @@
 ---
 title: In 2024, List of Pokémon Go Joysticks On Itel A60s | Dr.fone
-date: 2025-02-16T16:24:06.313Z
-updated: 2025-02-18T16:42:26.753Z
+date: 2025-02-27T21:46:47.268Z
+updated: 2025-03-07T01:44:56.761Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -89,10 +89,6 @@ Cons
 
 - The free app can cause damage or ban
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Fly GPS (Android)
 
 ![Use either the fixed location mode or move location mode](https://images.wondershare.com/drfone/fly-gps-joystick.jpg)
@@ -171,10 +167,6 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 
 ![pokémon go sun stone](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Though you can certainly catch some powerful Pokémon in Pokémon Go just by playing the game, exploring the wilderness, and joining raids, it’s not enough. Evolving your Pokémon is how you advance through the game, level up, and become a better catcher.
 
 Now, while some of your Pokémon in the game can evolve with the utmost ease, others require a bit more of a special touch, and that special touch comes in the form of evolution items. Necessary for certain species of Pokémon, evolution items can be somewhat elusive – one of the rarer ones being the Sun Stone.
@@ -185,19 +177,11 @@ Now, while some of your Pokémon in the game can evolve with the utmost ease, ot
 
 ![sun stone and four pokémon](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glowing bright red and orange, it is effortless to recognize in the game, immediately catching your eye even in the busiest of environments. Consider yourself lucky if you come across one casually.
 
 ## Part 2. Pokémon Go Sun Stone Evolutions Explained
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
@@ -222,10 +206,6 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Cottonee | Sun Stone and 50 Cottonee candy | Whimsicott |
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
@@ -306,10 +286,6 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 ![set up mock location on your phone](https://images.wondershare.com/drfone/guide/vl-connect-android-3.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
 
 ### Pay Attention to Community Days and Special Events
@@ -338,10 +314,6 @@ The Niantic, the developer of Pokémon Go, is particular about the safety of the
 
 ![pokemon go ban](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The following are the reasons that may cause to ban your account:
 
 - Engaging in harassment against any player in the game
@@ -350,10 +322,6 @@ The following are the reasons that may cause to ban your account:
 - Fake location to catch Pokémon from different locations
 
 If you think your account may get terminated, you should keep the terms and conditions of the game in mind. However, you can spoof location smartly with safe fake GPS like PGSharp for Android and Dr.Fone virtual location iOS.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Thumb Rule for spoofing with PGSharp
 
@@ -411,14 +379,6 @@ To use it, you will need to install it on your device from the official site or 
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Pokemon Go is a very interesting game and brings a lot of fun while playing. With reliable and trusted apps like PGsharp for android, you can spoof it without a ban. For iOS, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app is best for fake GPS without a ban. Try these apps now to get more fun in the game without getting a ban.
@@ -437,24 +397,18 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-metadata-the-power-of-accurate-video-tags/"><u>[New] 2024 Approved Mastering Metadata The Power of Accurate Video Tags</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-video-perfection-in-progress-edits-after-uploading-on-youtube/"><u>[New] 2024 Approved Video Perfection in Progress Edits After Uploading on YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-from-shaky-to-steady-selecting-an-ideal-camera-gimbals-for-uavs/"><u>[New] From Shaky to Steady Selecting an Ideal Camera Gimbals for UAVs</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-peeling-back-layers-the-hidden-meanings-of-everyday-emojis/"><u>[Updated] In 2024, Peeling Back Layers The Hidden Meanings of Everyday Emojis</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-stealth-and-honor-find-your-favorite-games-like-tsushi-for-2024/"><u>[Updated] Stealth and Honor Find Your Favorite Games Like Tsushi for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Nokia G22 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-the-essential-qualcomm-atheros-ar3011-bluetooth-30-driver-software-here/"><u>Download the Essential Qualcomm Atheros AR3011 Bluetooth 3.0 Driver Software Here!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-applauded-at-global-ict-summit/"><u>Mondly Applauded at Global ICT Summit</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/rokus-synergy-unmatched-sound-plus-streaming-excellence/"><u>Roku's Synergy: Unmatched Sound + Streaming Excellence</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-130-music-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-guide-to-silencing-popping-noises-in-your-speakers-for-windows-operating-systems-win117/"><u>Ultimate Guide to Silencing Popping Noises in Your Speakers for Windows Operating Systems (Win11/7)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/is-the-youtube-creator-studio-for-2024/"><u>What Is the YouTube Creator Studio for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Tecno Spark Go (2023)? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-quick-growing-yt-sources-sparking-mental-flourish/"><u>[New] In 2024, Quick-Growing YT Sources Sparking Mental Flourish</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-supreme-top-4k-tvs-for-gamers/"><u>[New] Supreme Top 4K TVs for Gamers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-iphone-photo-marker-selection-unveiled/"><u>[Updated] Best iPhone Photo Marker Selection Unveiled</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-climbing-the-feed-ladder-the-most-effective-hashtags-for-likes-and-followers-on-insta/"><u>[Updated] In 2024, Climbing the Feed Ladder The Most Effective Hashtags for Likes and Followers on Insta</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-deciphering-no-snaps-possible-blocking/"><u>[Updated] In 2024, Deciphering No Snaps, Possible Blocking</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-transcript-download-analyze-content/"><u>[Updated] Transcript Download, Analyze Content</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-itel-p55-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Itel P55 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-itel-a60-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Lava Blaze 2 5G? | Dr.fone</u></a></li>
 </ul></div>
 
